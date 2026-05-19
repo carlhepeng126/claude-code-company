@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+Taiwanese negotiation has its roots in clan networks and community obligations that prioritized reciprocity and long-term fairness. Japanese influence added structural discipline, while decades of export trade embedded global standards for quality and timelines. The result is a style that blends pragmatism with relational care. Counterparts expect a deal to be commercially sound and grounded in data, but they also want assurance that the partnership will endure. Opening with relationship-building is expected, whether through introductory meetings, shared meals, or time spent understanding mutual priorities. These early exchanges are not delay tactics but a way to assess trustworthiness before committing.
+
+Discussions tend to proceed methodically. Teams are seated by hierarchy, with senior members facing one another, and the most senior visitor typically positioned opposite the door. Decisions unfold through consensus-building within the team, though final authority rests with the most senior person. Expect rounds of clarification and revisiting of earlier points, a reflection of the preference for thorough deliberation over speed. A colleague from a culture where decisions are reached quickly may read this as stalling, while Taiwanese negotiators may interpret rapid agreement as superficial or lacking due diligence.
+
+Bargaining is common. Withholding information, referencing other options, or pausing to reconsider terms are all recognized tactics. Coming in with your best offer first limits room to maneuver. Prepare a structured proposal backed by facts, and anticipate that your counterpart will challenge it, not out of mistrust but as part of finding fair middle ground. Avoid high emotion or overt pressure. Raising your voice or using aggressive gestures will damage credibility and make it harder to reach agreement.
+
+Signing a contract does not always close the conversation. If circumstances shift or unforeseen complexities arise, Taiwanese partners may seek to revisit terms or clarify expectations. This reflects a view of agreements as frameworks for ongoing partnership rather than fixed endpoints. Responding with flexibility, while documenting any adjustments clearly, helps maintain trust and signals that you share their interest in a durable, adaptive relationship.

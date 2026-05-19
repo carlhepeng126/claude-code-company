@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Trust in Norway grows through predictability and consistency. Reliability does more than support logistics. It reflects respect for the shared order that underpins Norwegian public and professional life. Agreements, timelines, and procedures are expected to hold firm, and when they do, credibility follows. When they slip, Norwegian customers and partners tend to move on quickly. Brand loyalty exists, but it is conditional on continued performance. A proven track record often outweighs novelty or claims of innovation.
+
+Relationship-building here tends to favor understated competence over visible effort. Overt charm, heavy flattery, or theatrical pitches can register as manipulation rather than warmth. Calm professionalism carries more influence than grand gestures. A colleague from a culture where personal rapport is built through expansive hospitality may find Norwegian reserve difficult to read and wonder whether the relationship is developing at all. From the Norwegian side, that same expansiveness can feel excessive, even insincere, raising questions about what the performance is meant to achieve.
+
+Egalitarian norms shape how partnerships are structured and perceived. Arrangements that appear to favor one party over others can create quiet discomfort or suspicion, especially if the logic behind them is unclear. Fairness and transparency protect the relationship. This expectation extends to autonomy as well. Norwegian culture values freedom in how partnerships operate, but pairs it with an assumption of responsible self-regulation. The principle behind allemannsretten, the right to roam freely across private land as long as you respect it, carries into professional life. Broad access depends on conduct that honors boundaries.

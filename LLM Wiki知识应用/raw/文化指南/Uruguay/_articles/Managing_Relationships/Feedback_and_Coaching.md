@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Uruguay works best when it protects dignity while remaining specific and fair. The civic-education imprint runs deep here, which means people expect feedback to be grounded in observable facts and delivered with procedural fairness. Managers who arrive at a conversation with one clear focus, describe what they saw rather than what they felt, and invite the person's perspective first will find their message received more openly. Intensity or dramatic interventions can read as aggression or performance rather than genuine concern for standards. Keep the tone calm and proportionate, even when the issue is serious.
+
+Critical feedback should always be given privately. What looks composed in public settings often shifts to more candid exchange in smaller, safer spaces. This follows the broader sobremesa pattern, where warmth and directness deepen once formality recedes. A manager from a culture where public correction is common may read this reserve as evasion, while a Uruguayan colleague may see that same public correction as needlessly shaming. The goal is not to avoid clarity but to preserve the person's standing while being clear about what needs to change.
+
+Coaching that feels imposed or controlling can land poorly, shaped in part by sensitivity to coercion rooted in dictatorship memory. People respond better to firmness with restraint. Rather than delivering a solution, invite the person to co-design the adjustment so it feels legitimate rather than dictated. Follow up with a steady rhythm of support, a concrete tool, or a brief check-in, rather than one high-stakes conversation. This builds trust and signals that development is a process, not a verdict.

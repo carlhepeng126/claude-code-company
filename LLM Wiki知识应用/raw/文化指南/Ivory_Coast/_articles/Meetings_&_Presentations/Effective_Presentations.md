@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Ivory Coast are expected to be in French. English-only audiences are rare, and presenting in French, even if you need interpreter support for the question session, shows respect and seriousness. Charisma and personal credibility work in your favor, but heavy self-promotion does not. Ivoirian audiences respond better to warmth and expertise than to aggressive sales tactics, which can come across as vulgar or transactional.
+
+Your audience will want to know what you plan to do over time, not just what you stand to gain. Talk about local job creation, training investment, and long-term commitment to the economy. Position yourself as experienced and collaborative rather than someone sweeping in with promises of quick returns. The tone should feel human and grounded. Storytelling resonates deeply here, as it does across much of sub-Saharan Africa. Metaphors, parables, and real-life scenarios help make your message memorable and build emotional connection, not just intellectual agreement.
+
+Keep slides visual and uncluttered, but back them with solid facts. Provide hard copies of any handouts. Many professionals, especially outside Abidjan's glossy business districts, still lack reliable internet access beyond the office. In rural areas, this becomes even more essential. Audiences typically listen attentively and expect time for questions at the end. These exchanges often reveal how your message has landed and where clarification is needed, so treat the question period as part of the presentation itself, not an afterthought.

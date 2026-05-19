@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Making a business contact in Guatemala means understanding that the most valuable networks often live outside formal channels. In highland towns, the real gatekeepers are cofradía elders, parish priests, weaving and coffee cooperative presidents, and COCODE leaders (community development councils). A warm introduction from a respected catequista (catechism teacher) or cooperative head opens doors faster than any corporate pitch deck. When mapping stakeholders, include these community institutions alongside municipal offices and companies. Asking a local colleague to identify the right parish or cofradía connection can save weeks of cold outreach.
+
+In Guatemala City, making contact means passing through layers of security that double as social filters. Many offices sit behind armed guards, intercoms, and high walls, a response to decades of violence and distrust. The guard and receptionist are not just logistics. They quietly assess risk and credibility, deciding whose business card moves forward and whose gets filed away. Treating front-desk staff as relationship brokers, with consistent respect and clarity, often buys real access later. Upsetting the secretary means you will not get past the door.
+
+Guatemala's deep ties to the US diaspora create another hidden layer of trust. Because so many families are split between Guatemala and cities like Los Angeles, Houston, and Maryland, a recommendation from "mi tío que trabaja con ellos allá" (my uncle who works with them over there) can matter as much as a local business reference. Ask Guatemalan colleagues explicitly who in the US-Guatemala family network could vouch for you. That transnational web of cousins and former neighbours is a working part of how credibility gets built.

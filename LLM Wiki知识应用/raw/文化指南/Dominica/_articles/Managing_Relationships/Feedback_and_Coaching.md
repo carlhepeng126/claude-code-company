@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Dominica works best when it respects both individual dignity and the social fabric people live within. Public correction, even if framed constructively, risks embarrassment and can damage relationships in a context where reputation and standing are maintained across generations. Managers working with Dominican staff should deliver corrective feedback quietly and one-on-one, using language that opens conversation rather than pronouncing judgment. A colleague from a culture where direct performance critiques are routine may interpret this caution as avoidance, while a Dominican employee might view abrupt directness as disrespectful or socially careless.
+
+Coaching conversations often extend beyond the workplace. A young professional may consult with family or trusted community members before accepting a role change or increased responsibility, particularly if it affects household expectations or shifts perceived social standing. This means that feedback doesn't always result in immediate action. The response unfolds as the person weighs advice against the views of those whose opinions shape their sense of place and obligation.
+
+Praise, by contrast, can be shared more openly, especially when it acknowledges effort and contribution without singling someone out in a way that creates awkwardness or envy. Recognize people warmly and sincerely, but frame it in relation to team success where possible. Formal review systems that rely heavily on written ratings or impersonal frameworks can feel disconnected from how trust and understanding are actually built in Dominican work culture.

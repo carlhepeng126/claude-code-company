@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Appearance in Rwanda reflects the broader post-genocide national narrative of restoration, order, and credibility. Being well turned out reads as respect for others and for the occasion, rather than personal display. In a socially dense environment where reputation forms quickly, how you present yourself communicates how seriously you take the people in front of you. Under-dressing can accidentally suggest casualness or disregard, while neat, structured, and modest presentation builds trust from the start.
+
+Urban and rural contexts can interpret appropriateness differently. Kigali's public culture leans toward modern, sharp, and professional presentation. Men typically wear suits or dress shirts with ties, women choose tailored dresses, blouses, and skirts or trousers. In government offices or traditional sectors, the expectation tilts more formal. Outside the capital, practical considerations and community norms shape what looks respectful. The key in both settings is fit-for-setting rather than fashion.
+
+For first meetings, choose formality over comfort. Lightweight fabrics work well in the heat, but keep lines clean and styling conservative. Avoid anything that can be read as performative, including overly flashy, ironic, or casual choices. You can relax once you understand local expectations and relationship depth. Traditional clothing such as richly colored kitenge fabrics or the mushanana, a long ceremonial dress worn by women at important functions, appears at cultural events and celebrations. Unless explicitly offered or requested for a special occasion, it's better not to adopt these styles yourself.

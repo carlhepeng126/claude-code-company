@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+The Cook Islands operates on relationship logic, and that shows up from the very first contact. Professional life here is deeply entwined with family and community ties, so people need to place you before they engage with you. Asking where someone is from, who their family is, or what brings them to the island gives you information that goes beyond small talk. It tells you how you might already be connected, and whether the person across from you can be trusted. A direct request for a meeting from someone with no shared connection may be met politely, but will likely move slowly until some form of relational grounding has been established.
+
+An introduction from someone already known and respected shortens this process significantly. In practice, that might mean having a local colleague mention your name informally before you reach out, or attending a community event where a mutual contact can vouch for you in person. Phone calls tend to work better than emails for initial contact, especially outside Rarotonga, where face-to-face interaction or voice are still the preferred ways to build trust.
+
+When arranging appointments, allow more lead time than you might elsewhere and confirm the day before. Schedules are real, but they sit within a wider set of priorities that includes family obligations, church commitments, and community responsibilities. A meeting may be postponed without much notice if something more urgent arises, and this reflects the value placed on looking after people, not a lack of professionalism. Building in buffer time and staying flexible will keep the relationship intact.

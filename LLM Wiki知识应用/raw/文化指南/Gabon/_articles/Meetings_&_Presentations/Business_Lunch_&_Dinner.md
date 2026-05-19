@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals in Gabon are social occasions first, and relationship building happens alongside food rather than being secondary to it. Meetings often extend over lunch or dinner, particularly when deeper trust or partnership is being explored. Rushing through a meal, or treating it purely as a setting for deal-making, can feel transactional and may undermine rapport. The meal itself is a form of conversation, and the time spent together holds as much meaning as the topics discussed.
+
+French influence remains visible in dining culture, particularly in urban centres like Libreville. Restaurants often serve French-inspired dishes alongside Gabonese staples such as grilled fish, cassava, and plantain. Sharing food is common, and meals may be served family-style or from communal platters. Offering tastes to colleagues or accepting what's offered reflects generosity and openness, values that support relationship building in professional settings.
+
+Alcohol may be available in international hotels and some restaurants, but it's not universal. Checking menus in advance or following the lead of your host avoids missteps. Meals can be lengthy, with multiple courses paced gradually. Colleagues from cultures where business meals are shorter or more agenda-driven may find the rhythm slow, while Gabonese colleagues may read a hurried tone as disinterest or disrespect. Allowing time for the meal to unfold naturally, and engaging in conversation beyond work topics, supports the relational foundation that underpins collaboration in Gabon.

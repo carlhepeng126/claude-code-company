@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Public correction in Trinidad and Tobago can travel far and fast. In a society shaped by strong talk culture, making someone look foolish in front of others risks more than hurt feelings. It affects social standing and how the moment gets narrated across networks. This is especially true in Tobago, where tighter networks mean people re-meet often, and being publicly diminished can leave a longer shadow. Keeping feedback private helps protect reputation and preserve trust.
+
+How critique is received also depends on moral frameworks, particularly in communities where elder authority and religious life are influential. In these settings, composure and how someone was "brought up" are dignity markers. Feedback can be heard as judgement of character, upbringing, or family pride, not just work performance. A manager from a culture where feedback is expected to be direct and task-focused may offer what they see as neutral correction, while the recipient experiences it as a deeper personal assessment. From the other side, a Trinbagonian colleague may read blunt feedback as disrespectful or culturally unaware, and respond with silence or withdrawal rather than open disagreement.
+
+Picong, the local art of teasing, can correct behavior while keeping the mood light. It functions as social regulation, steering someone without open confrontation. But when picong becomes public exposure, it can cross into humiliation. The line between playful nudge and reputational damage is context-dependent. A panyard may tolerate sharper call-outs as part of normal exchange, while a church circle or temple committee expects softer, more private correction. Recognizing which register applies in which space helps ensure coaching lands as intended.

@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Open confrontation threatens dignity and fractures the relational trust that underpins Saudi professional life. When disagreements emerge, the instinct is to move the issue out of public view and into a more contained setting where face can be preserved for everyone involved. This reflects the influence of the *majlis* tradition, the long-standing practice of gathering in respectful, often hospitality-centered spaces where elders or trusted figures help mediate disputes. In the workplace, this translates into quiet one-on-one conversations, involvement of a senior colleague, or the use of a trusted intermediary rather than airing differences in meetings or emails.
+
+The role of *wasta*, relational capital built through trusted networks, becomes especially visible during conflict. A colleague with strong connections may offer to step in, not to bypass formal process but to provide a bridge that allows both sides to step back without loss of standing. Refusing this offer or insisting on a direct, unmediated resolution can prolong tension and signal a misunderstanding of how repair happens. Shared rituals, including hospitality such as coffee, often accompany or follow resolution. These gestures signal that harmony has been restored and the relationship can continue.
+
+A manager from a culture where issues are raised directly in group settings may read this approach as avoidance or inefficiency. From the Saudi perspective, raising conflict publicly can appear reckless and damaging, prioritizing speed over the preservation of working relationships. Introducing concerns gradually, or through a third party, allows space for adjustment without forcing a public defense. If you need to address a problem, frame it privately, involve someone with relational standing if the issue is serious, and allow time for the repair process to unfold in a way that leaves dignity intact.

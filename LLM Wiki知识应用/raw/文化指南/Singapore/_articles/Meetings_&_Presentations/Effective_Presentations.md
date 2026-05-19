@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+A presentation in Singapore needs to work as both a live session and a standalone document. Decks are routinely escalated to directors or executive committees who were not in the room, which means every slide must answer "so what?" without a spoken explanation. This practice stems from years of working within or alongside government and statutory boards, where cabinet paper discipline shapes how professionals think. Structure your presentation around a clear spine: issue, context, options, analysis, recommendation. A rambling narrative, no matter how compelling in person, becomes a liability the moment it leaves your hands.
+
+Technical precision and explicitness win credibility. Singaporean audiences expect you to show your workings, not just your conclusion. Lay out trade-offs visibly and explain why you chose one option over another. Vague concepts or abstract language undermine trust, while sharp, technical questions signal genuine engagement. If you are presenting from a context where questions might feel adversarial, it helps to know that in Singapore they reflect seriousness and analytical rigor, not hostility.
+
+Risk, compliance and optics form a filter as important as commercial merit. Decision-makers listen for regulatory fit, whether the Monetary Authority of Singapore, Ministry of Manpower or sector regulator will approve, and how the proposal might look to media or public scrutiny. Include a slide that addresses these considerations directly. Treating them as side notes suggests unfamiliarity with how decisions are made here. A colleague from a setting where speed and disruption are celebrated may read this as excessive caution, while a Singaporean professional may view proposals that ignore regulatory and reputational risk as reckless or naive.

@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Supplier relationships in Guatemala carry the weight of lived histories that rarely appear on an invoice. Many small businesses, transporters, and cooperatives operate under security pressures that outsiders do not see. "La renta," extortion payments demanded by gangs, is a practical reality for many suppliers. A missed delivery or sudden change in route may reflect a negotiation for physical safety, not inefficiency. Before imposing rigid schedules or payment terms, ask directly about security constraints and explore where flexibility might reduce risk rather than create it.
+
+In rural and village contexts, memory runs deep. Suppliers and customers remember for years who extended "fiado" (informal credit) after a crop failure or robbery, and who withdrew when times were hard. That recall shapes trust decisions with larger buyers and distributors long after a single transaction. Reliability during difficult periods builds loyalty that extends well beyond one cooperative or shop. Treat small suppliers and cooperatives as partners with history, explain terms clearly, and show up in lean years as well as profitable ones. How you behave with one group will be retold in many others.
+
+Cooperatives producing coffee, cardamom, honey, or textiles often function as experiments in dignity after generations of debt bondage on fincas. Being treated as interchangeable or purely transactional undermines the fragile pride that these groups have worked hard to build. Engage cooperatives as distinct entities with their own governance and values. Personal visits, consistent communication, and fairness in pricing communicate respect in ways that contract clauses alone cannot. In Guatemala's relationship-centered business culture, your reputation for constancy becomes your strongest credential.

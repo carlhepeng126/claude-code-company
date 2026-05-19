@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+The British Indian Ocean Territory operates under British administrative protocols, shaped by its status as a military and logistical facility rather than a settled civilian society. There is no indigenous population and no local commercial sector. The personnel present are predominantly British and American military or contracted support staff, along with a small number of Philippine and Mauritian workers. In this context, forms of address follow the conventions of the institutions people represent, not a local cultural tradition.
+
+Military personnel use rank-based address as standard. Titles such as Lieutenant, Commander, or Sergeant are paired with surnames and are expected in all formal exchanges, written and spoken. Civilian contractors and support staff typically default to British workplace norms, using Mr., Ms., or professional titles where applicable, followed by the surname. First names are adopted once a working relationship is established, but the pace of that shift depends on rank, role, and familiarity. In emails and written communication, formality remains higher than in many corporate environments, reflecting the operational and security-focused nature of the setting.
+
+Because the Territory functions as a transient posting rather than a community, there is little scope for the informality that might develop in a stable workplace. People arrive for fixed terms, work within clearly defined hierarchies, and leave. That turnover means addressing someone correctly from the outset becomes a practical necessity, and assumptions of familiarity can create friction, particularly across service branches or between military and civilian staff.

@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information in Republic of Congo moves through relationship and conversation far more reliably than through formal written channels. This stems from a long oral tradition and from a political history that taught people to be careful about what they said and to whom. Under the Marxist-Leninist state, sharing the wrong detail in the wrong setting could have real consequences. That caution outlived the regime. People still weigh whom they are speaking to and what the context allows before they open up.
+
+Within organizations, hierarchies are steep and information rarely flows freely across levels. Senior figures may not share details downward, and junior staff often rely on informal networks and word of mouth to piece together what is happening. If a colleague seems reluctant to share, it may have less to do with you personally and more to do with trust not yet being established or the setting not feeling safe. Spending time with people outside formal meetings, building the personal connection, and demonstrating reliability over time will typically unlock what formal requests will not.
+
+Sensitive information rarely arrives directly. It surfaces through tone, implication, or through a trusted intermediary who can deliver the message without exposing the source. A colleague from a culture where directness signals efficiency may interpret this indirectness as evasion or obstruction. From a Congolese perspective, the same colleague's bluntness in a formal setting may seem careless or unaware of how exposure can carry risk. Understanding that information has a social route, not just an administrative one, shifts how you listen and where you invest your attention.

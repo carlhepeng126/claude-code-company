@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+For all its focus on individualism, teamwork is a defining feature of the American workplace. There's a conviction that well-constructed teams outperform even the most talented individuals working alone, and that the process of teaming itself can be learned, refined, and repeated for competitive advantage. Many organizations invest heavily in understanding how to build and sustain high-performing teams, drawing inspiration from sports teams and elite military units. Leaders are expected to have a working theory of teaming, trained not just to delegate tasks but to actively shape group trust, communication norms, and resilience under pressure.
+
+The ideal team member takes ownership, moves quickly, and contributes visibly. Initiative is valued: people are expected to speak up, offer ideas, and make things happen, even if their title doesn't explicitly authorize it. A colleague from a culture where seniority determines when and how someone speaks may find this directness unsettling, while Americans working in more hierarchical settings may struggle with the perceived slowness of waiting for approval before acting. Clear role definition is a baseline expectation. Team members look for well-defined responsibilities and specific tasks assigned to each person, with success often tied to individual performance metrics and personal recognition.
+
+Despite the informal tone and encouragement to "just make the call," decision-making still follows clear hierarchy. Key decisions, especially those with legal, financial, or brand risk, often remain with leaders. The most effective team members understand both the freedom and the limits of their scope, and know when to seek alignment and when to escalate upward.

@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+French negotiations sit within a long tradition of social conflict and social dialogue, where collective bargaining, strikes, and public advocacy have shaped how disagreements are expressed and resolved. Even in private business, this history echoes in the way people approach negotiating tables. The conversation is rarely just about numbers. It often invokes values such as fairness, justice, dignity, and respect for professions. A symbolic concession on principle, such as acknowledging a professional concern or honoring a sector norm, can matter more than a large numerical shift. If you focus only on commercial efficiency without explaining why your proposal is fair, you may find your counterpart testing your reasoning against their sense of social responsibility.
+
+French negotiators work within a dense legal framework that includes strong labor law, consumer protections, and sector-specific regulations. Knowing the Code du Travail or relevant regulatory constraints changes the power balance and shapes what is actually negotiable. When your counterpart says something is non-negotiable, it may be rooted in legal, political, or social constraints, not posturing. Prepare by understanding these levers, not only their financial position.
+
+Expect robust pushback and sometimes theatrical language. Interruptions, direct challenges, and analytical dissection of your argument are ways of testing credibility. Respond with structured reasoning and evidence that shows you take the issues seriously. This exchange builds respect. A colleague from a culture where agreement is signaled early and dissent softened may read this as hostility or obstruction. From the French side, rapid consensus without rigorous debate may suggest the proposal has not been properly examined.
+
+Negotiators also assess the *rapport de force*, the balance of power between the parties. This includes who can mobilize support, withstand delay, or influence public or regulatory opinion. Moves are made with this awareness in mind, so timelines may stretch as each side gauges leverage and tests flexibility. When you reach agreement, capture both the practical terms and the shared narrative explaining how the deal protects key principles while enabling progress. That story helps your counterpart defend the outcome internally and publicly.

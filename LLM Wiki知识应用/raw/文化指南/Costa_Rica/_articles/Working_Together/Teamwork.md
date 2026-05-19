@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Costa Rican teams present as friendly and horizontal. People often use first names and usted together, and the language around collaboration emphasises equality. But beneath that surface, informal leaders usually emerge, people whose views hold real influence because of their experience, personality, or technical knowledge. They may say little in the opening rounds of a meeting, but when they do speak, others listen and align. If you are convening a team initiative, it helps to identify these quiet influencers early and bring them into the conversation before formal decisions are made. Their endorsement shapes buy-in more reliably than a manager's instruction.
+
+Disagreement in Costa Rican teams rarely shows up as open debate. Direct confrontation threatens group harmony, and most people prefer to preserve the relational tone of the meeting. Instead, dissent appears as silence, vague agreement, or a shift in energy. The real concerns often surface afterwards, in corridor conversations or through slow follow-through on decisions that were never fully endorsed. A colleague from a culture where vigorous debate signals engagement may read this reticence as passive agreement, while a Costa Rican team member may read that directness as unnecessarily combative. Creating low-risk channels for input, such as smaller breakout groups, anonymous surveys, or one-on-one check-ins, allows concerns to come forward without the risk of public disagreement.
+
+In sectors tied to the environment, tourism, agriculture, or public service, especially outside San José, teams often connect their work to local ecosystems and communities. This is more than corporate social responsibility. It taps into a deep source of pride and identity. Framing team objectives in ways that acknowledge this connection, by linking project outcomes to environmental or community benefit, strengthens motivation in a way that purely commercial goals may not.

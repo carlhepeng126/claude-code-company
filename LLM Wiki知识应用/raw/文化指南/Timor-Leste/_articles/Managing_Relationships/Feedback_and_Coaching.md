@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Giving feedback in Timor-Leste means working within structures of respect shaped by age, position, and relationship. Senior figures—whether elders, managers, or those with formal authority—are typically the ones expected to offer guidance. Younger or more junior colleagues rarely critique upward, even in professional settings. This deference reflects both cultural values and the social cost of appearing disrespectful. When feedback does come from someone senior, it tends to be framed indirectly, often in private, and accompanied by care to preserve the other person's dignity. Blunt critique, even if accurate, risks damaging the relationship and can cause the recipient to withdraw rather than reflect.
+
+Positive recognition works best when offered publicly and sincerely, especially if it acknowledges collective effort rather than singling out one person in a way that might isolate them from the group. Negative feedback, by contrast, should always be delivered one-on-one, framed gently, and ideally softened through indirect language or personal context. A manager might share their own experience of learning something the hard way, allowing the listener to draw the lesson without being explicitly corrected. Formal performance review systems, if introduced without adaptation, can feel impersonal and uncomfortable, particularly where the cultural expectation is for feedback to emerge from relationship rather than process.
+
+For managers from settings where direct, structured feedback is the norm, the indirectness in Timor-Leste may feel slow or unclear. For Timorese professionals working with colleagues who give immediate, unfiltered critique, the tone can come across as harsh or disrespectful, even when no offense is intended. Building in time, privacy, and relational warmth makes feedback more likely to be heard and acted on.

@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Dutch professional dress favours practicality over polish. The cultural preference for equality means that even in senior roles, people avoid flashy brands, expensive accessories, or anything that looks like showing off. Clothes should be clean, intentional, and modest. A well-maintained jacket and neat shoes say more than a designer label. This applies across most sectors, though the degree of formality varies. Finance, law, and government still lean toward business formal, but even there the tone remains understated. Tech, design, and creative industries tend toward smart casual, and in many companies a sports coat and trousers are considered formal enough for most occasions.
+
+Urban areas like Amsterdam or Rotterdam may skew slightly more stylish, but the underlying logic holds: dressing too formally or too expensively can make you stand out in the wrong way. A colleague from a culture where seniority is marked by visible status symbols might read Dutch understatement as a lack of ambition or authority. Meanwhile, a Dutch professional might view ostentatious dress as a sign that someone values appearance over substance, or worse, that they are trying to position themselves above their peers.
+
+Don't assume that casual dress means junior rank. Senior managers often dress down deliberately to blend in rather than stand apart. This means you may need to rely on other cues to read hierarchy, and it also means that matching the formality of the room is a safer choice than overdressing. If you're unsure, asking ahead is entirely acceptable. Weather-proofing your outfit with rain gear or layers is seen as sensible, not unprofessional.

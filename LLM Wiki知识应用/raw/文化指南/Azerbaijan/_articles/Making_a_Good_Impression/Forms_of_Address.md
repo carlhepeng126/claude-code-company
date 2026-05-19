@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Starting with a formal approach is wise in Azerbaijan, particularly in first meetings. Using surname with a title — "Mr" or "Ms" in Russian or English, or the Azerbaijani *bəy* (for men) or *xanım* (for women) — shows respect for hierarchy and social standing. Yet formality often softens faster than in many cultures where structured distance persists. Once rapport is felt, many Azerbaijani colleagues move comfortably to first names, though the shift is theirs to signal. A colleague from a culture where first names are standard from the outset may read the initial formality as stiff or guarded, while an Azerbaijani counterpart may read immediate informality as shallow or presumptuous.
+
+Even after first names are in use, respect is still expressed through tone, listening, and who speaks first. Age and seniority shape how people interact in ways that titles alone don't capture. Challenging an older person directly, even with polite language, can feel disrespectful. Observing how junior colleagues address senior ones — the mix of warmth and deference — offers a practical guide for how to combine familiarity with respect in your own exchanges.
+
+Language choice quietly reflects generational and class divides. Older professionals often prefer Russian or Azerbaijani for serious discussions, while younger urban colleagues may be more comfortable in English. Ask which language people prefer for meetings and written documents rather than assuming English is always welcome, even when it's spoken fluently. The choice can affect not just clarity but also whose voice feels most confident in the room.

@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in South Africa is often warm and generous, but it unfolds across many different social worlds. A braai (barbecue) at someone's home, a corporate restaurant meal, or drinks after a sports event each follow different cues around formality, alcohol, gender roles, and who speaks when. What works in one setting may feel misplaced in another, so it helps to take direction from the host and notice the tone before settling in. Across these variations, the goal is usually the same: to create space where people can relax, show who they are, and build trust beyond the transaction.
+
+Hospitality often includes a protective quality. Because safety and inequality are everyday realities for many South Africans, hosting can involve careful thought about where people are meeting, how they'll get home, and whether they're comfortable in the space. This attention is experienced as care, not caution. If you're hosting, offer clear transport arrangements, avoid leaving international colleagues to navigate unfamiliar areas alone, and check in discreetly if someone seems uncertain. If you're a guest, recognize that these gestures reflect real concern, and respond with appreciation rather than reassurance that you'll manage.
+
+South African social time can be both light and serious. Humor, music, and relaxed conversation sit alongside strong unspoken lines around respect, dignity, and identity, particularly across race, class, and nationality. Avoid insider jokes about identity, don't assume everyone drinks, and make sure dietary needs and language comfort are quietly accommodated. Let conversation widen beyond the deal, but stay alert to the boundaries people signal. Authentic warmth builds trust faster than trying to impress.

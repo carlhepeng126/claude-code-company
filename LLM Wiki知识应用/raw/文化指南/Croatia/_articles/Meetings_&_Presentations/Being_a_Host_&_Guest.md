@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+An invitation to someone's home in Croatia marks a real shift in the relationship. Homes are prepared with care, often with hours spent baking, cleaning, and setting the table. Declining such an invitation without a strong reason can be read as a personal rejection, so if you accept, commit the time and arrive ready to engage fully rather than treating it as something to fit between other commitments.
+
+You are likely to meet three generations around the table: grandparents, parents, children, sometimes a cousin who has just returned from working in Germany. Conversation may move from the village to wartime memories, football, and family news. For older Croatians especially, these stories connect past survival, work abroad (gastarbajter experiences), and present identity. Listening well and asking genuine questions about the family's history shows respect and deepens trust in a way that polite small talk cannot.
+
+The home is where propuh (draft) etiquette becomes most visible. You may be offered socks, asked to move seats, or handed a cardigan, even if you feel fine. These small rituals are how older generations express care and household competence. Follow their lead on windows and layers rather than explaining that you are comfortable or dismissing the concern. Bring a modest, thoughtful gift such as good wine, chocolates, or something from your own country. Focus your compliments on the effort, the food, and the warmth of the hospitality, not on how expensive or simple the home appears. Effusive remarks about cost can provoke embarrassment or competitive modesty that shifts the tone.

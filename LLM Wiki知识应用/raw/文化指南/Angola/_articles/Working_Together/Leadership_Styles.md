@@ -1,0 +1,11 @@
+# Leadership Styles
+
+## Working Together
+
+Angolan leadership draws its logic from decades of war and single-party rule, where senior figures learned to command, protect, and negotiate scarce resources. Many leaders still operate in a patron-client mode: they place allies, allocate contracts, and secure benefits for those under their care. This reflects a moral universe shaped by struggle and survival, where a leader's role is to deliver for their people and maintain networks of obligation that extend to veterans, family, and party structures. What looks like favoritism to an outsider often registers locally as loyalty and responsibility fulfilled.
+
+Physical presence carries real weight. A leader who visits a flooded neighborhood, attends a veteran's funeral, or travels to a remote province builds legitimacy that spreadsheets cannot. These acts show commitment and care in ways that matter deeply in a context where trust is built through visibility and personal connection. If you are proposing a project to senior leaders, framing it only around efficiency or cost savings may fall flat. Show how the initiative creates visible success they can point to, communities they can visit, and stories that reflect well on their leadership.
+
+Younger and diaspora leaders often bring a different style, blending global corporate language with local realities. They may talk governance and KPIs in the boardroom, but still rely on kin and party networks to get things done. This is not contradiction but pragmatism. For these reformist figures, external partnerships work best when they strengthen both upward credibility and downward delivery, allowing them to show impact to superiors while demonstrating care for staff and communities.
+
+If you lead Angolan staff, expect to be judged not just on technical skill but on how well you protect and advocate for them when things get difficult. Leadership in Angola is relational and protective. Decisions that sidestep obligations to people will seem irrational or cold, no matter how sound the business case.

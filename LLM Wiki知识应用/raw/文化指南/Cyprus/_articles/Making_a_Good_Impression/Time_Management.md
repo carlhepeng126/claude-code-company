@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Cyprus operates on two tracks. In sectors closely linked to international business, such as shipping, finance, and tourism, schedules hold firm and deadlines are met as a matter of professional credibility. Punctuality here signals commitment and competence, especially when global partners are involved. But in family businesses, government offices, and small enterprises where relationships are central, time is more pliable. Meetings may begin after coffee and conversation, and decisions often wait for the right relational moment rather than following a predetermined schedule.
+
+This flexibility reflects a deeply relational culture where trust and personal connection shape professional life. Rushing through a meeting or skipping social preliminaries can feel transactional and cold. A colleague from a culture where decisions are made quickly and meetings follow tight agendas may read this as inefficiency or avoidance. From a Cypriot perspective, the time spent building rapport is productive, not peripheral. It ensures that agreements rest on mutual understanding, which makes implementation smoother and more durable.
+
+Regional and generational differences add nuance. In Nicosia and Limassol, especially among younger professionals in multinationals, punctuality is more consistently observed. In smaller towns and rural areas, and among older business owners, the rhythm is slower and more event-driven than clock-driven. When working across these contexts, confirm expectations early. If a meeting is scheduled for 10 a.m., clarify whether that means the start of conversation or the start of coffee. Build buffer time into your planning, and use the informal opening not as dead time but as the foundation for everything that follows.

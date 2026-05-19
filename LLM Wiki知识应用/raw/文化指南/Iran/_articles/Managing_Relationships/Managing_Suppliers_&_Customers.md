@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Many Iranian suppliers are family businesses whose founders traded through revolution, war, and successive sanctions. These firms remember which partners stayed visible during the 2012 banking blockade and which disappeared. When a supplier says a buyer "didn't abandon us," that history becomes part of the commercial calculus. Loyalty demonstrated during crisis earns multigenerational reciprocity, and a relationship built over years will often outlast disruptions that would end a purely transactional arrangement elsewhere.
+
+In sectors like construction, energy, and infrastructure, your customer may be a semi-state foundation, a ministry, or an entity linked to the Islamic Revolutionary Guard Corps. Each has distinct procurement rhythms, internal approvals, and people who hold informal veto power but appear nowhere on an organizational chart. Treating these customers as a single interchangeable "government" misses how they actually operate. Understanding the institutional personality of each one, and adapting to their specific approval choreography, determines whether a contract moves forward or stalls indefinitely.
+
+Because of sanctions, many supplier relationships run through companies registered in Dubai, Istanbul, or the Caucasus, blending Iranian ownership with foreign jurisdiction. These triangle arrangements require partners who understand both Iran's operating constraints and international compliance regimes. Being cavalier about either will end the relationship quickly. Similarly, in a grey market where corners are often cut, a supplier known for delivering correct specifications and fixing mistakes at their own expense becomes irreplaceable. Making quality and after-sales support visible and personal, framed as a matter of personal commitment rather than warranty language alone, connects to a bazaar ethic where reputation and honor still shape commercial life.

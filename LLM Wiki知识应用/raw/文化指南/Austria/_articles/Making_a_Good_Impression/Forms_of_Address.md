@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Titles in Austria are used extensively and with purpose. "Herr Doktor," "Frau Magister," "Herr Ingenieur" appear on business cards, email signatures, and office doors as standard professional markers. Academic and professional qualifications are expected forms of address in meetings, correspondence, and introductions. This reflects a Habsburg inheritance in which rank, title, and correct form structured an empire managing multiple ethnic groups. Accurate address was then, and remains now, evidence that you take the relationship seriously. Getting a title wrong reads as carelessness, while using it correctly positions you as someone who has prepared and who understands how respect is shown.
+
+The boundary between "Sie" (formal you) and "Du" (informal you) is linguistic but also social. The shift to "Du" and first names is always offered by the more senior or older person, often after years of working together. In some sectors like media or IT, the move happens more quickly, but in most professional settings the assumption is formality unless otherwise invited. Moving to "Du" uninvited feels presumptuous and can unsettle the relationship, even if the other person does not say so directly.
+
+For colleagues from workplaces where first names and informality are the default from day one, this formality can feel distant or unnecessarily rigid. From the Austrian side, immediate informality can appear as a lack of seriousness or an attempt to force closeness before it has been earned. In written communication, the same formality applies. Use titles in emails, and retain "Sie" until the switch is explicitly made in person or in writing.

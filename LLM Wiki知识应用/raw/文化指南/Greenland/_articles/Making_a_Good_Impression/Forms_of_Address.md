@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Greenlandic professional culture blends a deep egalitarian ethos with practical informality shaped by small-community life, where most people know each other through extended family, work, or shared public services. First names are used almost immediately in most workplace settings, even with senior colleagues or clients. This reflects both the cultural preference for equality and the reality that maintaining formal distance becomes unworkable when colleagues regularly meet outside the office, whether at the supermarket, in community gatherings, or through family connections. Titles such as "Mr." or "Ms." are rare and can feel awkward or overly stiff, though professional designations like "Doctor" may be used in healthcare or academic contexts where precision about role is needed.
+
+The informality is genuine, but it does not erase hierarchy. A manager is still a manager, and a government official still holds authority. The difference is that respect is shown through tone, attentiveness, and the quality of listening rather than through formal address. A colleague from a culture where titles and surnames are essential markers of respect may interpret the quick shift to first names as a lack of seriousness or unclear boundaries. From the Greenlandic perspective, clinging to formal address in a small, interconnected workplace can come across as distancing or unnecessary.
+
+In written communication, especially with government bodies or in official documentation, a slightly more formal register may appear, but even here the tone remains relatively straightforward. Use the person's first name unless they explicitly introduce themselves otherwise, and match the level of formality you receive in return.

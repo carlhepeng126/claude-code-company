@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Nigerian audiences respond to presenters who combine clarity with warmth and social intelligence. Confidence matters, but it needs to be tempered with respect, particularly toward senior figures or elders in the room. Authority is read through how you hold the room while still honouring others' dignity. A presenter who appears too self-assured without acknowledging the status of others can lose credibility quickly. The goal is to be composed and direct without flattening the hierarchy. Acknowledge key figures early, even if briefly, and let that deference sit alongside the substance of your message.
+
+Storytelling, vivid examples, and narrative structure often build persuasion more effectively than abstract logic alone. Many Nigerians communicate meaning through lived scenes, humour, and sometimes proverb-like framing. A message grounded in a concrete story can feel more credible than a list of claims. This doesn't mean sacrificing precision, but it does mean recognizing that seriousness can arrive through narrative as much as through data. If you're presenting technical material, consider anchoring it to a real-world scenario that your audience can picture. This makes the content more memorable and easier to discuss afterward.
+
+The room is status-aware, and people notice who is acknowledged, who is credited, and how senior figures are treated. This shapes what people are willing to ask publicly. Questions may emerge more freely in smaller settings or after the formal presentation, where the social risk is lower. Allow time for this kind of follow-up, and treat it as part of the presentation itself. Complete silence doesn't always mean agreement. It can signal that something hasn't landed, or that people are waiting to see how others respond before speaking.
+
+Language choices also shape inclusion. English serves as the formal bridge, but local language touches can signal belonging. At the same time, switching into a language some attendees don't follow can create an inner circle. If you code-switch, summarize the key point in English so no one is left outside the conversation.

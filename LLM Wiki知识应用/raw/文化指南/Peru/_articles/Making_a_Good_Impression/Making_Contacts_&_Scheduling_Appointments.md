@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Peru, access to professional networks often follows the grain of personal connection and shared origin. Many business circles were shaped by waves of internal migration, especially from highland provinces to Lima, and people today still locate each other through hometown ties, alumni circles, extended family, or neighbourhood networks. Asking where someone is from is a trust-locating question, and it functions as a way to find common ground before a professional relationship begins. Working through a mutual contact or local intermediary matters because credibility travels through these lived networks, and an introduction from someone trusted carries more weight than a cold approach.
+
+Initial correspondence should be in Spanish. Messages sent in English may be answered later or not at all, particularly outside multinational companies. Arrange meetings several weeks in advance, and reconfirm a week before and again the day before. Do not arrive unannounced. Peruvians appreciate structure and advance notice, but timelines remain flexible once a relationship is in motion. A morning meeting may extend into lunch, so avoid scheduling back-to-back appointments. If you're working across language or regional differences, invite people to set the channel and pace rather than assuming one style will fit all settings.
+
+Early conversation that feels relational, such as a few exchanges about mutual contacts or place of origin, helps establish safety before the ask. This reflects a broader cultural logic rooted in reciprocity. In Andean-derived contexts, trust accumulates through repeated exchanges over time rather than quick judgments, so the first interaction is less about closing a deal and more about beginning a record of reliability. Treat this as essential groundwork, not a formality to be minimized.

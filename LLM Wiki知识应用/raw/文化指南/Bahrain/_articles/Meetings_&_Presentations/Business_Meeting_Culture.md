@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+In Bahrain, the formal meeting is only one chapter of a decision story that often unfolds across multiple settings. The real sense-check frequently happens later that night in a *diwaniya* (a traditional social gathering, often held in a separate room of a home), where cousins, political friends, or respected elders weigh in. The polished PowerPoint and the glass-walled conference room set the stage, but the ultimate green light or veto often comes from quieter conversations afterward. If you treat the meeting as the final arena, you risk missing where the real deliberation takes place. Ask local allies where follow-up conversations are likely to happen, and recognize that building trust outside the boardroom is as important as what you present inside it.
+
+Authority does not always sit with the person leading the discussion. A younger, English-fluent manager may chair the meeting, but an older uncle, shareholder, or ministry contact quietly seated at the end of the table can hold the real decision power. Bahrainis read this instantly through greetings, seating, and who people turn to before answering. Outsiders can miss it entirely. Watch these cues closely. The person who speaks least may be the one whose opinion counts most.
+
+The length of the greeting, the insistence on coffee and sweets, and whether people stay seated after your presentation all offer quiet signals. If everyone stands up immediately, decisions will likely be taken elsewhere. Because Bahrain's business community is small and relationships are long-term, people avoid sharp confrontation in the room. You may hear, "Good ideas, we will consider," even when the real reaction is, "This doesn't fit us at all." Don't bank on verbal enthusiasm alone. Look for concrete next steps like data requests, introductions, or the naming of an internal champion as the true signs of traction.

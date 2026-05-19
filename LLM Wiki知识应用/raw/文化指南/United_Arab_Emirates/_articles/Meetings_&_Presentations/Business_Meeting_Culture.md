@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Even in corporate towers, meetings borrow from the traditional *majlis* (a council or gathering space where people convene to discuss matters and share hospitality). Greet everyone present, allow time for coffee, and expect a few minutes of informal talk before the agenda begins. Rushing straight into slides or spreadsheets can feel abrupt. This opening period builds the relational foundation that makes everything that follows more effective.
+
+In many organizations, everyone watches the most senior Emirati or family member in the room. Others may contribute technical points or detail, but few will line up publicly against that person's position. You will often see multi-layered participation: Emirati seniors set direction and handle relational framing, while expatriate specialists manage technical detail and junior Emirati staff observe and learn. Direct your respect markers and strategic points toward the senior Emirati, even if an expatriate executive is formally chairing. Prepare narrative and vision answers for Emirati leaders and technical depth for expat managers in the same session.
+
+Key concerns, doubts, or requests frequently surface before or after the formal meeting in corridor conversations, over coffee, or via WhatsApp, rather than in the main discussion. A colleague accustomed to airing all disagreement in the meeting room may misread this as indirectness; an Emirati counterpart may view open dissent in front of the group as disrespectful. Stay available after the session closes. Real feedback or conditions often emerge there, not around the boardroom table.

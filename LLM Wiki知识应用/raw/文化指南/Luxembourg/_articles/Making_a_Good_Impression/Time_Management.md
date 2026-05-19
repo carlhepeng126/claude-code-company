@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Luxembourg's working day is shaped by movement. Nearly half the workforce crosses a border each morning, and the city's rhythm follows commuting flows, road capacity, and the practical limits of distance. Meeting start times often cluster around this reality. If you schedule early or late without checking travel constraints, you may find colleagues unavailable not because they are inflexible, but because their day is anchored to a transit system shared by three countries.
+
+Time is approached sequentially and seriously. People give their attention to one thing at a time, expecting others to do the same. Interrupting a meeting or shifting focus midway through a task reads as inefficiency, not multitasking. Agendas function as agreements. If a meeting is set for 10 a.m., it begins at 10 a.m., and if a deadline is given, it is expected to be met. A colleague from a culture where timelines shift more fluidly may read this as rigidity; from a Luxembourg perspective, the reverse can feel unreliable or disrespectful of other people's planning.
+
+That said, working life does not overflow its banks. Long hours are common, but breakfast meetings or late evening calls to demonstrate commitment are not. Personal time is protected, and the boundary between work and home is clearly marked. When cultural or civic rhythms arrive, such as the Octave pilgrimage in spring or the Schueberfouer fair in late summer, attention in the capital shifts noticeably. These are not holidays, but they reshape availability and the informal tempo of the city for the weeks they run.

@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Most Egyptians are practised negotiators. Years of bargaining over taxi fares, market prices, and services make anchoring high and moving slowly a familiar pattern. A first offer is rarely expected to be accepted. What can read as an unreasonable opening position is simply the start of a back-and-forth that many Egyptians approach with good humor and strategic intent. Coming in with your best terms at the outset can signal inexperience or leave you with nothing to trade. Build in room to negotiate, and expect the process to take time.
+
+Pushing for a quick decision weakens your position. Egyptians may circle back to points you thought were settled, or introduce a new concern just when agreement seemed close. This is how both sides test flexibility and make sure the deal feels fair. A "yes" often means "possibly," and anything vague, such as "we will see" or "it may be possible," usually means no. Direct refusal would risk causing you to lose face, so responses stay indirect. Read the tone and the silences, and look for the most senior person in the room, who may say the least.
+
+Reputation travels quickly through *wasta* networks, and counterparts are watching for signs of fairness. A negotiator who drives too hard a bargain at the expense of Egyptian workers or communities risks being labelled *bakhil* (stingy) or *betla'ab 'ala el-nās* (playing people). Many Egyptians have seen deals that looked like giveaways to foreign or elite interests, and they may test whether you're genuinely invested in local benefit or simply another extractive outsider. Put jobs, training, and supplier development on the table early, and show you understand the difference between public relations projects and real commitment. Once agreement is reached, resist clawing back value through small-print adjustments. That will end the relationship before it begins.

@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Addressing someone well in Uganda means recognizing who they are in relation to you. Age, professional qualification, and recognized social standing shape how you open a conversation, whether you're meeting a colleague for the first time or reconnecting after weeks apart. Titles like "Mr.," "Mrs.," "Doctor," or "Professor" should be used with the person's surname until you're invited to shift. Education and formal credentials are taken seriously, and your business card should reflect them accurately. In a society where hierarchy runs deep, these markers help people understand where they stand with one another.
+
+Greetings do more than signal politeness. They reaffirm that the relationship is intact and that you recognize the other person's presence and position. This is why they may take longer than colleagues from more task-focused cultures expect. For someone from a workplace where efficiency means moving quickly to content, the extended greeting can feel like a delay. For many Ugandans, skipping it can feel abrupt or dismissive, as though the relationship itself has been downgraded. Standing when you greet someone senior, using a softer tone, and asking "how are you?" are all part of that relational work.
+
+The right register often depends on context. In urban or younger professional circles, interactions may be more informal, faster-paced, and laced with humor. In more traditional or formal settings, a calmer tone, indirectness, and visible deference signal seriousness and respect. If you're uncertain, begin with the more respectful register and let the other person set the pace toward informality. Misjudging the tone early, especially across age or status gaps, can be difficult to recover from later.

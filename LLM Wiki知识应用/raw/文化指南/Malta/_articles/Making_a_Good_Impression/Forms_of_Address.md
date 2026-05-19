@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Maltese professionals typically begin business relationships with formal titles like Mr. or Mrs., paired with the last name. This initial formality reflects the importance of showing respect in early interactions, particularly when hierarchy or seniority is involved. However, the shift to first names often happens quickly, sometimes within the first few meetings, as relationships develop. Malta's strong relational orientation means that once a working relationship begins to form, maintaining excessive formality can feel distant or overly stiff.
+
+The challenge for international colleagues lies in knowing when to make that shift. In cultures where titles and last names are maintained throughout a professional relationship, the Maltese move to first names may feel premature or too casual. From the Maltese perspective, continuing with formal titles after rapport has been established can come across as unnecessarily cold or as a signal that the relationship is not progressing. The practical solution is to ask. Checking in with your counterpart about their preferred form of address avoids the discomfort of guessing and shows awareness of the relational tone they are setting.
+
+Once first names are in use, the tone of communication tends to warm noticeably. This shift is less about hierarchy dissolving and more about the relationship moving into a space where collaboration feels more natural. If your counterpart introduces themselves by first name or signs off that way in email, it is usually an invitation to reciprocate. Waiting too long after that point may create a subtle awkwardness, as if you are holding the relationship at arm's length.

@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Eswatini succeed when they balance formality with relationship. The country's strong hierarchical culture means your audience will be attuned to how you address seniority and whether you show proper respect to the most senior person in the room. Open by acknowledging their role and experience, even briefly. This frames the interaction appropriately and signals that you understand the social structure you're working within. A presentation that jumps straight into data without acknowledging who holds authority can feel abrupt or even dismissive.
+
+Tone should be respectful but warm. Swazis value humility and communal connection, so avoid aggressive persuasion or language that positions you as an expert delivering answers. Instead, frame your content as something offered for consideration, shaped by collaboration. A colleague from a culture where directness and individual achievement are emphasized might interpret this style as vague or overly cautious, while a Swazi presenter working in such an environment may feel their humility is being mistaken for lack of confidence. Both are reading the other through their own cultural norms around authority and assertion.
+
+Pacing matters more than polish. Allow time for your message to be absorbed, and don't mistake silence for disengagement. Swazis may take time to reflect before responding, particularly in hierarchical settings where junior colleagues will defer to senior voices. If you rush to fill pauses or press for immediate feedback, you may cut off the very input you're seeking. Follow-up conversations after the presentation are common and often where the most candid responses surface, particularly if someone wishes to clarify a point without speaking up in front of others.

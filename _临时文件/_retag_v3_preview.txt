@@ -1,0 +1,1692 @@
+[DRY RUN] scanning...
+
+  index.md
+    old: type/索引, 知识管理
+    new: type/索引, 知识管理
+    title=Untitled  maturity=tree
+  log.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=tree
+  tag-index.md
+    old: type/索引, 知识管理
+    new: type/索引, 知识管理
+    title=标签全景索引  maturity=tree
+  comparisons/企业出海用工环境区域对比.md
+    old: 人才, 出海, 合规
+    new: type/对比, 人才管理, 出海战略, 合规风控, 属地化
+    title=企业出海用工环境区域对比  maturity=tree
+  comparisons/企业培训体系方法论对比.md
+    old: type/对比, 知识管理
+    new: type/对比, 知识管理
+    title=企业培训体系方法论对比  maturity=tree
+  comparisons/出海跨文化培训需求区域对比.md
+    old: 出海, 跨文化
+    new: type/对比, 出海战略, 跨文化
+    title=出海跨文化培训需求区域对比  maturity=tree
+  comparisons/央企出海外语培训模式对比.md
+    old: 出海, 央企
+    new: type/对比, 出海战略, 语言培训, 央企
+    title=央企出海外语培训模式对比  maturity=tree
+  concepts/Act-Note-System.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=ACT 笔记系统  maturity=tree
+  concepts/act.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=ACT 笔记系统 — 个人知识管理方法论  maturity=tree
+  concepts/ai-in-learning-development-framework.md
+    old: AI
+    new: type/模型, AI赋能
+    title=AI在学习发展中的应用框架  maturity=tree
+  concepts/ai.md
+    old: AI
+    new: type/模型, AI赋能, 语言培训
+    title=AI语音赋能外语培训场景  maturity=tree
+  concepts/central-asia-enterprise-overseas-ladder-model.md
+    old: 出海, 区域/中亚
+    new: type/模型, 出海战略, 区域/中亚
+    title=中亚中资企业出海阶梯模型  maturity=sapling
+  concepts/central-soe-international-talent-policy-framework.md
+    old: type/模型, 人才管理, 行业洞察, 央企
+    new: type/模型, 人才管理, 行业洞察, 央企
+    title=央企国际化人才政策与趋势框架  maturity=tree
+  concepts/communication-full-stack.md
+    old: 跨文化
+    new: type/模型, 人才管理, 谈判沟通, 跨文化
+    title=涉外沟通胜任力全栈（Communication Full-Stack） [[涉外沟通胜任力全栈|涉外沟通胜任力全栈]]  maturity=tree
+  concepts/corporate-training-industry-trends-methodology.md
+    old: AI, 人才
+    new: type/模型, AI赋能, 人才管理, 知识管理, 行业洞察
+    title=企业培训行业趋势与方法论  maturity=tree
+  concepts/counterintuitive-decision-making-methodology.md
+    old: 谈判, 跨文化
+    new: type/模型, 知识管理, 谈判沟通, 跨文化
+    title=反直觉决策方法论  maturity=sapling
+  concepts/cross-cultural-communication-four-stage-model.md
+    old: 跨文化
+    new: type/模型, 谈判沟通, 跨文化
+    title=跨文化沟通四阶段模型  maturity=sapling
+  concepts/cross-cultural-communication-full-stack.md
+    old: 跨文化
+    new: type/模型, 人才管理, 谈判沟通, 跨文化
+    title=涉外沟通胜任力全栈（Communication Full-Stack）  maturity=sapling
+  concepts/cross-cultural-communication-os-model.md
+    old: 跨文化, 领导力
+    new: type/模型, 谈判沟通, 跨文化, 领导力
+    title=跨文化沟通操作系统模型  maturity=tree
+  concepts/cross-cultural-communication-three-stage-model.md
+    old: AI, 跨文化
+    new: type/模型, AI赋能, 谈判沟通, 跨文化
+    title=跨文化沟通三阶段递进模型  maturity=sapling
+  concepts/cross-cultural-negotiation-trust.md
+    old: 谈判, 跨文化
+    new: type/模型, 谈判沟通, 跨文化
+    title=跨文化谈判中的信任建立 (Cross-Cultural Negotiation Trust)  maturity=tree
+  concepts/cross-region-investment-entry-guide.md
+    old: type/模型, 出海战略
+    new: type/模型, 知识管理
+    title=跨区域投资布局概念：全球市场进入路径对比指南  maturity=tree
+  concepts/cross-region-training-demand-matrix.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=cross-region-training-demand-matrix  maturity=tree
+  concepts/cultural-bridge-person.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title="文化桥接者"角色概念 (Cultural Bridge Person)  maturity=tree
+  concepts/deep-extraction-methodology.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=深度学习萃取方法论  maturity=tree
+  concepts/effective-presenter-formula.md
+    old: 跨文化
+    new: type/模型, 谈判沟通, 跨文化
+    title=高效演示：商业演讲的制胜公式  maturity=tree
+  concepts/engineering-words-clear-workplace-communication.md
+    old: 跨文化
+    new: type/模型, 语言培训, 谈判沟通, 跨文化
+    title=工程语言：在职场中清晰沟通的技术与艺术  maturity=tree
+  concepts/enterprise-negotiation-capability-framework.md
+    old: 出海, 谈判, 跨文化
+    new: type/模型, 出海战略, 谈判沟通, 跨文化
+    title=企业涉外商务谈判能力框架  maturity=tree
+  concepts/epc.md
+    old: type/模型, 出海战略, 谈判沟通, 央企
+    new: type/模型, 出海战略, 央企
+    title=海外EPC项目管理能力模型  maturity=tree
+  concepts/four-step-people-reading.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=四段识人法  maturity=sapling
+  concepts/franchisee-selection-funnel.md
+    old: 出海
+    new: type/模型, 人才管理, 出海战略
+    title=🧪 持牌人选拔漏斗模型  maturity=sapling
+  concepts/global-headquarters-synergy-model.md
+    old: 出海, 领导力
+    new: type/模型, 出海战略, 领导力
+    title=全球化总部协同赋能五维模型  maturity=sapling
+  concepts/global-operation-strategy-framework.md
+    old: 出海
+    new: type/模型, 出海战略
+    title=出海战略赋能框架：从"产品出口"到"全球运营"  maturity=tree
+  concepts/how-to-talk-to-anyone-about-any-topic.md
+    old: 跨文化
+    new: type/模型, 谈判沟通, 跨文化
+    title=如何与任何人聊任何话题：从闲聊到深度连接的沟通艺术  maturity=tree
+  concepts/hw-pm-way.md
+    old: type/模型, 知识管理, 民企
+    new: type/模型, 知识管理, 民企
+    title=华为项目管理之道 🎯  maturity=tree
+  concepts/iai-hidden-barriers-framework.md
+    old: AI
+    new: type/模型, AI赋能, 出海战略
+    title=IAI框架：海外建厂隐性壁垒识别与突破  maturity=sapling
+  concepts/industry-talent-training-case-collection.md
+    old: type/模型, 人才管理, 出海战略, 跨文化
+    new: type/模型, 人才管理, 跨文化
+    title=行业人才培养实践案例集  maturity=tree
+  concepts/intel-verification-system.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=情报虾 · 情报验证体系  maturity=sapling
+  concepts/Intelligence-collection-pipeline.md
+    old: type/模型, 知识管理, 行业洞察
+    new: type/模型, 知识管理
+    title=情报搜集链路设计  maturity=tree
+  concepts/international-engineering-capability-model.md
+    old: 人才, 出海
+    new: type/模型, 人才管理, 出海战略
+    title=国际工程管理人才能力模型  maturity=tree
+  concepts/international-engineering-talent-framework.md
+    old: type/模型, 人才管理
+    new: type/模型, 人才管理
+    title=涉外工程人才能力模型与培训体系框架  maturity=tree
+  concepts/international-talent-trends-training-framework.md
+    old: 人才, 信号, 出海
+    new: type/模型, 人才管理, 出海战略, 行业洞察
+    title=国际化人才趋势与培养框架  maturity=tree
+  concepts/knowledge-base-ai-rollout.md
+    old: type/模型, AI赋能, 知识管理
+    new: type/模型, AI赋能, 知识管理
+    title=知识库建设 + AI工具推广  maturity=sapling
+  concepts/knowledge-management-tool-division-philosophy.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=知识管理工具分工哲学（播种vs耕耘）  maturity=sapling
+  concepts/knowledge-shrimp.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=知识虾 — 知识库核心大脑  maturity=sapling
+  concepts/latin-america-cross-cultural-distortion-model.md
+    old: 区域/拉美, 跨文化
+    new: type/模型, 谈判沟通, 跨文化, 区域/拉美
+    title=拉美跨文化沟通三类失真模型  maturity=sapling
+  concepts/learning-books-collection.md
+    old: type/模型, 跨文化
+    new: type/模型, 跨文化
+    title=学习书籍概念合集 — 培训/国际化/跨文化相关  maturity=sapling
+  concepts/localization-complete-vs-hybrid.md
+    old: 属地化
+    new: type/模型, 属地化
+    title=完全本土化vs混合管理模式 (Localization Complete vs Hybrid)  maturity=tree
+  concepts/localization-responsibility-matrix.md
+    old: 属地化
+    new: type/模型, 属地化
+    title=🌐 属地化权责矩阵模型  maturity=sapling
+  concepts/mcdonalds-hamburger-university-training-system.md
+    old: type/模型, 人才管理
+    new: type/模型, 人才管理
+    title=🦐 大创业家深读笔记 — 企业国际化人才培养视角  maturity=tree
+  concepts/morgan-training-methodology-framework.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=摩根世纪核心方法论框架  maturity=tree
+  concepts/multinational-organization-language-os-model.md
+    old: 工具, 跨文化, 领导力
+    new: type/模型, 出海战略, 语言培训, 跨文化, 领导力
+    title=跨国组织语言操作系统模型  maturity=sapling
+  concepts/od-seven-abilities.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=OD七项全能  maturity=sapling
+  concepts/opencli-signal-pipeline.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=OpenCLI 信号萃取管道  maturity=sapling
+  concepts/overseas-enterprise-trust-structure.md
+    old: 人才, 跨文化
+    new: type/模型, 人才管理, 出海战略, 跨文化
+    title=出海企业信任结构三要素  maturity=sapling
+  concepts/overseas-hr-management-panorama.md
+    old: 人才, 出海, 合规, 跨文化
+    new: type/模型, 人才管理, 出海战略, 合规风控, 跨文化
+    title=出海人力资源管理全景  maturity=tree
+  concepts/overseas-hr-service-guide-2026.md
+    old: type/模型, 人才管理, 出海战略, 合规风控
+    new: type/模型, 人才管理, 出海战略
+    title=2026企业出海人力资源服务指南  maturity=tree
+  concepts/overseas-pitfall-avoidance-eight-traps.md
+    old: 出海
+    new: type/模型, 出海战略, 央企
+    title=出海避坑体系：中国企业全球化的八大坑  maturity=tree
+  concepts/overseas-practice-cross-cultural-training-philosophy.md
+    old: type/模型, 出海战略, 跨文化
+    new: type/模型, 出海战略, 知识管理, 跨文化
+    title=出海实践论——跨文化培训的哲学方法论  maturity=sapling
+  concepts/project-background-analysis-sop.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=项目背景分析与方案设计SOP（问答式 v2.4-2.5）  maturity=tree
+  concepts/project-meeting-facilitator.md
+    old: 跨文化
+    new: type/模型, 谈判沟通, 跨文化
+    title=项目会议促进：从浪费时间到高效产出  maturity=tree
+  concepts/project-proposal-format-guide.md
+    old: type/模型, 知识管理
+    new: type/模型, 语言培训
+    title=摩根英语项目方案行文格式规范  maturity=sapling
+  concepts/sdbe-leading-model.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理, 民企
+    title=SDBE领先模型（华为闭环战略管理）  maturity=tree
+  concepts/signal-daily-clam.md
+    old: AI
+    new: type/模型, AI赋能, 出海战略
+    title=出海日报信号系统  maturity=sapling
+  concepts/signal-trends-summary-2026-05.md
+    old: 信号
+    new: type/模型, 行业洞察
+    title=信号趋势摘要（2026-05-06 ~ 2026-05-07）  maturity=sapling
+  concepts/singapore-enterprise-entry-compliance-guide.md
+    old: 出海, 区域/东南亚, 合规
+    new: type/模型, 出海战略, 合规风控, 区域/东南亚
+    title=新加坡中企准入合规指南 (Singapore Enterprise Entry Compliance Guide)  maturity=sapling
+  concepts/situational-crisis-communication-theory.md
+    old: type/模型, 出海战略
+    new: type/模型, 出海战略
+    title=情境危机传播与海外危机管理 🔥  maturity=tree
+  concepts/small-talk-mastery.md
+    old: 跨文化
+    new: type/模型, 跨文化
+    title=闲聊的艺术：从破冰到深度连接  maturity=tree
+  concepts/social-style-matrix.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=社交风格矩阵 (Social Style Matrix)  maturity=tree
+  concepts/soe-overseas-talent-competency-model.md
+    old: 人才, 出海, 央企
+    new: type/模型, 人才管理, 出海战略, 央企
+    title=央企出海人才能力五维模型  maturity=tree
+  concepts/soe-report-insights.md
+    old: 人才, 出海, 央企
+    new: type/模型, 人才管理, 出海战略, 行业洞察, 央企
+    title=国资报告政策风向与国际化洞察  maturity=sapling
+  concepts/soe-training-program-system.md
+    old: 人才, 培训, 央企
+    new: type/模型, 人才管理, 语言培训, 央企
+    title=央企培训方案体系  maturity=tree
+  concepts/structured-expression-confidence-training.md
+    old: type/模型, 谈判沟通
+    new: type/模型, 谈判沟通
+    title=结构化表达与自信沟通培训体系  maturity=tree
+  concepts/structured-strategic-thinking.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=结构化战略思维  maturity=sapling
+  concepts/three-tier-training-model.md
+    old: 人才
+    new: type/模型, 人才管理
+    title=🧠 三阶递进培训模型  maturity=sapling
+  concepts/training-evaluation-framework.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=培训效果评估框架  maturity=tree
+  concepts/training-program-design-framework.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=方案设计指导框架  maturity=tree
+  concepts/training-program-design-methodology.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=企业培训项目设计方法论  maturity=tree
+  concepts/translation-as-communication-amplifier.md
+    old: type/模型, 语言培训, 谈判沟通
+    new: type/模型, 语言培训, 谈判沟通
+    title=翻译作为沟通放大器 (Translation as Communication Amplifier)  maturity=tree
+  concepts/ttt-trainer-development.md
+    old: type/模型, 人才管理
+    new: type/模型, 人才管理
+    title=内训师培养体系  maturity=sapling
+  concepts/ttt-trainer-training-system.md
+    old: 培训
+    new: type/模型, 语言培训
+    title=TTT内训师培训体系（培训师宝典）  maturity=sapling
+  concepts/workplace-communication-multicultural-wellbeing.md
+    old: 跨文化
+    new: type/模型, 谈判沟通, 跨文化
+    title=职场沟通：在多文化环境中促进幸福感与人际关系  maturity=tree
+  concepts/workplace-communication-skills.md
+    old: type/模型, 语言培训, 谈判沟通, 跨文化
+    new: type/模型, 谈判沟通, 跨文化
+    title=职场沟通核心技能全栈 🎯  maturity=tree
+  concepts/信息情报收集链路思路.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=Untitled  maturity=sapling
+  concepts/客户痛点归纳与课程大纲合并方案.md
+    old: type/模型, 知识管理
+    new: type/模型, 知识管理
+    title=Untitled  maturity=tree
+  entities/2025-2026-1.md
+    old: 出海
+    new: type/方法, 出海战略, 央企
+    title=2025-2026中国企业出海全景研究报告  maturity=sapling
+  entities/2025-2026-2.md
+    old: 出海
+    new: type/方法, 出海战略, 央企
+    title=36氪研究院：2025-2026年中国企业出海研究报告  maturity=sapling
+  entities/2025-31.md
+    old: 出海, 区域/中东, 属地化
+    new: type/方法, 出海战略, 属地化, 区域/中东
+    title=2025年出海中东指南  maturity=sapling
+  entities/2025.md
+    old: 人才, 出海, 区域/东南亚, 合规
+    new: type/方法, 人才管理, 出海战略, 合规风控, 行业洞察, 区域/东南亚
+    title=【CDP集团】2025年马来西亚出海人力资源白皮书  maturity=sapling
+  entities/2026-05-07.md
+    old: AI, 信号, 出海, 跨文化
+    new: type/方法, AI赋能, 出海战略, 行业洞察, 跨文化
+    title=信号趋势摘要 2026-05-07  maturity=sapling
+  entities/2026.md
+    old: 出海
+    new: type/方法, 出海战略, 合规风控
+    title=2026企业出海用工合规指南  maturity=sapling
+  entities/2026ai.md
+    old: AI, 出海, 属地化
+    new: type/方法, AI赋能, 出海战略, 属地化, 行业洞察
+    title=2026出海全球展望AI驱动运营与本地化  maturity=sapling
+  entities/21.md
+    old: 人才
+    new: type/方法, 人才管理, 知识管理, 行业洞察, 民企
+    title=比亚迪人才战略情报虾21条洞察  maturity=sapling
+  entities/ai-training-summary.md
+    old: AI
+    new: type/报告, AI赋能, 人才管理
+    title=AI赋能的培训与人才发展  maturity=sapling
+  entities/ai.md
+    old: AI
+    new: type/方法, AI赋能
+    title=AI内容自动化工具链参考  maturity=sapling
+  entities/articles-misc-collection.md
+    old: type/索引, 知识管理
+    new: type/索引, 知识管理
+    title=Articles/其他 实体合集  maturity=sapling
+  entities/cases.md
+    old: type/案例, 知识管理
+    new: type/案例, 知识管理
+    title=Untitled  maturity=tree
+  entities/confidence-triangle.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=自信三角形（Confidence Triangle）  maturity=sapling
+  entities/cross-cultural-rise-framework.md
+    old: type/方法, 跨文化
+    new: type/方法, 跨文化
+    title=跨文化RISE培训体系  maturity=sapling
+  entities/customer-insight-library.md
+    old: type/索引, 知识管理, 行业洞察
+    new: type/索引, 知识管理, 行业洞察
+    title=客户洞察知识库索引  maturity=tree
+  entities/epc.md
+    old: 出海, 央企
+    new: type/方法, 出海战略, 央企
+    title=央企出海EPC项目案例集（2026Q1）  maturity=sapling
+  entities/equal-ocean-talent-insight.md
+    old: type/报告, 人才管理, 出海战略, 行业洞察
+    new: type/报告, 人才管理, 出海战略, 行业洞察
+    title=EqualOcean出海人才与组织管理洞察  maturity=tree
+  entities/esg.md
+    old: 合规
+    new: type/方法, 合规风控
+    title=晶澳科技（ESG合规培训案例）  maturity=sapling
+  entities/focallure.md
+    old: 区域/东南亚
+    new: type/方法, 出海战略, 区域/东南亚
+    title=Focallure印尼外派培训案例  maturity=sapling
+  entities/heric-ai-hr-training.md
+    old: AI, 人才
+    new: type/方法, AI赋能, 人才管理
+    title=Heric — AI+HR/培训  maturity=tree
+  entities/heric-corporate-training-system.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Heric — 企业培训体系  maturity=tree
+  entities/heric-global-organization-management.md
+    old: 出海
+    new: type/方法, 出海战略
+    title=Heric — 出海组织管理  maturity=tree
+  entities/heric-international-talent-development.md
+    old: 人才
+    new: type/方法, 人才管理
+    title=Heric — 国际化人才培养  maturity=tree
+  entities/HR-1+N模式.md
+    old: 属地化
+    new: type/方法, 属地化, 民企
+    title=腾讯1+N模式与属地化管理  maturity=sapling
+  entities/industry-function-insights.md
+    old: 出海
+    new: type/报告, 出海战略, 知识管理
+    title=行业职能案例与方法论素材索引  maturity=sapling
+  entities/international-observation-academic-reference.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=国际观察学术参考  maturity=sapling
+  entities/international-talent-market-report.md
+    old: type/报告, 人才管理
+    new: type/报告, 人才管理
+    title=国际化人才市场报告实体卡片  maturity=tree
+  entities/manufacturing-overseas-talent-path.md
+    old: type/方法, 人才管理, 出海战略
+    new: type/方法, 人才管理, 出海战略
+    title=制造业出海人才赋能路径  maturity=seed
+  entities/mckinsey-structured-thinking.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=麦肯锡结构化战略思维培训  maturity=sapling
+  entities/mercer-hrbp-framework.md
+    old: 人才
+    new: type/方法, 人才管理, 知识管理
+    title=美世HRBP转型与人力规划方法论  maturity=tree
+  entities/od-td-ld-1.md
+    old: type/方法, 人才管理, 知识管理
+    new: type/方法, 人才管理, 知识管理
+    title=OD-TD-LD实操工具书亮点萃取  maturity=sapling
+  entities/od-td-ld-2.md
+    old: 人才, 培训
+    new: type/方法, 人才管理, 语言培训
+    title=《OD-TD-LD实操工具书》完整笔记  maturity=sapling
+  entities/one-minute-people-reading.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=一分钟识人培训体系  maturity=sapling
+  entities/openai.md
+    old: AI, 人才, 出海
+    new: type/方法, AI赋能, 人才管理, 出海战略
+    title=微软&OpenAI合作案例  maturity=sapling
+  entities/organization-development-od.md
+    old: type/方法, 人才管理
+    new: type/方法, 人才管理
+    title=组织发展OD培训体系  maturity=sapling
+  entities/overseas-industry-function-research-library.md
+    old: type/索引, 出海战略, 区域/东南亚
+    new: type/索引, 出海战略, 区域/东南亚
+    title=出海行业与职能研究资料库索引  maturity=sapling
+  entities/overseas-investment-case-extraction.md
+    old: type/案例, 出海战略, 知识管理
+    new: type/案例, 出海战略, 知识管理
+    title=海外投资案例萃取（小红书+爆红虾）  maturity=sapling
+  entities/overseas-investment-cases.md
+    old: type/案例, 出海战略, 知识管理
+    new: type/案例, 出海战略, 知识管理
+    title=海外投资案例深度萃取  maturity=sapling
+  entities/overseas-research-reports-library.md
+    old: type/报告, 出海战略
+    new: type/报告, 出海战略
+    title=出海研究报告库索引  maturity=tree
+  entities/overseas-talent-selection-development-system.md
+    old: type/方法, 人才管理, 出海战略, 区域/东南亚
+    new: type/方法, 人才管理, 出海战略, 区域/东南亚
+    title=出海人才选拔与培养体系  maturity=tree
+  entities/prep-model.md
+    old: 跨文化
+    new: type/方法, 跨文化
+    title=PREP模型  maturity=sapling
+  entities/research-reports-training-app.md
+    old: type/报告, 知识管理
+    new: type/报告, 知识管理
+    title=两本研究报告培训应用  maturity=sapling
+  entities/tisax.md
+    old: 合规, 跨文化
+    new: type/方法, 出海战略, 合规风控, 跨文化
+    title=TISAX认证出海培训需求（车企供应链）  maturity=sapling
+  entities/united-imaging.md
+    old: 出海, 属地化
+    new: type/方法, 出海战略, 属地化
+    title=联影医疗 (United Imaging)  maturity=sapling
+  entities/white-rhino-autonomous-driving.md
+    old: 出海
+    new: type/方法, 出海战略
+    title=白犀牛 (White Rhino) — 自动驾驶物流出海  maturity=sapling
+  entities/书籍萃取/8-books-communication-extraction.md
+    old: type/方法, 知识管理, 谈判沟通
+    new: type/方法, 知识管理, 谈判沟通
+    title=8本职场沟通书籍萃取  maturity=sapling
+  entities/书籍萃取/8-books-communication-training.md
+    old: type/方法, 谈判沟通
+    new: type/方法, 谈判沟通
+    title=8本职场沟通书籍培训方案  maturity=sapling
+  entities/书籍萃取/cross-material-synthesis.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=跨素材合成与知识体系  maturity=sapling
+  entities/书籍萃取/deep-learning-cross-synthesis.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=深度学习萃取 — 跨素材合成报告  maturity=sapling
+  entities/书籍萃取/two-books-synthesis-huawei-and-crisis.md
+    old: type/方法, 出海战略, 央企, 民企
+    new: type/方法, 出海战略, 央企, 民企
+    title=两本书合萃（华为项目管理+中国企业海外危机案例）  maturity=sapling
+  entities/书籍萃取/two-books-synthesis-training.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=两本书合萃培训方案  maturity=sapling
+  entities/人物/dachuangyejia-mcdonald-philosophy.md
+    old: type/案例, 知识管理
+    new: type/案例, 知识管理
+    title=🏪 大创业家：雷·克洛克与麦当劳的商业哲学  maturity=tree
+  entities/人物/ray-kroc.md
+    old: type/案例, 知识管理
+    new: type/案例, 知识管理
+    title=雷·克洛克 — 麦当劳创始人  maturity=sapling
+  entities/其他/doc-001da296.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=深度学习萃取五层流程与方法  maturity=sapling
+  entities/其他/doc-02acb687.md
+    old: type/方法, 谈判沟通, 区域/欧洲, 央企
+    new: type/方法, 谈判沟通, 区域/欧洲, 央企
+    title=当升科技芬兰工作沟通问题调研  maturity=sapling
+  entities/其他/doc-19ada4a3.md
+    old: type/方法, 语言培训
+    new: type/方法, 语言培训
+    title=国际化青年干部英语强化培训方案  maturity=sapling
+  entities/其他/doc-1a5f862d.md
+    old: 人才
+    new: type/方法, 人才管理
+    title=中非人才培养合作计划  maturity=sapling
+  entities/其他/doc-1edf0dc1.md
+    old: type/方法, 出海战略, 区域/欧洲, 央企
+    new: type/方法, 出海战略, 区域/欧洲, 央企
+    title=当升科技芬兰外派人员持续赋能方案  maturity=sapling
+  entities/其他/doc-24e3d033.md
+    old: 出海
+    new: type/方法, 人才管理, 出海战略, 央企
+    title=中国企业出海外派人员选拔与培养体系  maturity=sapling
+  entities/其他/doc-273dd2c7.md
+    old: 出海, 领导力
+    new: type/方法, 出海战略, 领导力
+    title=全球化总部协同赋能案例库  maturity=sapling
+  entities/其他/doc-2bcde04e.md
+    old: AI
+    new: type/方法, AI赋能, 知识管理
+    title=深度学习萃取流程与经验（2026.05.07实战版）  maturity=sapling
+  entities/其他/doc-30efa289.md
+    old: type/方法, 语言培训
+    new: type/方法, 语言培训
+    title=机关管理人员英语培训项目设计方案  maturity=sapling
+  entities/其他/doc-333510f7.md
+    old: 人才, 出海, 央企
+    new: type/方法, 人才管理, 出海战略, 央企
+    title=中国矿产资源集团  maturity=sapling
+  entities/其他/doc-367f3cc3.md
+    old: type/方法, 语言培训
+    new: type/方法, 语言培训
+    title=机关管理人员英语能力提升培训方案  maturity=sapling
+  entities/其他/doc-495a6059.md
+    old: 区域/中亚, 培训, 央企
+    new: type/方法, 出海战略, 语言培训, 区域/中亚, 央企
+    title=乌兹别克斯坦（中亚·国别全景）  maturity=sapling
+  entities/其他/doc-5370d902.md
+    old: 出海, 属地化
+    new: type/方法, 出海战略, 属地化
+    title=出海国别环境与政策概览  maturity=tree
+  entities/其他/doc-72107ee1.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=方案设计应用库  maturity=tree
+  entities/其他/doc-83c8b247.md
+    old: type/方法, 行业洞察, 语言培训, 区域/欧洲, 央企
+    new: type/方法, 行业洞察, 语言培训, 区域/欧洲, 央企
+    title=当升科技芬兰签证与英语支持洞察  maturity=sapling
+  entities/其他/doc-90ed1176.md
+    old: 出海, 跨文化
+    new: type/方法, 出海战略, 知识管理, 谈判沟通, 跨文化
+    title=跨文化沟通场景案例集（12篇萃取）  maturity=sapling
+  entities/其他/doc-94a1b66b.md
+    old: 人才
+    new: type/方法, 人才管理
+    title=欧美学术人才交流机制  maturity=sapling
+  entities/其他/doc-98c204f9.md
+    old: 人才, 央企
+    new: type/方法, 人才管理, 央企
+    title=央企国际化培训项目案例集  maturity=tree
+  entities/其他/doc-a5cd617f.md
+    old: 人才, 出海, 合规
+    new: type/方法, 人才管理, 出海战略, 合规风控, 行业洞察, 央企
+    title=云生集团：中国企业出海服务指南白皮书  maturity=sapling
+  entities/其他/doc-b27cda7e.md
+    old: 人才, 出海
+    new: type/方法, 人才管理, 出海战略
+    title=全球出海国家人才政策与招聘渠道合辑  maturity=sapling
+  entities/其他/doc-be974a29.md
+    old: type/方法, 知识管理, 民企
+    new: type/方法, 知识管理, 民企
+    title=比亚迪爆红虾帖子案例  maturity=sapling
+  entities/其他/doc-bfc1e063.md
+    old: 人才
+    new: type/方法, 人才管理, 民企
+    title=比亚迪人才战略培训应用补充  maturity=sapling
+  entities/其他/doc-c6ab73fb.md
+    old: 出海, 跨文化
+    new: type/方法, 出海战略, 跨文化
+    title=出海企业跨文化实战案例库  maturity=sapling
+  entities/其他/doc-ca200637.md
+    old: 区域/东南亚, 跨文化
+    new: type/方法, 跨文化, 区域/东南亚
+    title=福源越南跨文化培训案例  maturity=sapling
+  entities/其他/doc-ca42290c.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=中国中原国际市场开发专业能力提升方案  maturity=sapling
+  entities/其他/doc-cfa52138.md
+    old: 出海
+    new: type/方法, 出海战略
+    title=出海避坑案例集（8个P0级案例）  maturity=tree
+  entities/其他/doc-d88fc6c6.md
+    old: 出海
+    new: type/方法, 出海战略, 央企
+    title=当升科技（企业实体·培训案例）  maturity=tree
+  entities/其他/doc-ed24c1e3.md
+    old: type/方法, 知识管理, 区域/欧洲, 央企
+    new: type/方法, 知识管理, 区域/欧洲, 央企
+    title=当升科技芬兰培训方案讨论  maturity=sapling
+  entities/其他/doc-f00159c5.md
+    old: 人才, 合规
+    new: type/方法, 人才管理, 合规风控
+    title=《人力资源》杂志素材索引  maturity=tree
+  entities/其他/doc-f7898ed5.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  entities/其他/doc-f862e94d.md
+    old: 人才, 出海
+    new: type/方法, 人才管理, 出海战略, 语言培训
+    title=上海外国语大学多语种翻译人才培养模式  maturity=sapling
+  entities/区域/region-labor-africa.md
+    old: 区域/非洲
+    new: type/数据, 知识管理, 区域/非洲
+    title=region-labor-africa  maturity=sapling
+  entities/区域/region-labor-europe.md
+    old: 区域/欧洲
+    new: type/数据, 知识管理, 区域/欧洲
+    title=region-labor-europe  maturity=sapling
+  entities/区域/region-labor-mideast.md
+    old: 区域/中东
+    new: type/数据, 知识管理, 区域/中东
+    title=region-labor-mideast  maturity=sapling
+  entities/区域/region-labor-namerica.md
+    old: type/数据, 知识管理
+    new: type/数据, 知识管理
+    title=region-labor-namerica  maturity=sapling
+  entities/区域/region-labor-samerica.md
+    old: type/数据, 知识管理
+    new: type/数据, 知识管理
+    title=region-labor-samerica  maturity=sapling
+  entities/区域/region-labor-sea.md
+    old: 区域/东南亚
+    new: type/数据, 知识管理, 区域/东南亚
+    title=region-labor-sea  maturity=sapling
+  entities/区域/region-market-brazil.md
+    old: 区域/南美
+    new: type/数据, 人才管理, 出海战略, 区域/南美
+    title=巴西出海市场与人才指南  maturity=sapling
+  entities/区域/region-market-europe-overview.md
+    old: 区域/欧洲
+    new: type/数据, 人才管理, 出海战略, 区域/欧洲
+    title=欧洲出海市场与人才指南  maturity=sapling
+  entities/区域/region-market-indonesia.md
+    old: 区域/东南亚
+    new: type/数据, 人才管理, 出海战略, 区域/东南亚, 区域/南亚
+    title=印度尼西亚出海市场与人才指南  maturity=sapling
+  entities/区域/region-market-mexico.md
+    old: type/数据, 知识管理, 区域/北美
+    new: type/数据, 知识管理, 区域/北美
+    title=region-market-mexico  maturity=tree
+  entities/区域/region-market-saudi.md
+    old: type/数据, 知识管理, 区域/中东
+    new: type/数据, 知识管理, 区域/中东
+    title=region-market-saudi  maturity=tree
+  entities/区域/region-market-singapore.md
+    old: 区域/东南亚
+    new: type/数据, 人才管理, 出海战略, 区域/东南亚
+    title=新加坡出海市场与人才指南  maturity=sapling
+  entities/区域/region-market-thailand-market.md
+    old: type/数据, 知识管理, 区域/东南亚
+    new: type/数据, 知识管理, 区域/东南亚
+    title=region-market-thailand-market  maturity=tree
+  entities/区域/region-market-uae.md
+    old: 区域/中东
+    new: type/数据, 人才管理, 出海战略, 区域/中东
+    title=阿联酋出海市场与人才指南  maturity=sapling
+  entities/区域/region-market-vietnam.md
+    old: 区域/东南亚
+    new: type/数据, 人才管理, 出海战略, 区域/东南亚
+    title=越南出海市场与人才指南  maturity=sapling
+  entities/区域/southeast-asia-region-market.md
+    old: 区域/东南亚
+    new: type/数据, 出海战略, 区域/东南亚, 区域/南亚
+    title=东南亚国别研究（出海参考）  maturity=sapling
+  entities/区域/southeast-asia-research-index.md
+    old: 出海, 区域/东南亚
+    new: type/数据, 出海战略, 区域/东南亚, 区域/南亚
+    title=东南亚出海研究素材索引  maturity=sapling
+  entities/区域/tax-guide-sea-indonesia.md
+    old: type/数据, 知识管理, 区域/东南亚, 区域/南亚
+    new: type/数据, 知识管理, 区域/东南亚, 区域/南亚
+    title=🇮🇩 印度尼西亚税收指南（德勤2026年东南亚税收指南摘编）  maturity=tree
+  entities/区域/tax-guide-sea-thailand.md
+    old: type/数据, 知识管理, 区域/东南亚, 区域/南亚
+    new: type/数据, 知识管理, 区域/东南亚, 区域/南亚
+    title=🇹🇭 泰国税收指南（德勤2026年东南亚税收指南摘编）  maturity=tree
+  entities/区域/tax-guide-sea-vietnam.md
+    old: type/数据, 知识管理, 区域/东南亚, 区域/南亚
+    new: type/数据, 知识管理, 区域/东南亚, 区域/南亚
+    title=🇻🇳 越南税收指南（德勤2026年东南亚税收指南摘编）  maturity=tree
+  entities/工具/plaud-ai-recorder.md
+    old: AI, 出海
+    new: type/工具, AI赋能, 出海战略
+    title=Plaud AI录音笔  maturity=sapling
+  entities/工具/tools-collection.md
+    old: type/工具, 知识管理
+    new: type/工具, 知识管理
+    title=工具类实体合集  maturity=sapling
+  entities/工具/tools-overseas-guide-index.md
+    old: 出海
+    new: type/工具, 出海战略
+    title=工具类出海指南素材索引  maturity=tree
+  entities/报告/report-country-risk-rating.md
+    old: type/报告, 出海战略, 合规风控
+    new: type/报告, 出海战略, 合规风控
+    title=中国海外投资国家风险评级报告(2025) 📊  maturity=sapling
+  entities/报告/report-sf-overseas-hr-2026.md
+    old: 人才
+    new: type/报告, 人才管理, 出海战略, 央企
+    title=上海外服《2026中国企业出海人力资源管理报告》  maturity=sapling
+  entities/案例/case-africa-language-strategy-transsion.md
+    old: 出海, 区域/非洲, 属地化, 跨文化
+    new: type/案例, 出海战略, 属地化, 语言培训, 跨文化, 区域/非洲, 民企
+    title=非洲市场语言战略与跨文化管理——传音启示  maturity=tree
+  entities/案例/case-alipay-australia-cross-cultural.md
+    old: 属地化, 跨文化
+    new: type/案例, 属地化, 跨文化
+    title=支付宝在澳洲 — 不是跨境电商，而是"帮两边互相理解"  maturity=seed
+  entities/案例/case-angola-refinery-english-training.md
+    old: 出海
+    new: type/案例, 出海战略, 语言培训, 区域/非洲
+    title=安哥拉洛比托炼油厂项目工程英语培训  maturity=sapling
+  entities/案例/case-anhui-epdi-2025-business-english-training.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=赋能全球视野——2025年商务英语培训圆满收官  maturity=sapling
+  entities/案例/case-anyuan-business-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中国能建安徽院2026年商务英语培训圆满收官  maturity=sapling
+  entities/案例/case-baic-overseas-staff-training.md
+    old: 培训
+    new: type/案例, 出海战略, 语言培训
+    title=北汽国际海外一线人员专项培训  maturity=sapling
+  entities/案例/case-baic-youth-business-english.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=北汽青年"第二课堂"第六期商务英语具体场景应用  maturity=sapling
+  entities/案例/case-byd-talent-strategy-2025.md
+    old: 人才
+    new: type/案例, 人才管理, 民企
+    title=2025年比亚迪人才战略研究报告——人才吸引与培养赋能体系  maturity=tree
+  entities/案例/case-byd-talent-strategy.md
+    old: 人才
+    new: type/案例, 人才管理, 民企
+    title=比亚迪人才战略：人才吸引与培养赋能体系  maturity=sapling
+  entities/案例/case-ccc-sixteen-international-english-training.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=中国化学十六化建2025年国际英语培训班  maturity=sapling
+  entities/案例/case-cccc-11th-business-english-competition.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=超"英"速集结！中交集团第11届商务英语大赛高能收官  maturity=sapling
+  entities/案例/case-cccc-3rd-overseas-business-training-camp.md
+    old: 出海
+    new: type/案例, 出海战略
+    title=海外图强！公司第三期海外业务特训营圆满结营  maturity=sapling
+  entities/案例/case-cccc-5th-engineering-english-training.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=公司举办专项英语培训班  maturity=sapling
+  entities/案例/case-cccc-architecture-zhuhai-talent-training.md
+    old: 人才
+    new: type/案例, 人才管理, 央企
+    title=中交建筑2025年度"筑海人才"专项培训班正式开班  maturity=sapling
+  entities/案例/case-cccc-business-english-competition.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中交集团第十届商务英语大赛  maturity=sapling
+  entities/案例/case-cccc-fourth-harbor-business-english.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中交四航局一公司商务英语技能提升培训班暨商务英语技能竞赛  maturity=sapling
+  entities/案例/case-cccc-international-tech-leaders-english.md
+    old: 培训
+    new: type/案例, 人才管理, 语言培训
+    title=中国交通建设集团第四期国际科技领军人才英语培训班  maturity=sapling
+  entities/案例/case-cccc-new-employee-orientation.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=中国交建总承包2025年度新员工入职培训  maturity=sapling
+  entities/案例/case-cccc-overseas-market-development.md
+    old: 培训
+    new: type/案例, 人才管理, 出海战略, 语言培训, 央企
+    title=中交集团第一期海外市场开发人才培训班  maturity=sapling
+  entities/案例/case-cccc-overseas-project-english-training-graduation.md
+    old: 培训
+    new: type/案例, 出海战略, 语言培训
+    title=以语言为桥 筑梦海外征程——公司海外项目专项英语培训班顺利结业  maturity=sapling
+  entities/案例/case-cccc-overseas-talent-training.md
+    old: 培训
+    new: type/案例, 人才管理, 出海战略, 语言培训, 央企
+    title=中交四航二2025年海外专项人才能力提升培训班  maturity=sapling
+  entities/案例/case-cccc-overseas-team-english-training-complete.md
+    old: 培训
+    new: type/案例, 出海战略, 语言培训
+    title=公司海外项目团队英语专项培训圆满收官  maturity=sapling
+  entities/案例/case-cccc-sdc-english-club-presentation.md
+    old: 培训
+    new: type/案例, 语言培训, 谈判沟通, 央企
+    title=中交上航局英语俱乐部商务推介及演讲技巧培训  maturity=sapling
+  entities/案例/case-cccc-tech-leader-english-training.md
+    old: 培训
+    new: type/案例, 人才管理, 语言培训, 央企
+    title=中交集团第四期国际科技领军人才英语培训班  maturity=sapling
+  entities/案例/case-cccc-tianhe-business-english.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中交天和2024年商务英语高级研修班  maturity=sapling
+  entities/案例/case-ceec-hunan-business-english.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中国能建湖南火电国际业务能力提升系列商务英语培训  maturity=sapling
+  entities/案例/case-ceec-north-china-advanced-english.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中国能建华北院2023年第一期高级英语培训班  maturity=sapling
+  entities/案例/case-ceec-overseas-leadership-training.md
+    old: 人才
+    new: type/案例, 人才管理, 出海战略, 央企
+    title=中国能建第一期海外领军人才高级研修班  maturity=sapling
+  entities/案例/case-ceec-southwest-institute-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中国能建中电工程西南院2023年度英语培训班  maturity=sapling
+  entities/案例/case-ceic-overseas-market-capability.md
+    old: 培训
+    new: type/案例, 出海战略, 语言培训, 央企
+    title=中国能建国际集团海外市场开发人员履职能力提升班  maturity=sapling
+  entities/案例/case-chalco-english-oral-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中铝股份举办英语口语专项培训  maturity=sapling
+  entities/案例/case-chalco-english-speaking-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中铝股份英语口语专项培训  maturity=sapling
+  entities/案例/case-china-resources-hr-policy.md
+    old: 人才
+    new: type/案例, 人才管理, 央企
+    title=华润集团人力资源政策指引  maturity=sapling
+  entities/案例/case-cma-15th-advanced-english-intensive-training.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=中国气象局第15期高级英语强化培训班结业  maturity=sapling
+  entities/案例/case-cnbm-international-development.md
+    old: 出海
+    new: type/案例, 出海战略, 央企
+    title=中建材投资国际化发展培训班  maturity=sapling
+  entities/案例/case-cnec-nuclear-english-training.md
+    old: 培训
+    new: type/案例, 人才管理, 语言培训
+    title=中国核建核电建造国际化人才英语能力提升培训  maturity=sapling
+  entities/案例/case-cnnc-24-english-graduation.md
+    old: 培训
+    new: type/案例, 人才管理, 语言培训, 央企
+    title=中核二四首届国际化工程英语人才专项培训班圆满结业  maturity=sapling
+  entities/案例/case-cnnc-24-international-engineering-english.md
+    old: 培训
+    new: type/案例, 人才管理, 语言培训, 央企
+    title=中核二四国际化工程项目英语人才脱产培训  maturity=sapling
+  entities/案例/case-cnnc-jianzhong-english-intensive.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中核建中英语强化培训班  maturity=sapling
+  entities/案例/case-cnooc-9th-international-professional-training.md
+    old: 人才
+    new: type/案例, 人才管理
+    title=中国海油第九批国际化专业人才培训班在中石大结业  maturity=sapling
+  entities/案例/case-cnooc-english-training-camp-amazing.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=这个英语训练营，太赞了吧  maturity=sapling
+  entities/案例/case-cnooc-equipment-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中海油能源发展装备技术公司2025年英语能力提升培训班  maturity=sapling
+  entities/案例/case-cnooc-gas-power-2025-international-trade-training.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=中海石油气电集团2025年国际销贸和项目开发业务人员培训班结业  maturity=sapling
+  entities/案例/case-cnooc-international-talent-english-2017.md
+    old: 培训
+    new: type/案例, 人才管理, 语言培训, 央企
+    title=2017年中海油国际化人才商务及通用英语培训班  maturity=sapling
+  entities/案例/case-cnooc-international-talent-training.md
+    old: 人才
+    new: type/案例, 人才管理
+    title=中国海油第八批国际化人才培训班  maturity=sapling
+  entities/案例/case-cnooc-overseas-finance-english.md
+    old: 培训
+    new: type/案例, 出海战略, 语言培训
+    title=中国海油海外财务人员英语培训班  maturity=sapling
+  entities/案例/case-cnooc-research-institute-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中海油研究总院第十一期英语培训班  maturity=sapling
+  entities/案例/case-cnooc-trading-new-employee-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中海油国贸2023年新员工入职培训  maturity=sapling
+  entities/案例/case-cnpc-translation-intensive-training.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=中国石油集团公司英语翻译强化培训班  maturity=sapling
+  entities/案例/case-cosl-business-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中海油服2024年第一期商务英语培训班  maturity=sapling
+  entities/案例/case-cosl-business-english.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中海油服2025年第一期商务英语培训  maturity=sapling
+  entities/案例/case-cpec-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 区域/中东
+    title=中国石油工程建设中东地区公司英语培训班  maturity=sapling
+  entities/案例/case-cscec-international-english-improvement.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中建国际2023年第2期英语能力提升培训班  maturity=sapling
+  entities/案例/case-cwe-youth-business-english-competition-award.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=公司青年员工在集团商务英语大赛获佳绩  maturity=sapling
+  entities/案例/case-dangsheng-technology.md
+    old: 央企
+    new: type/案例, 出海战略, 央企
+    title=当升科技 — 锂电正极材料央企龙头的转型与出海  maturity=sapling
+  entities/案例/case-digital-tech-training-multiple.md
+    old: type/案例, 知识管理
+    new: type/案例, 知识管理
+    title=HR培训案例  maturity=sapling
+  entities/案例/case-energy-china-international-talent-strategy.md
+    old: 人才
+    new: type/案例, 人才管理, 央企
+    title=中国能建的国际化人才战略  maturity=sapling
+  entities/案例/case-ethiopia-chinese-workshop.md
+    old: type/案例, 知识管理, 区域/非洲
+    new: type/案例, 知识管理, 区域/非洲
+    title=Untitled  maturity=sapling
+  entities/案例/case-foton-overseas-business-english.md
+    old: 培训
+    new: type/案例, 出海战略, 语言培训
+    title=北汽福田海外事业部党委商务英语培训  maturity=sapling
+  entities/案例/case-global-hq-empowerment-overseas.md
+    old: 人才, 出海, 领导力
+    new: type/案例, 人才管理, 出海战略, 领导力
+    title=全球化总部协同赋能海外业务体系  maturity=tree
+  entities/案例/case-gofluent-automotive-language-solution.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=goFLUENT汽车行业语言解决方案实践  maturity=sapling
+  entities/案例/case-hangjun4018-english-training.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=中港疏浚公司"航浚4018"轮英语能力提升培训  maturity=sapling
+  entities/案例/case-hr-digital-transformation.md
+    old: 人才, 培训
+    new: type/案例, AI赋能, 人才管理, 语言培训
+    title=HR+数字化：人力资源管理认知升级与系统创新  maturity=sapling
+  entities/案例/case-huawei-cloud-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 民企
+    title=华为云事业部云计算交付与服务部员工英语能力专项培训  maturity=sapling
+  entities/案例/case-international-engineering-business-english-training.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=中电建湖北电力建设公司启动2026年国际工程商务英语特训营  maturity=sapling
+  entities/案例/case-jepcc-overseas-employee-training.md
+    old: 培训
+    new: type/案例, 出海战略, 语言培训
+    title=江西电建2025届海外员工培训班  maturity=sapling
+  entities/案例/case-jinao-esg-compliance-training.md
+    old: 出海, 培训
+    new: type/案例, 出海战略, 合规风控, 语言培训
+    title=晶澳科技ESG合规培训案例  maturity=tree
+  entities/案例/case-mgt-trainee-company-a.md
+    old: type/案例, AI赋能
+    new: type/案例, 知识管理
+    title=HR培训案例  maturity=sapling
+  entities/案例/case-middle-east-cross-cultural-relationship-building.md
+    old: 出海, 区域/中东, 跨文化
+    new: type/案例, 出海战略, 跨文化, 区域/中东
+    title=中东市场跨文化关系构建机制  maturity=tree
+  entities/案例/case-mining-engineering-english-corner.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=北矿工程公司开展矿冶工程英语角活动  maturity=sapling
+  entities/案例/case-mnc-project-manager-crossborder-communication.md
+    old: 跨文化
+    new: type/案例, 出海战略, 谈判沟通, 跨文化
+    title=外企项目经理跨国协作沟通技巧  maturity=sapling
+  entities/案例/case-national-day-english-speaking-camp.md
+    old: 培训, 跨文化
+    new: type/案例, 语言培训, 谈判沟通, 跨文化
+    title=2025国庆英语演讲特训营（北京站）  maturity=sapling
+  entities/案例/case-ncpe-advanced-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中国能建华北院第二期高级英语培训班  maturity=sapling
+  entities/案例/case-nec-contract-training-cccc-road-bridge.md
+    old: 培训
+    new: type/案例, 出海战略, 合规风控, 语言培训, 央企
+    title=赋能海外工程卓越履约：承包商会培训中心为中交路建成功举办NEC合同专题培训  maturity=sapling
+  entities/案例/case-oman-marsa-lng-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 区域/中东
+    title=阿曼MARSA LNG项目专项英语拓展培训  maturity=sapling
+  entities/案例/case-overseas-engineering-business-english-handbook.md
+    old: 培训
+    new: type/案例, 出海战略, 语言培训
+    title=干货上线！公司海外工程项目商务英语学习手册正式发布  maturity=sapling
+  entities/案例/case-overseas-hr-tcl-cimc-nio.md
+    old: type/案例, 人才管理, 出海战略
+    new: type/案例, 知识管理
+    title=HR培训案例  maturity=sapling
+  entities/案例/case-overseas-localization-transition-challenges.md
+    old: 人才, 出海, 属地化, 领导力
+    new: type/案例, 人才管理, 出海战略, 属地化, 领导力
+    title=海外工厂属地化交接的组织挑战与解法  maturity=tree
+  entities/案例/case-payinone-global-hr-platform.md
+    old: type/案例, 人才管理, 出海战略
+    new: type/案例, 知识管理
+    title=HR培训案例  maturity=sapling
+  entities/案例/case-pdi-business-english-competition.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=水规院第一届商务英语大赛  maturity=sapling
+  entities/案例/case-powerchina-business-english-writing.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中国电建商务英语高效写作培训班  maturity=sapling
+  entities/案例/case-powerchina-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中国电建国际工程2025新员工商务工程英语培训  maturity=sapling
+  entities/案例/case-powerchina-new-employee-english.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中国电建集团国际工程有限公司2023年新员工英语培训  maturity=sapling
+  entities/案例/case-shanghai-communication-business-english.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=上海交建公司首届商务英语培训结业典礼暨青年表彰大会  maturity=sapling
+  entities/案例/case-siemens-shanghai-acquisition-localization.md
+    old: 属地化
+    new: type/案例, 属地化
+    title=西门子没有"整合"上海二工 — 本土化并购的另一种逻辑  maturity=seed
+  entities/案例/case-sinopec-business-marketing-english.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=商务营销英语培训班结业纪实  maturity=sapling
+  entities/案例/case-speexx-changan-business-english.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=Speexx助力长安汽车商务英语培训  maturity=sapling
+  entities/案例/case-sunny-group-english-training.md
+    old: 培训
+    new: type/案例, 人才管理, 语言培训
+    title=旭阳集团2025年国际化人才英语培训班  maturity=sapling
+  entities/案例/case-third-phase-overseas-talent-english-training-duplicate.md
+    old: 培训
+    new: type/案例, 人才管理, 出海战略, 语言培训, 央企
+    title=中交路建第三期海外人才英语培训（副本）  maturity=sapling
+  entities/案例/case-third-phase-overseas-talent-english-training.md
+    old: 培训
+    new: type/案例, 人才管理, 出海战略, 语言培训, 央企
+    title=中交路建举办第三期海外人才英语能力提升专题培训  maturity=sapling
+  entities/案例/case-water-planning-institute-11th-business-english-competition.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中交集团第11届商务英语大赛高能收官，水规院青年荣获佳绩  maturity=sapling
+  entities/案例/case-xg-xuege-fashion-training.md
+    old: type/案例, 知识管理
+    new: type/案例, 知识管理
+    title=HR培训案例  maturity=sapling
+  entities/案例/case-xuyang-international-talent-english-training.md
+    old: 培训
+    new: type/案例, 人才管理, 语言培训
+    title=旭阳集团2026年国际化人才英语培训班开班  maturity=sapling
+  entities/案例/case-yihangju-eagle-plan-language-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中交一航局"雏鹰计划"出国人员语言能力提升培训  maturity=sapling
+  entities/案例/case-yingnai-client-training-projects.md
+    old: type/案例, AI赋能, 人才管理, 语言培训, 央企
+    new: type/案例, 知识管理, 央企
+    title=英耐客户培训项目案例集  maturity=sapling
+  entities/案例/case-yingnai-student-stories.md
+    old: type/案例, 人才管理, 语言培训
+    new: type/案例, 知识管理
+    title=英耐学员故事集  maturity=sapling
+  entities/案例/case-zambia-chinese-english-training.md
+    old: 培训
+    new: type/案例, 语言培训
+    title=赞比亚谦比希铜冶炼公司携手中赞职院开办英语培训班  maturity=sapling
+  entities/案例/case-zhejiang-thermal-power-english-training.md
+    old: 培训
+    new: type/案例, 语言培训, 央企
+    title=中国能建浙江火电2024年英语培训  maturity=sapling
+  entities/案例/case-zhongjiaotongli-english-training.md
+    old: 培训
+    new: type/案例, 出海战略, 语言培训, 央企
+    title=中交通力开展接轨国际助力出海英语能力提升专项培训  maturity=sapling
+  entities/案例/cases-ai-engineering.md
+    old: type/案例, AI赋能, 出海战略, 知识管理
+    new: type/案例, AI赋能, 出海战略, 知识管理
+    title=张工AI出海 — 工程人出海+AI工具应用案例萃取  maturity=tree
+  entities/案例/cases-alibaba-cloud-ai-talent.md
+    old: type/案例, AI赋能, 人才管理
+    new: type/案例, AI赋能, 人才管理
+    title=阿里云 — AI驱动的人才发展与数字化人才培养  maturity=sapling
+  entities/案例/cases-axa-insurance-compliance.md
+    old: type/案例, 合规风控, 谈判沟通, 跨文化
+    new: type/案例, 合规风控, 谈判沟通, 跨文化
+    title=AXA集团 — 从合规需求到跨文化业务沟通力的转型  maturity=sapling
+  entities/案例/cases-byd.md
+    old: type/案例, 人才管理, 民企
+    new: type/案例, 人才管理, 民企
+    title=比亚迪人才战略  maturity=tree
+  entities/案例/cases-ccpit-overseas-training.md
+    old: 信号, 出海, 培训
+    new: type/案例, 出海战略, 行业洞察, 语言培训
+    title=中国贸促会出海培训系列（2026年起）  maturity=sapling
+  entities/案例/cases-central-soe-international-talent.md
+    old: type/案例, 人才管理, 央企
+    new: type/案例, 人才管理, 央企
+    title=央企国际化人才培养案例  maturity=tree
+  entities/案例/cases-cgn-uranium-international-talent.md
+    old: type/案例, 人才管理, 跨文化, 央企
+    new: type/案例, 跨文化, 央企
+    title=中广核铀业 — "鹭铀万里"计划  maturity=sapling
+  entities/案例/cases-cib-digital-leadership.md
+    old: type/案例, AI赋能, 人才管理, 领导力
+    new: type/案例, AI赋能, 人才管理, 领导力
+    title=兴业银行南京分行 — "人才—机制—文化"三位一体数字化领导梯队  maturity=sapling
+  entities/案例/cases-citic-dicaastal-international-talent.md
+    old: type/案例, 人才管理, 跨文化, 央企
+    new: type/案例, 人才管理, 跨文化, 央企
+    title=中信戴卡 — "战略牵引—分层培养—实战赋能—文化融合"四位一体国际化人才培养体系  maturity=sapling
+  entities/案例/cases-cnpc-international-talent-model.md
+    old: 人才, 央企
+    new: type/案例, 人才管理, 央企
+    title=中石油国际化人才"五要素"素质模型与培养体系  maturity=sapling
+  entities/案例/cases-crbc-international-talent.md
+    old: type/案例, 人才管理, 跨文化, 央企
+    new: type/案例, 人才管理, 跨文化, 央企
+    title=中国路桥 — "全球视野+本地深耕"国际化人才战略  maturity=sapling
+  entities/案例/cases-crland.md
+    old: type/案例, 人才管理, 央企
+    new: type/案例, 人才管理, 央企
+    title=华润集团人力资源体系框架  maturity=tree
+  entities/案例/cases-cross-culture.md
+    old: type/案例, 谈判沟通, 跨文化
+    new: type/案例, 谈判沟通, 跨文化
+    title=跨文化沟通案例  maturity=sapling
+  entities/案例/cases-cscec-overseas-business-training.md
+    old: 出海, 央企
+    new: type/案例, 出海战略, 央企
+    title=中国建筑/中电建海外项目管理培训案例  maturity=sapling
+  entities/案例/cases-dangsheng-finnish-project.md
+    old: type/案例, 知识管理, 区域/欧洲, 央企
+    new: type/案例, 知识管理, 区域/欧洲, 央企
+    title=当升科技芬兰项目实战案例  maturity=sapling
+  entities/案例/cases-enterprise-training-and-talent-development.md
+    old: type/案例, 人才管理
+    new: type/案例, 人才管理
+    title=企业培训与人才发展案例  maturity=sapling
+  entities/案例/cases-enterprise-university-marketization.md
+    old: type/案例, 知识管理
+    new: type/案例, 知识管理
+    title=经营性企业大学建设框架（安秋明专家观点）  maturity=sapling
+  entities/案例/cases-haier.md
+    old: type/案例, 人才管理
+    new: type/案例, 人才管理
+    title=海尔国际化人才与培训体系  maturity=sapling
+  entities/案例/cases-huawei-training-evaluation.md
+    old: type/案例, AI赋能, 民企
+    new: type/案例, 知识管理, 民企
+    title=华为 — "训战"背后的价值转化与评估  maturity=sapling
+  entities/案例/cases-huawei.md
+    old: type/案例, 知识管理
+    new: type/案例, 人才管理, 民企
+    title=华为国际化人才与培训体系  maturity=tree
+  entities/案例/cases-language-training.md
+    old: type/案例, 语言培训
+    new: type/案例, 语言培训
+    title=企业外语培训案例  maturity=sapling
+  entities/案例/cases-localization.md
+    old: type/案例, 属地化
+    new: type/案例, 属地化
+    title=属地化融合案例  maturity=sapling
+  entities/案例/cases-luzhou-laojiao-digital-learning.md
+    old: type/案例, AI赋能
+    new: type/案例, AI赋能
+    title=泸州老窖 — 学习型组织的数智化转型实践  maturity=sapling
+  entities/案例/cases-mcdonalds.md
+    old: type/案例, 知识管理
+    new: type/案例, 知识管理
+    title=🏗 大创业家·麦当劳培训体系（深度萃取版）  maturity=tree
+  entities/案例/cases-mideast-epc.md
+    old: type/案例, 知识管理, 区域/中东
+    new: type/案例, 知识管理, 区域/中东
+    title=中东EPC项目实战案例库  maturity=sapling
+  entities/案例/cases-negotiation-hr-scenarios.md
+    old: 人才, 谈判
+    new: type/案例, 人才管理, 谈判沟通
+    title=涉外商务谈判-HR场景篇  maturity=tree
+  entities/案例/cases-negotiation-training-procurement.md
+    old: 谈判
+    new: type/案例, 谈判沟通
+    title=涉外商务谈判-培训采购篇  maturity=tree
+  entities/案例/cases-negotiation.md
+    old: 谈判
+    new: type/案例, 谈判沟通
+    title=涉外商务谈判问题与场景框架  maturity=tree
+  entities/案例/cases-outbound-experience.md
+    old: type/案例, 人才管理, 出海战略, 谈判沟通, 跨文化, 区域/中东
+    new: type/案例, 出海战略, 跨文化, 区域/中东
+    title=出海经历谈 - 实战案例库  maturity=tree
+  entities/案例/cases-overseas-crisis-15.md
+    old: type/案例, 出海战略, 区域/东南亚, 央企
+    new: type/案例, 出海战略, 区域/东南亚, 央企
+    title=15个中国企业海外危机传播案例 🎯  maturity=sapling
+  entities/案例/cases-overseas-crisis-comms.md
+    old: type/案例, 出海战略, 央企
+    new: type/案例, 出海战略, 央企
+    title=中国企业海外危机传播案例库 🚨  maturity=sapling
+  entities/案例/cases-overseas-hr-management-eor.md
+    old: type/案例, 人才管理, 出海战略, 区域/东南亚
+    new: type/案例, 人才管理, 出海战略, 区域/东南亚
+    title=出海企业HR管理案例（EOR/国际化人才）  maturity=sapling
+  entities/案例/cases-overseas-investment-cases.md
+    old: type/案例, 出海战略, 央企
+    new: type/案例, 知识管理, 央企
+    title=中国对外投资项目案例分析 📋  maturity=sapling
+  entities/案例/cases-ozon-russia-market.md
+    old: 信号, 出海
+    new: type/案例, 出海战略, 行业洞察, 语言培训
+    title=Ozon俄语区电商红利：非英语市场进入培训新品类  maturity=sapling
+  entities/案例/cases-plaud.md
+    old: AI, 出海
+    new: type/案例, AI赋能, 出海战略
+    title=Plaud AI卡片录音笔：AI硬件出海标杆案例  maturity=sapling
+  entities/案例/cases-project-management.md
+    old: type/案例, 出海战略
+    new: type/案例, 出海战略
+    title=海外项目管理案例  maturity=sapling
+  entities/案例/cases-public-speaking.md
+    old: type/案例, 谈判沟通
+    new: type/案例, 谈判沟通
+    title=涉外演讲案例  maturity=seed
+  entities/案例/cases-sinopec-learning-transformation.md
+    old: type/案例, AI赋能
+    new: type/案例, 知识管理
+    title=中国石化 — 干部教育培训学用转化探索与实践  maturity=sapling
+  entities/案例/cases-soe-globalization.md
+    old: type/案例, 出海战略, 知识管理, 谈判沟通, 跨文化, 央企
+    new: type/案例, 出海战略, 知识管理, 谈判沟通, 跨文化, 央企
+    title=央企国际化 — 全球化组织管理与跨文化沟通案例萃取  maturity=tree
+  entities/案例/cases-soe-training-insights.md
+    old: 人才, 出海, 央企, 谈判
+    new: type/案例, 人才管理, 出海战略, 谈判沟通, 央企
+    title=央企培训素材簇全景与提取状态  maturity=tree
+  entities/案例/cases-state-owned-enterprise.md
+    old: type/案例, 人才管理, 央企
+    new: type/案例, 人才管理, 央企
+    title=央企国际化人才培养案例  maturity=sapling
+  entities/案例/cases-sungrow-power-sources.md
+    old: 人才, 跨文化, 领导力
+    new: type/案例, 人才管理, 跨文化, 领导力
+    title=阳光电源国际化人才培养案例  maturity=sapling
+  entities/案例/cases-tencent.md
+    old: type/案例, 人才管理, 民企
+    new: type/案例, 人才管理, 民企
+    title=腾讯国际化人才培养  maturity=sapling
+  entities/案例/cases-tianhong-digital-talent-model.md
+    old: type/案例, AI赋能, 人才管理
+    new: type/案例, AI赋能, 人才管理
+    title=天虹数科 — "三大五小"数字化人才粮仓模型  maturity=sapling
+  entities/案例/cases-tianma-digital-leadership-ai.md
+    old: type/案例, AI赋能, 人才管理, 领导力
+    new: type/案例, AI赋能, 人才管理, 领导力
+    title=天马集团 — 数字化领导力与"AI+领导力"培养体系  maturity=sapling
+  entities/案例/cases-united-imaging.md
+    old: 出海
+    new: type/案例, 出海战略
+    title=联影医疗：医疗设备出海从"卖产品"到"建体系"的升维路径  maturity=sapling
+  entities/案例/cases-yangjiang-nuclear-digital-talent.md
+    old: type/案例, AI赋能, 人才管理
+    new: type/案例, 人才管理
+    title=阳江核电 — 数字梯队分层分类培养体系  maturity=sapling
+  entities/案例/cases-zte-digital-leadership.md
+    old: type/案例, AI赋能, 人才管理, 领导力
+    new: type/案例, 人才管理, 领导力
+    title=中兴通讯 — ZBlue蓝色领导力培养体系  maturity=sapling
+  entities/案例/central-soe-cccc-review.md
+    old: type/案例, 出海战略, 语言培训, 央企
+    new: type/案例, 出海战略, 语言培训, 央企
+    title=中交海外外语项目复盘  maturity=tree
+  entities/案例/central-soe-foreign-business-negotiation.md
+    old: type/案例, 谈判沟通, 央企
+    new: type/案例, 谈判沟通, 央企
+    title=央企涉外商务谈判  maturity=sapling
+  entities/案例/central-soe-foreign-engineering.md
+    old: type/案例, 知识管理, 央企
+    new: type/案例, 知识管理, 央企
+    title=央企涉外工程培训  maturity=tree
+  entities/案例/central-soe-rise-concept-model.md
+    old: type/案例, 谈判沟通, 跨文化, 央企
+    new: type/案例, 谈判沟通, 跨文化, 央企
+    title=R.I.S.E. 跨文化业务表达与决策优化解决方案  maturity=sapling
+  entities/案例/central-soe-talent-plan-2023-2025.md
+    old: 人才, 央企
+    new: type/案例, 人才管理, 央企
+    title=国资集团公司三年人才发展规划纲要（2023-2025）  maturity=tree
+  entities/案例/central-soe-training-system.md
+    old: type/案例, 知识管理, 央企
+    new: type/案例, 知识管理, 央企
+    title=央企培训体系（Ben Phone）  maturity=tree
+  entities/案例/china-enterprise-overseas-overview.md
+    old: 出海, 区域/东南亚
+    new: type/案例, 人才管理, 出海战略, 行业洞察, 区域/东南亚, 央企
+    title=中国企业出海人才趋势全景  maturity=sapling
+  entities/案例/citic-construction-intl-talent.md
+    old: type/案例, 人才管理, 央企
+    new: type/案例, 人才管理, 央企
+    title=中信建设国际化人才培养体系  maturity=sapling
+  entities/案例/citic-construction-language-training.md
+    old: type/案例, 语言培训, 央企
+    new: type/案例, 语言培训, 央企
+    title=中信建设外语培训与考试体系  maturity=tree
+  entities/案例/citic-construction-talent-system.md
+    old: type/案例, 人才管理, 知识管理, 央企
+    new: type/案例, 人才管理, 知识管理, 央企
+    title=中信建设人才培养方法论体系  maturity=tree
+  entities/案例/cr-cross-cultural-management.md
+    old: type/案例, 跨文化
+    new: type/案例, 跨文化, 央企
+    title=华润跨文化管理实践  maturity=sapling
+  entities/案例/cr-enterprise-language-training.md
+    old: type/案例, 知识管理
+    new: type/案例, 语言培训, 央企
+    title=华润企业外语培训体系  maturity=sapling
+  entities/案例/cr-international-negotiation-presentation.md
+    old: type/案例, 出海战略, 谈判沟通
+    new: type/案例, 谈判沟通, 央企
+    title=华润涉外演讲与谈判培训  maturity=sapling
+  entities/案例/cr-localization-management.md
+    old: type/案例, 属地化
+    new: type/案例, 属地化, 知识管理, 央企
+    title=华润属地化管理方法论  maturity=sapling
+  entities/案例/crl-hr-policy-system.md
+    old: type/案例, 人才管理, 央企
+    new: type/案例, 知识管理, 央企
+    title=华润集团HR政策体系（央企标杆）  maturity=tree
+  entities/案例/enterprise-going-global-landscape.md
+    old: type/案例, 出海战略
+    new: type/案例, 出海战略
+    title=中国出海企业全景数据实体卡片  maturity=tree
+  entities/案例/enterprise-internationalization-cases.md
+    old: type/案例, 出海战略
+    new: type/案例, 知识管理
+    title=企业国际化案例卡片  maturity=tree
+  entities/竞品/engnice-competitor-analysis.md
+    old: type/报告, 行业洞察, 语言培训
+    new: type/报告, 行业洞察, 语言培训
+    title=英耐英语竞品深度分析  maturity=sapling
+  entities/竞品/speexx-competitor-analysis.md
+    old: type/报告, 行业洞察
+    new: type/报告, 行业洞察
+    title=Speexx 竞品分析  maturity=tree
+  entities/竞品/tianyuan-hongding-competitive-analysis.md
+    old: type/报告, 知识管理, 行业洞察
+    new: type/报告, 知识管理, 行业洞察
+    title=天元鸿鼎竞品深度萃取  maturity=sapling
+  entities/竞品/tianyuan-hongding-methodology.md
+    old: type/报告, 人才管理, 知识管理
+    new: type/报告, 人才管理, 知识管理
+    title=天元鸿鼎人才培养方法论框架（跨领域可复用）  maturity=tree
+  entities/竞品/tianyuanhongding-competitor-analysis.md
+    old: type/报告, 行业洞察
+    new: type/报告, 行业洞察
+    title=天元鸿鼎竞品深度分析  maturity=sapling
+  entities/竞品/yingnai-english-competitive-analysis.md
+    old: type/报告, 知识管理, 行业洞察, 语言培训
+    new: type/报告, 知识管理, 行业洞察, 语言培训
+    title=英耐英语竞品深度萃取  maturity=sapling
+  entities/竞品/yingnai-english.md
+    old: AI
+    new: type/报告, AI赋能, 语言培训
+    title=英耐英语 (Impact English)  maturity=tree
+  entities/索引/equalocean-research-index.md
+    old: 区域/东南亚
+    new: type/索引, 出海战略, 区域/东南亚
+    title=EqualOcean（亿欧）出海研究参考库  maturity=sapling
+  entities/索引/finance-magazine-index.md
+    old: type/索引, 知识管理
+    new: type/索引, 知识管理
+    title=Untitled  maturity=sapling
+  entities/索引/hr-magazine-index.md
+    old: type/索引, 知识管理
+    new: type/索引, 知识管理
+    title=Untitled  maturity=sapling
+  entities/索引/hroot-hr-research-index.md
+    old: 人才, 区域/东南亚
+    new: type/索引, 人才管理, 区域/东南亚
+    title=HRoot人力资源行业参考库  maturity=sapling
+  entities/索引/international-observation-index.md
+    old: 出海, 跨文化
+    new: type/索引, 出海战略, 跨文化
+    title=国际观察素材索引与培训参考  maturity=sapling
+  entities/索引/overseas-regional-research-index.md
+    old: type/索引, 出海战略, 区域/东南亚
+    new: type/索引, 出海战略, 区域/东南亚
+    title=出海区域研究与国际观察资料索引  maturity=sapling
+  entities/索引/soe-magazine-index.md
+    old: 央企
+    new: type/索引, 知识管理, 央企
+    title=国企杂志素材索引  maturity=sapling
+  entities/索引/state-assets-report-index.md
+    old: type/索引, 知识管理
+    new: type/索引, 知识管理
+    title=国资报告 — 索引实体  maturity=sapling
+  entities/索引/state-assets-report-policy-index.md
+    old: type/索引, 知识管理
+    new: type/索引, 知识管理
+    title=国资报告政策资料索引  maturity=sapling
+  entities/索引/state-owned-enterprises-index.md
+    old: type/索引, 知识管理, 央企
+    new: type/索引, 知识管理, 央企
+    title=国企刊物 — 索引实体  maturity=sapling
+  entities/索引/systematic-certification-index.md
+    old: 出海
+    new: type/索引, 出海战略
+    title=体系化认证与企业出海护航素材  maturity=sapling
+  entities/训练产品/b2b-professional-sales-training.md
+    old: type/工具, 知识管理
+    new: type/工具, 知识管理
+    title=B2B专业销售培训方案  maturity=sapling
+  entities/训练产品/b2b-sales-training.md
+    old: type/工具, 知识管理
+    new: type/工具, 知识管理
+    title=B2B销售培训课程方案  maturity=sapling
+  entities/训练产品/business-english-meetings.md
+    old: 跨文化
+    new: type/工具, 语言培训, 谈判沟通, 跨文化
+    title=商务英语会议手册  maturity=sapling
+  entities/训练产品/business-meeting-handbook.md
+    old: 跨文化
+    new: type/工具, 语言培训, 谈判沟通, 跨文化
+    title=Business Meeting Handbook 商务会议英语手册  maturity=sapling
+  entities/训练产品/carl-training-proposals-supplement.md
+    old: type/工具, 知识管理
+    new: type/工具, 知识管理
+    title=Carl培训方案补充索引  maturity=tree
+  entities/训练产品/cec-training-proposal-library.md
+    old: type/工具, 出海战略, 央企
+    new: type/工具, 出海战略, 央企
+    title=央企出海培训方案库索引  maturity=tree
+  entities/训练产品/communication-skills-training-robert-moore.md
+    old: type/工具, 谈判沟通
+    new: type/工具, 谈判沟通
+    title=Communication Skills Training（Robert Moore）  maturity=sapling
+  entities/训练产品/cross-cultural-case-training.md
+    old: type/工具, 跨文化
+    new: type/工具, 跨文化
+    title=跨文化管理精品案例培训应用  maturity=sapling
+  entities/训练产品/cross-industry-overseas-training-demand.md
+    old: type/工具, 人才管理, 出海战略, 语言培训, 区域/东南亚
+    new: type/工具, 人才管理, 出海战略, 区域/东南亚
+    title=出海行业人才培训需求分析卡片  maturity=tree
+  entities/训练产品/industry-function-training-cases.md
+    old: type/工具, 知识管理
+    new: type/工具, 知识管理
+    title=行业职能培训案例与方法论  maturity=tree
+  entities/训练产品/presentation-skills-workbook.md
+    old: 跨文化
+    new: type/工具, 跨文化
+    title=Presentation Skills Workbook（Johns Hopkins）  maturity=sapling
+  entities/训练产品/training-magazine-industry-trends.md
+    old: type/工具, 行业洞察
+    new: type/工具, 行业洞察
+    title=培训杂志行业趋势参考  maturity=tree
+  entities/训练产品/training-solution-innovation-case-library.md
+    old: type/工具, 知识管理
+    new: type/工具, 知识管理
+    title=培训方案设计方法论与创新案例库  maturity=tree
+  entities/训练产品/ttt-instructor-training-system.md
+    old: type/工具, 人才管理
+    new: type/工具, 人才管理
+    title=TTT内训师培养体系  maturity=sapling
+  reports/health_report_202605.md
+    old: type/报告, 知识管理
+    new: type/报告, 知识管理
+    title=Untitled  maturity=seed
+  reports/health_report_202605_final.md
+    old: type/报告, 知识管理
+    new: type/报告, 知识管理
+    title=Untitled  maturity=tree
+  方法工具箱/课程萃取项目/README.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/中层领导力课程体系萃取报告.md
+    old: type/报告, 知识管理, 领导力
+    new: type/方法, 领导力
+    title=Untitled  maturity=tree
+  方法工具箱/课程萃取项目/知识卡片-中层领导力课程体系.md
+    old: 人才, 出海, 领导力
+    new: type/方法, 人才管理, 出海战略, 领导力
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/1-项目概览/干系人沟通记录.md
+    old: type/方法, 谈判沟通
+    new: type/方法, 知识管理
+    title=Untitled  maturity=seed
+  方法工具箱/课程萃取项目/1-项目概览/项目立项书.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/1-项目概览/项目计划.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/2-需求分析/业务场景分析.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/2-需求分析/学员画像分析.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=seed
+  方法工具箱/课程萃取项目/2-需求分析/需求调研报告.md
+    old: type/报告, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=seed
+  方法工具箱/课程萃取项目/3-知识萃取工具/专家访谈记录表.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/3-知识萃取工具/思维导图引导模板.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/3-知识萃取工具/案例采集模板.md
+    old: type/案例, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/3-知识萃取工具/知识卡片模板.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/3-知识萃取工具/知识萃取全景图.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/3-知识萃取工具/经验复盘工作坊设计.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/3-知识萃取工具/访谈提纲模板.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=tree
+  方法工具箱/课程萃取项目/3-知识萃取工具/隐性知识显性化清单.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/4-课程设计/教学设计方案.md
+    old: type/方案, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=seed
+  方法工具箱/课程萃取项目/4-课程设计/课程大纲.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/5-课程开发/学员手册.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=seed
+  方法工具箱/课程萃取项目/5-课程开发/讲师手册.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=seed
+  方法工具箱/课程萃取项目/6-评估反馈/四级评估方案.md
+    old: type/方案, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=seed
+  方法工具箱/课程萃取项目/6-评估反馈/学员反馈模板.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=seed
+  方法工具箱/课程萃取项目/6-评估反馈/课程迭代记录.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=seed
+  方法工具箱/课程萃取项目/交付成果/README.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=seed
+  方法工具箱/课程萃取项目/模板库/交付物检查清单.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  方法工具箱/课程萃取项目/模板库/课程萃取流程模板.md
+    old: type/方法, 知识管理
+    new: type/方法, 知识管理
+    title=Untitled  maturity=sapling
+  索引/月度专题/06-跨文化实战.md
+    old: type/方法, 跨文化
+    new: type/索引, 跨文化
+    title=Untitled  maturity=tree
+  诊断报告/质量评分_20260508.md
+    old: type/方法, 知识管理
+    new: type/报告, 知识管理
+    title=Untitled  maturity=sapling
+
+Files: 421  Changed: 421  Errors: 0
+Types: {'案例': 169, '方法': 98, '模型': 78, '数据': 20, '报告': 18, '索引': 17, '工具': 17, '对比': 4}
+Domains: {'知识管理': 139, '出海战略': 119, '人才管理': 103, '语言培训': 100, '跨文化': 51, '谈判沟通': 38, 'AI赋能': 24, '行业洞察': 22, '属地化': 14, '合规风控': 13, '领导力': 12}
+
+Run with --apply to write changes.

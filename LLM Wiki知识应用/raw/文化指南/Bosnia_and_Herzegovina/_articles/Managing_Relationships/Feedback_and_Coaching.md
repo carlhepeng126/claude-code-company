@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Bosnia and Herzegovina is shaped by the need to preserve dignity and maintain relational balance in a society where professional and personal lives are closely connected. Colleagues often work alongside people they've known for years, sometimes across family or community networks, and public criticism can damage reputations beyond the workplace. As a result, negative feedback is given privately, framed carefully, and often softened through indirect language or suggestion. A manager might say, "It could be useful to think about how this might be received," rather than pointing out a mistake directly. This indirectness protects the relationship while still opening the door to reflection.
+
+Positive feedback, by contrast, can be shared more openly, though it tends to be understated. Effusive praise may feel excessive or insincere, and singling someone out too strongly can create tension within a group where equality and collective effort are valued. A quiet acknowledgment or a comment made in passing often holds more weight than a formal commendation. For colleagues from cultures where regular, explicit praise is expected, this restraint may feel like indifference. From a Bosnian perspective, frequent public recognition can seem performative or even uncomfortable, particularly when it disrupts the balance within the team.
+
+Coaching conversations often unfold informally, over coffee or in hallway exchanges, rather than through scheduled performance reviews. Trust is built through repeated, everyday interactions, and advice is more readily accepted when it comes from someone with established rapport. If you're introducing feedback processes that feel formal or detached, frame them relationally and allow time for the conversation to develop naturally, rather than treating it as a one-off transaction.

@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+For many Colombian employees, the real engine behind daily effort is not abstract ambition but a concrete family goal: buying their parents a house, getting a sibling through university, securing a better school for their children, or making migration paperwork happen. When managers connect rewards and recognition to these lived realities — through education support, stable contracts, flexible hours, or healthcare — the motivation runs far deeper than it would from a performance bonus tied only to KPIs. Money certainly matters, but it matters because of what it enables at home.
+
+Just as powerful is the recognition of *berraquera*, the ability to push through hardship with grit and humor. Being seen as *berraco* or *berraca* is a source of genuine pride. When a manager calls this out in front of peers — "*te fajaste con esto*" (you really went for it) or "*sacaste esto adelante en una situación dura*" (you pulled this through in a tough situation) — it lands far more deeply than a generic "good job." The specificity and public acknowledgment matter. Work that recognizes and channels this quality feels meaningful in a way that process-driven feedback often does not.
+
+Equally central is the question of *respeto*. How you speak to receptionists, drivers, guards, and cleaning staff registers as closely as what you offer in bonuses. Colombians are acutely sensitive to being treated with dignity, and public humiliation or condescension can undo months of material incentives. A manager who audits their own daily behavior — tone, jokes, who gets greeted and how — is doing core motivational work, not peripheral relationship-building.

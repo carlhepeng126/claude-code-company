@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback on the Isle of Man tends to be delivered quietly, often indirectly, and with a strong preference for privacy. The island's tight-knit professional community means reputation matters deeply, and public criticism can linger in ways that affect relationships across multiple settings. Managers are more likely to mention concerns in a casual conversation or through subtle suggestion than through formal performance reviews. A phrase like "you might want to think about that a bit" can signal more concern than the words themselves suggest. This reflects a broader cultural value of avoiding confrontation and maintaining harmony within small, interconnected workplaces where people are likely to encounter each other outside of work as well.
+
+Coaching relationships develop slowly and rely on personal trust rather than positional authority. Mentorship often happens informally, through observation and occasional guidance rather than structured sessions. Direct, detailed criticism can feel uncomfortable for both parties, and the person receiving it may withdraw rather than engage. If you need to address a performance issue, framing it as a shared problem to solve together, or raising it gently in a one-to-one setting, will be more effective than a direct critique. Allowing time for the message to settle is also common, as people may prefer to reflect privately before responding.
+
+Praise, by contrast, can be offered more openly, though it's usually understated. Overly enthusiastic or frequent public recognition may feel insincere or even embarrassing, particularly for individuals who value modesty. A brief acknowledgment of good work in a team meeting, or a quiet word afterward, is often appreciated more than formal awards or elaborate commendation.

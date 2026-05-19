@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Portuguese hospitality operates through quiet care rather than ceremony. A host may offer coffee, a pastry, something "to keep you going," delivered with relaxed attentiveness rather than elaborate gestures. The aim is to make you feel you are not a burden. This understated approach can be misread by colleagues from cultures where hosting involves more visible ceremony as a lack of warmth, when it actually reflects a different way of showing welcome. From the Portuguese side, highly orchestrated hosting can feel showy or insincere. What reads as genuine care in Portugal is practical comfort, offered without fuss.
+
+Politeness follows a living respect code. Titles like *senhor* or *senhora* (sir or madam), and in many contexts *Doutor* or *Doutora* (a term tied to education or status, not always a doctorate), are used to place someone safely and respectfully in the social order, especially early on. This formality does not mean distance. It protects dignity and keeps the encounter smooth. A guest who jumps too quickly to first names or assumes instant informality can make their host uncomfortable. Wait to be invited to shift register.
+
+Tact protects everyone. Hosts help guests feel comfortable. Guests help hosts avoid embarrassment. This means not pushing for personal disclosure, not making refusals feel dramatic, and not over-questioning. Privacy holds even within warmth. Deeper intimacy tends to arrive through repeated contact and reliability rather than early openness. The neighbourhood, the family home, the local café—these are emotionally charged spaces. What is served, what is shown, and the stories told often express pride in place in small, indirect ways.

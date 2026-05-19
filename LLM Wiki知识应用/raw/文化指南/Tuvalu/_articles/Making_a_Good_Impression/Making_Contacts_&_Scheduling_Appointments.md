@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Tuvalu's small and tightly connected society, professional relationships are nearly always rooted in personal connection first. With only around 11,000 people spread across nine islands, most business contacts already know each other, or know someone who does. Making an appointment from outside this network usually begins with a referral or introduction from someone already trusted. Cold outreach rarely leads anywhere quickly. If you're working with a Tuvaluan organization, ask your existing contact to facilitate the connection. That person can explain your purpose, vouch for your credibility, and open the conversation in a way that feels natural rather than transactional.
+
+Scheduling appointments requires flexibility and a willingness to adjust. Meetings are often arranged informally, sometimes through a brief phone call or message rather than a formal calendar invitation. Confirm the time and place a day or two before, and expect that the meeting may start later than planned or be interrupted by other priorities. In a society where family obligations, community events, and island logistics can all shift schedules at short notice, this fluidity reflects real constraints rather than casual planning. Building in buffer time and avoiding tightly packed agendas will help you adapt without frustration.
+
+Face-to-face contact is always preferred once you're on the island. A brief visit in person, even unscheduled, can move things forward faster than several emails. Tuvaluans tend to assess trustworthiness through direct interaction, and the time spent talking informally often achieves more than a structured agenda would.

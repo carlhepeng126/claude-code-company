@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+A firm handshake with direct eye contact opens most business encounters in Germany, and the same attention applies when leaving. In smaller meetings, people often greet and say goodbye to each person individually rather than addressing the room as a whole. This ritual of acknowledgment reflects a broader cultural preference for clarity and accountability in relationships. Each interaction has a clear beginning and end, and drifting in or out without marking the moment can come across as careless.
+
+Politeness here looks different than in cultures where warmth is expressed through compliments or personal questions. German professionalism shows up in preparation, punctuality, and follow-through. Saying you will do something and then doing it builds trust faster than effusive praise, which often sounds hollow or strategic. There is historical suspicion of grand gestures and self-promotion, rooted partly in a postwar wariness of anything that feels performative or manipulative. As a result, humility and letting your work speak for itself tend to earn more respect than name-dropping or dramatic displays of enthusiasm.
+
+The line between work and private life is drawn clearly and protected deliberately. Many colleagues will keep family matters, weekend plans, and home life separate from the office for months or even years. Asking personal questions too early can feel intrusive, as though you are pushing past a boundary that has not yet been offered. Stick to neutral topics like travel, culture, or recent projects until the other person volunteers something more personal. This distance is a form of respect, a way of honoring the idea that not everything needs to be shared to work together effectively.

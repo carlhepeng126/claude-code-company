@@ -1,0 +1,11 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Lebanon begin with small talk and often proceed without a strict agenda. Conversation is expected to flow, and many people find a rigid structure cold. What looks informal to someone from a culture where efficiency means moving quickly through a checklist can feel more appropriate here. Lebanese professionals are reading the room in ways that go beyond the stated agenda: who is present, how relationships sit in the room, and what topics might shift the tone in ways that are hard to walk back. This comes from a context where communal balance has long been negotiated, not assumed, and where social intelligence often means knowing when not to press a point.
+
+Language may shift mid-conversation. Arabic, French, and English often move in and out of the same meeting, and the switch can do more than translate. It may adjust formality, warmth, or distance without anyone naming the change. Following the register the room settles into, rather than imposing one language or tone, helps you stay aligned with how people are managing the conversation.
+
+Expect interruptions. An open-door approach is common, and meetings may pause when someone else enters. Wait for the interruption to resolve before resuming, and if appropriate, join the new thread of conversation. This reflects a relational priority, not a lack of focus. For someone from a culture where meetings are protected time, this can feel disruptive, but cutting off the interruption may read as cold or controlling.
+
+Practical realities shape timing and attendance. Infrastructure constraints, including power supply, have become part of daily logistics. If someone arrives late or reschedules, it may reflect circumstances they have long adapted to, not a lack of commitment. Confirming details in writing after a meeting is useful, especially where agreement was verbal. People may say yes to preserve face or keep the relationship workable, even when full commitment is not yet in place.

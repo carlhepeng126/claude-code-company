@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Romanian professional life uses formality as a protective framework, especially across generations and hierarchies. The language itself builds respect through its grammar: the formal pronoun *dumneavoastră* (roughly "you" in formal address) creates distance and dignity, particularly in first meetings, with senior colleagues, or when speaking to someone whose professional standing is clear. This formality reflects a culture where education and role signal earned status, a pattern rooted in post-1989 mobility aspirations and older social protections. Start with surnames preceded by *Domnul* (Mr.) or *Doamna* (Mrs.), and wait for an invitation to shift. In many traditional offices, colleagues continue to use surnames and titles even after years of working together, though multinational environments often soften this norm faster.
+
+Titles matter. Academic and professional markers such as *Doctor* or *Profesor* should precede the surname and are expected in both spoken and written settings. Business cards are exchanged at every meeting, and handshakes are standard. You may also encounter the older custom of a man kissing a woman's hand, a gesture that still appears in more formal or traditional circles. Physical proximity tends to be closer than in many Northern European or North American settings, so standing near someone during conversation is typical rather than intrusive.
+
+Regional and minority contexts also shape how formality unfolds. In bilingual areas or workplaces with significant Hungarian or other minority representation, language choice becomes part of how respect is expressed. Asking preferences directly and adjusting accordingly signals cultural attentiveness, not hesitation. The person who mirrors the most respectful tone in the room and waits to be invited into informality will usually read as considerate rather than stiff.

@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+How you present yourself in professional settings in Tanzania reflects not just personal taste but your understanding of dignity, modesty, and social seriousness. Clothing communicates moral standing and reliability. Smart, understated appearance shows respect for the people you're meeting and the occasion itself. Men typically wear light business suits with shirts and ties, while women choose below-the-knee skirts or tailored trousers with modest tops, sometimes full suits. The climate allows for linen and lighter fabrics, but coverage remains the baseline. Bare shoulders or bare legs in professional or public settings read as inconsiderate, so even in warm conditions, showing up well covered demonstrates awareness of what's expected.
+
+Religious and historical norms shape these expectations in different ways depending on where you are. Islamic traditions along the coast and in Zanzibar emphasize modesty, while Christian and indigenous influences inland reinforce similar values around public presentation. These aren't separate codes but overlapping expectations that together create a conservative standard across most formal contexts. If you're unsure, a more covered, understated choice will serve you better than something revealing or flashy.
+
+Urban settings, especially among younger professionals, reflect more global influences in everyday dress, but traditional expectations often resurface when the context becomes more formal, cross-generational, or public-facing. What works in a Dar es Salaam tech startup may not work in a government ministry or a meeting with senior stakeholders. Reading the setting and adjusting accordingly shows cultural sensitivity and strengthens your credibility from the start.

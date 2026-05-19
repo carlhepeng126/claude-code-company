@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information tends to move freely across Canadian workplaces, shaped by flat structures and an expectation that employees at most levels should have visibility into company direction. This openness reflects both a British administrative legacy that values formal documentation and due process, and a multicultural workforce where making communication norms explicit helps avoid misunderstanding. Large organizations often use intranets, newsletters, and cross-departmental committees to keep people informed. The underlying assumption is that access to information supports better decision-making and signals respect for the people doing the work.
+
+That openness has limits, though, rooted in politeness norms and a preference for avoiding discomfort. Canadians may soften negative information or frame concerns carefully to maintain harmony, particularly when the issue involves another person. A manager might say "we're still working through a few challenges" rather than stating outright that a project is off track. For colleagues from cultures where problems are named more directly, this can create confusion about how serious the issue actually is. Meanwhile, a Canadian working with a colleague who delivers bad news bluntly may read that directness as unnecessarily harsh or blame-focused, even when no offense was intended.
+
+Follow-up questions help surface what has been softened. Asking "what would help us move forward?" or "are there any blockers we should address now?" invites a clearer picture without putting someone on the spot. Creating low-pressure channels for dissent, such as anonymous feedback tools or private one-on-one meetings, also encourages honesty, particularly in diverse teams where comfort levels with open disagreement vary widely.

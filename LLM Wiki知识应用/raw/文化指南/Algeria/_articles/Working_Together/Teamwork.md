@@ -1,0 +1,11 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Algeria often runs through peer networks before it runs through formal lines. Algeria's history of imposed authority, from colonial rupture through centralized governance, has built a protective instinct: people collaborate closely with those whose intentions they can read, while giving leaders respect but withholding full trust until credibility is earned through fairness and consistency. This is discernment, rooted in experience. Teams may appear deferential in meetings, but real coordination happens through trusted relationships, and initiative tends to be relational before it is positional.
+
+In many communities, especially those with roots in Amazigh governance traditions, there is a cultural template for what good collaboration looks like: dialogic, answerable, consensus-oriented. Village assemblies like the tajmaat governed through deliberation, not decree, and even when people have never participated in such councils, the moral imagination of legitimate process persists. This means consultative approaches often land well, while top-down directives without explanation can feel disconnected or arbitrary.
+
+Contribution itself is moral, shaped by mutual-aid traditions like twiza, where showing up and doing your part was how membership was demonstrated. People expect steady, visible effort to be noticed and respected, and trust builds around quiet competence rather than self-promotion. Recognition that acknowledges contribution over time supports engagement, because dependability is a core social signal.
+
+Cohesion also depends on protecting dignity. Humiliation is socially expensive, especially across lines of age or seniority, and public criticism can fracture cooperation. Handling tensions privately and preserving face allows people to continue working together without resentment or withdrawal. Urban coastal settings may move faster and divide tasks more explicitly, while rural and mountain communities may hold stronger communal obligation norms and sharper sensitivity to imposed authority.

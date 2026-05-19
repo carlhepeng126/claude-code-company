@@ -1,0 +1,250 @@
+<!DOCTYPE html>
+<html lang="zh-CN">
+<head>
+<meta charset="UTF-8">
+<meta name="viewport" content="width=1080,height=1920">
+<link rel="preconnect" href="https://fonts.googleapis.com">
+<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin>
+<link href="https://fonts.googleapis.com/css2?family=Noto+Sans+SC:wght@300;400;500;700&family=Noto+Serif+SC:wght@400;600;700;900&display=swap" rel="stylesheet">
+<style>
+  :root {
+    --navy: #1B2A4A;
+    --gold: #C8963E;
+    --cream: #FAF8F5;
+  }
+  * { margin: 0; padding: 0; box-sizing: border-box; }
+  body {
+    width: 1080px;
+    height: 1920px;
+    font-family: 'Noto Sans SC', sans-serif;
+    background: var(--cream);
+    overflow: hidden;
+    display: flex;
+    flex-direction: column;
+    position: relative;
+  }
+  body::before {
+    content: '';
+    position: absolute;
+    top: 0; left: 0; right: 0; bottom: 0;
+    background: url("data:image/svg+xml,%3Csvg viewBox='0 0 256 256' xmlns='http://www.w3.org/2000/svg'%3E%3Cfilter id='n'%3E%3CfeTurbulence type='fractalNoise' baseFrequency='0.9' numOctaves='4' stitchTiles='stitch'/%3E%3C/filter%3E%3Crect width='100%25' height='100%25' filter='url(%23n)' opacity='0.02'/%3E%3C/svg%3E");
+    opacity: 0.5;
+    pointer-events: none;
+    z-index: 0;
+  }
+
+  .header {
+    position: relative;
+    z-index: 1;
+    background: var(--navy);
+    padding: 40px 60px 35px;
+    color: white;
+  }
+  .header .overline {
+    font-size: 13px;
+    letter-spacing: 8px;
+    color: var(--gold);
+    opacity: 0.7;
+    margin-bottom: 10px;
+  }
+  .header h1 {
+    font-family: 'Noto Serif SC', serif;
+    font-size: 36px;
+    font-weight: 900;
+    letter-spacing: 4px;
+  }
+  .header .sub {
+    font-size: 15px;
+    color: rgba(255,255,255,0.5);
+    margin-top: 8px;
+    letter-spacing: 2px;
+  }
+  .header .accent-num {
+    font-family: 'Playfair Display', serif;
+    font-size: 140px;
+    font-weight: 900;
+    opacity: 0.04;
+    position: absolute;
+    right: 50px;
+    top: -20px;
+    color: white;
+  }
+
+  .content {
+    position: relative;
+    z-index: 1;
+    flex: 1;
+    padding: 30px 60px 40px;
+    display: flex;
+    flex-direction: column;
+    gap: 0;
+  }
+
+  table {
+    width: 100%;
+    border-collapse: collapse;
+    font-size: 19px;
+  }
+  table thead th {
+    background: var(--navy);
+    color: white;
+    padding: 16px 20px;
+    text-align: left;
+    font-weight: 500;
+    font-size: 16px;
+    letter-spacing: 3px;
+  }
+  table tbody td {
+    padding: 16px 20px;
+    border-bottom: 1px solid rgba(27,42,74,0.06);
+    vertical-align: middle;
+  }
+  table .cat-row td {
+    background: rgba(200,150,62,0.07);
+    font-weight: 700;
+    color: var(--navy);
+    font-size: 20px;
+    letter-spacing: 2px;
+    padding: 18px 20px;
+  }
+  .tt-num {
+    color: var(--gold);
+    font-weight: 700;
+    font-family: 'Playfair Display', serif;
+    font-size: 22px;
+    width: 50px;
+  }
+  .tt-name {
+    color: var(--navy);
+    font-weight: 700;
+    font-size: 19px;
+  }
+  .tt-use {
+    color: #6B7B8F;
+    font-size: 17px;
+    line-height: 1.5;
+  }
+
+  .footer {
+    position: relative;
+    z-index: 1;
+    padding: 20px 60px;
+    border-top: 1px solid rgba(27,42,74,0.06);
+    display: flex;
+    justify-content: space-between;
+    align-items: center;
+    font-size: 15px;
+    color: #94A3B8;
+    letter-spacing: 2px;
+  }
+  .footer strong {
+    color: var(--gold);
+    font-weight: 500;
+  }
+</style>
+</head>
+<body>
+
+<div class="header">
+  <div class="accent-num">08</div>
+  <div class="overline">TOOLKIT OVERVIEW</div>
+  <h1>26套工具 · 全覆盖 · 填空即用</h1>
+  <div class="sub">按阶段分组，每套工具标注了使用时刻</div>
+</div>
+
+<div class="content">
+  <table>
+    <thead>
+      <tr><th style="width:70px">编号</th><th style="width:280px">工具名称</th><th>用在哪一刻</th></tr>
+    </thead>
+    <tbody>
+      <tr class="cat-row"><td colspan="3">选拔阶段 · 4套</td></tr>
+      <tr>
+        <td class="tt-num">01</td>
+        <td class="tt-name">海外派遣岗位胜任力说明书</td>
+        <td class="tt-use">启动选拔，和业务部门对齐"到底要什么人"</td>
+      </tr>
+      <tr>
+        <td class="tt-num">02</td>
+        <td class="tt-name">评鉴中心方案设计手册</td>
+        <td class="tt-use">候选人进入短名单，设计 1-2 天集中评鉴</td>
+      </tr>
+      <tr>
+        <td class="tt-num">03</td>
+        <td class="tt-name">家庭支持度结构化访谈指南</td>
+        <td class="tt-use">终面通过后，与候选人及配偶深度面谈</td>
+      </tr>
+      <tr>
+        <td class="tt-num">04</td>
+        <td class="tt-name">综合决策委员会评估矩阵</td>
+        <td class="tt-use">所有评估完成，做最终录用决策</td>
+      </tr>
+
+      <tr class="cat-row"><td colspan="3">培养阶段 · 5套</td></tr>
+      <tr>
+        <td class="tt-num">05</td>
+        <td class="tt-name">派前集训四件套</td>
+        <td class="tt-use">出发前 3-6 个月，合规通关 + 跨文化 + 语言 + 实战</td>
+      </tr>
+      <tr>
+        <td class="tt-num">06</td>
+        <td class="tt-name">双导师制运作手册</td>
+        <td class="tt-use">出发前 1 月配对，派驻期全程运转</td>
+      </tr>
+      <tr>
+        <td class="tt-num">07</td>
+        <td class="tt-name">1-3-6-12 月节点复盘模板</td>
+        <td class="tt-use">抵达后每个关键节点强制结构化复盘</td>
+      </tr>
+      <tr>
+        <td class="tt-num">08</td>
+        <td class="tt-name">海外知识资产沉淀四件套</td>
+        <td class="tt-use">归国前 6 个月启动，防止"人走知识走"</td>
+      </tr>
+      <tr>
+        <td class="tt-num">09</td>
+        <td class="tt-name">90 天个性化发展计划 (IDP)</td>
+        <td class="tt-use">出发前制定，抵达后 90 天执行 + 评估</td>
+      </tr>
+
+      <tr class="cat-row"><td colspan="3">合规模块 · 3套</td></tr>
+      <tr>
+        <td class="tt-num">10</td>
+        <td class="tt-name">全球用工合规风险自检清单</td>
+        <td class="tt-use">每年至少 1 次，19 项入-在-离全周期检查</td>
+      </tr>
+      <tr>
+        <td class="tt-num">11</td>
+        <td class="tt-name">区域合规手册模板框架</td>
+        <td class="tt-use">每个派驻国编制一册，外派人员"法律说明书"</td>
+      </tr>
+      <tr>
+        <td class="tt-num">12</td>
+        <td class="tt-name">文化冲突四级处理 SOP</td>
+        <td class="tt-use">任何文化冲突事件发生时，逐级启动</td>
+      </tr>
+
+      <tr class="cat-row"><td colspan="3">策略模块 · 2套</td></tr>
+      <tr>
+        <td class="tt-num">13</td>
+        <td class="tt-name">目标市场人员配置策略画布</td>
+        <td class="tt-use">进入新市场前，五步生成国别策略</td>
+      </tr>
+      <tr>
+        <td class="tt-num">14</td>
+        <td class="tt-name">区域供应商 / 工具推荐清单</td>
+        <td class="tt-use">按企业阶段和职能，匹配合适外部服务商</td>
+      </tr>
+
+      <tr class="cat-row"><td colspan="3">扩展工具 · 12套 — 管理类 4套 + 课程类 4套 + 访谈类 4套</td></tr>
+    </tbody>
+  </table>
+</div>
+
+<div class="footer">
+  <span>14套核心工具 · 全部填空即用</span>
+  <span>摩根 (iMorgan) · <strong>2026</strong></span>
+</div>
+
+</body>
+</html>

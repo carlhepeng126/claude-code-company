@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Open confrontation risks damaging honor and family reputation in Afghanistan, so disagreement is typically handled through indirect channels rather than raised face to face. A colleague may go quiet in a meeting or agree outwardly while expressing reservations to a trusted intermediary afterward. This approach protects the relationship and preserves dignity for all involved, and it reflects a deeply relational understanding of professional life where group harmony and standing within the community take precedence over immediate resolution.
+
+A manager from a culture where feedback is given directly may assume silence means consent, only to find later that concerns were shared through others or that the plan never moved forward. From the Afghan side, someone who names the problem bluntly in front of the group may be seen as disrespectful or socially unskilled, regardless of seniority. The gap often widens when urgency is involved, as pushing for a quick answer can feel like pressure to choose between honesty and respect.
+
+Third parties play a central role. Bringing in someone both sides trust allows disagreement to surface without confrontation and gives each person room to adjust their position without losing face. If you sense tension or hesitation, follow up privately or suggest a trusted colleague join the conversation. Frame concerns in general terms first rather than attaching them to a named individual, and allow time for views to be shaped outside the formal discussion. Resolution unfolds gradually and through relationship, not through a single exchange.

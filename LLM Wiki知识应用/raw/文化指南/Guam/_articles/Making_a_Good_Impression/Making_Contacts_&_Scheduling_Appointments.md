@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Making a business contact in Guam works best when you recognize the role of personal connection in a small island community where many people know each other, and where family and local networks matter deeply. Trust develops through shared acquaintances and face-to-face interaction. A warm introduction from someone already known and respected can open doors much faster than a cold email or LinkedIn message. In practice, this might mean asking a mutual colleague to make an informal introduction over lunch, or being introduced at a community event before any formal meeting is arranged.
+
+Once the initial connection is made, scheduling tends to be informal and flexible. Appointments are usually confirmed by phone or text rather than through elaborate calendar invitations, and it's common for plans to shift if a family obligation or community matter comes up. This reflects the cultural priority placed on relationships over rigid timetables. If a meeting is delayed or rescheduled, it's rarely a sign of disinterest. Building in buffer time and avoiding tightly packed schedules will help you adapt without frustration.
+
+Younger professionals working in multinational firms or government offices may lean toward more structured scheduling, especially when dealing with off-island partners. But even in these settings, the preference for personal rapport before business remains. A colleague from a culture where appointments are locked in weeks ahead and rarely moved may find the flexibility unsettling, while someone from Guam might read over-formality in scheduling as distant or transactional.

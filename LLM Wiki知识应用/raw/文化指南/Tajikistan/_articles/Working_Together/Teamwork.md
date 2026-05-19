@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Tajikistan is shaped by deep respect for hierarchy and the importance of personal relationships. Senior team members are expected to guide and mentor those below them, but this guidance often comes indirectly through example, suggestion, or conversation rather than formal instruction. Direct correction, especially in front of others, can feel like a challenge to dignity and can damage the trust that holds teams together. For managers from cultures where feedback is given quickly and openly, this indirectness may feel like avoidance. But from a Tajik perspective, a colleague who corrects bluntly without relationship or care may seem disrespectful or unaware of how authority works.
+
+Authority figures are not simply tasked with organizing work. They are expected to take a personal interest in the well-being of their team, offering support that extends beyond professional tasks. A manager who focuses only on output and deadlines without attending to the people behind the work may be seen as cold or out of touch. This relational expectation means that time spent building rapport is not separate from productivity but part of what makes collaboration possible.
+
+Praise is most often directed at the group rather than singling out individuals. This reflects a broader cultural concern with preserving face and maintaining harmony. Highlighting one person publicly can create awkwardness or envy, while recognizing the team reinforces collective effort and protects dignity. When something goes wrong, feedback should be delivered privately and with care. Public criticism risks humiliation and can undermine not just the individual but the trust across the whole team.

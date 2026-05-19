@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Kazakh teams often cohere around something deeper than task assignment: the logic of the dastarkhan, the laid table that has long organised social life. Around the table, roles emerge quietly, elders anchor the tone, generosity circulates, and showing up means you belong. That instinct to gather around a shared centre, to organise through presence rather than procedure alone, frequently shapes how people work together. Relationship cohesion is not separate from project infrastructure. It drives follow-through, smooths coordination, and holds the group together when plans shift.
+
+This relational foundation sits alongside a procedural inheritance from Soviet structures. Many teams expect defined roles, documented processes, and visible signs of competence. The result can feel paradoxical to a colleague from a culture where informality and efficiency are seen as compatible: the same group that meets deadlines through warm, informal problem-solving may also prefer written confirmation, structured sign-offs, and clarity about who reports to whom. Both engines run at once. Respect for senior colleagues stabilizes the group in moments of uncertainty, not only because of age but because they legitimize what is proper and signal how tensions should be managed.
+
+Attending a colleague's life event or marking a personal milestone at work does more than show goodwill. In a culture where toi gatherings function as network maintenance, being present proves you can be relied on. International collaborators who skip these moments without explanation may find their standing in the team quietly diminished. Teams may also appear closed to newcomers until trust is established, not out of hostility but because membership is performed relationally over time. Change introduced suddenly, especially without consultation or explanation, can unsettle groups accustomed to moving together rather than pivoting individually.

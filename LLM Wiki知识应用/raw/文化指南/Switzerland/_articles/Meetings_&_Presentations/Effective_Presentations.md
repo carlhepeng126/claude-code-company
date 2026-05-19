@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+In Switzerland, credibility rests on precision rather than performance. A culture shaped by direct democracy expects arguments to be testable and open to challenge, and this civic habit filters into professional settings. Presentations succeed when they combine tight structure with modest claims and clear evidence. Overstatement undermines trust. Swiss audiences expect reasoning that can be followed, questioned, and held to account, and they tend to value quiet authority over rhetorical flair.
+
+Multilingual workplaces shape what clarity looks like. Even when one language is chosen, people may be processing ideas in different linguistic frames. Short sentences, defined terms, and clean visuals help everyone track the argument. Idioms, jargon, or long subordinate clauses can slow comprehension. A crisp structure with short summaries at transitions makes the content easier to follow and easier to scrutinize. When you separate facts from interpretation and spell out your assumptions, your audience can assess the logic rather than decode the delivery.
+
+Swiss audiences listen carefully, take notes, and rarely interrupt. Questions may come later, often one-on-one, as colleagues think through implications or check details they didn't want to raise in the room. This does not mean disengagement. It reflects a preference for absorbing information before responding. If your style leans toward building momentum through audience reaction, you may read the room as indifferent when people are simply reserving judgment. From the other direction, a Swiss colleague may interpret animated interruptions or vocal agreement as a lack of discipline rather than enthusiasm.
+
+Make it easy to challenge your work. Show trade-offs, explain where your data ends and interpretation begins, and invite scrutiny without defensiveness. In a culture where neutrality and quality still anchor professional identity, this reads as confidence, not weakness.

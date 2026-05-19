@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Ireland works best when it respects dignity and lands gently. Public criticism is deeply frowned upon, and people can remember public humiliation for years. This means that difficult conversations belong in private, one-on-one settings, not open forums or team meetings. Even constructive input given in front of others can feel like shaming. The cultural pull toward protecting face runs deep, shaped by oral traditions where indirect commentary and story were used to guide behavior without direct confrontation.
+
+Ireland's storytelling heritage shows up in how feedback is often framed. Rather than blunt critique, you might hear an anecdote, a self-deprecating joke, or a question like "have you considered trying this approach?" These softer framings allow the message to be heard without triggering defensiveness. Humor plays a real role here, helping to ease tension, but it should never undermine the seriousness of the conversation. A manager from a culture where feedback is delivered more directly might read this indirectness as vague or unhelpful. An Irish colleague, in turn, might experience highly direct criticism as unnecessarily harsh or disrespectful, even when the intent is constructive.
+
+Younger professionals, especially those in multinational firms, are more familiar with structured performance reviews and formal coaching models. But even in these settings, the tone and delivery still matter. Feedback should be specific, balanced with recognition of what's working, and framed as helping someone succeed and "do themselves justice." That phrase reflects a local value: the idea that people deserve a fair chance to show their best, and that good coaching helps them get there.

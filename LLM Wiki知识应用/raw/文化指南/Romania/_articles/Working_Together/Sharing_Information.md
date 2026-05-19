@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information sharing in Romania is relational, built through trust rather than process. Long memories of surveillance and systems that punished openness have left a lasting caution about who hears what. People share more freely once they understand where safety and reliability sit. Until then, disclosure tends to be bounded, especially around sensitive topics or in unfamiliar settings. This doesn't mean withholding for its own sake. It reflects a practical need to know that what you share won't be used against you, misunderstood, or passed on carelessly. If you expect full transparency in early meetings, you may meet polite responses that reveal little. Build trust first through consistency and discretion, and watch how conversations deepen over time.
+
+Who is in the room also shapes what gets said. Identity and hierarchy both play a role. In contexts where regional background, language, or minority status could invite judgment, people may hold back or adjust their openness depending on the audience. This is especially true where power distance is high. Someone lower in the hierarchy may feel it's not their place to ask questions or volunteer information, even when legally entitled to do so. Creating space for honest input sometimes means offering alternative channels, one-on-one time, or written questions that allow for considered responses rather than on-the-spot answers.
+
+Romanians also listen for narrative coherence. Cultural traditions like the *doina*, an improvised folk song that bends with context and emotion, reflect a broader habit of attending to whether a story holds together and whether the speaker seems sincere. Consistency across meetings builds credibility. Contradictions or vague shifts in position raise doubt. If you're uncertain, say so plainly. That honesty will serve you better than improvising a half-answer that unravels later.

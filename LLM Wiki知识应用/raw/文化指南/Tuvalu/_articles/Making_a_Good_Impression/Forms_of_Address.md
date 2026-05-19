@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Tuvalu's small size and close-knit island communities shape how people address one another at work. Most people know each other through family, church, or village ties, and this familiarity softens formal conventions. First names are widely used, even in professional settings, but this ease does not mean hierarchy is absent. Respect for age and position runs deep, and the shift to informal address happens naturally through relationship, not invitation. What might read as casual to someone from a culture with stricter title use reflects instead the layered connections that already exist between colleagues.
+
+Elders, senior public servants, and church leaders are addressed more formally, often with a title or role descriptor rather than a first name alone. In meetings involving government officials or visiting dignitaries, introductions may include full names and roles, and the tone will be noticeably more restrained. The same person addressed by first name in the office might be referred to by title in a public forum, depending on who else is present and what the occasion requires.
+
+Greetings tend to be warm and physical. Handshakes are common in initial or formal encounters, but among colleagues who know each other well, a light touch on the shoulder or arm is usual. Eye contact is steady but not prolonged, and the exchange often includes a brief inquiry about family or health before moving to business. Skipping this greeting phase, or diving straight into the agenda, can feel abrupt and signals a lack of relationship. A colleague from a task-focused culture may interpret the greeting as small talk, while a Tuvaluan counterpart may see it as the foundation on which the rest of the conversation depends.

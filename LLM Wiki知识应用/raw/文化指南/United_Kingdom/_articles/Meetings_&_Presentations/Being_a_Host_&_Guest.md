@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+British hosts aim for comfort without fuss. The ideal is to create a relaxed setting where nothing feels over-managed or effortful. Too much hovering or insistence can feel awkward for both host and guest, so the approach tends toward understatement. Offering someone the kettle and saying "help yourself to tea" is a subtle form of inclusion. It's both hospitality and autonomy, a way of treating the guest like a semi-insider rather than someone to be waited on. This style can read as minimal to colleagues from cultures where hosts demonstrate care through visible attention and service. From the British perspective, constant offers and formality can feel heavy-handed, even intrusive.
+
+Home invitations occupy a different category. The boundary between work and private life is stronger than in some cultures, and being invited to someone's home is a relationship milestone, not a starting point. If the invitation comes, bring something modest — wine, flowers, chocolates — and follow the host's lead on how personal the conversation becomes. Don't arrive early. A few minutes late is more comfortable than turning up before the hosts are ready.
+
+After any joint event or visit, a short thank-you note or message strengthens the connection more than elaborate praise in the moment. The UK has a strong tradition of written thanks and seasonal cards as quiet relationship maintenance. The gesture doesn't need to be long, but it should be sincere. A quick email or handwritten card afterward shows you've noticed the effort, and that recognition tends to matter more than what was said on the day.

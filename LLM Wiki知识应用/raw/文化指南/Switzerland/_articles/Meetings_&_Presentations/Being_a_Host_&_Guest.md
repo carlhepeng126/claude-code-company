@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+In Switzerland, hosting is understood as a kind of organized care. Warmth is shown through clarity of planning, not spontaneity or grand gestures. Hosts arrange clear timings, give detailed directions, check dietary needs in advance, and make logistics run smoothly. For guests used to more improvised or elaborate displays of generosity, this can read as formal or even distant. But from a Swiss perspective, competence in the details is how you show consideration. Someone arriving unannounced or vague about timing creates stress, which is the opposite of hospitality.
+
+Arriving on time means exactly that, sometimes fifteen minutes after the stated time if visiting a home, but never significantly early. Guests are expected to bring a small, thoughtful token such as flowers or good chocolate, and to follow the host's cues on shoes, volume, and where to sit. The home exists within a wider social ecosystem, especially in apartment buildings where noise rules and shared walls shape what hosts feel comfortable with. Late-night volume or overlooking building norms can strain the host's relationship with neighbors, so awareness of quiet hours is seen as part of being a good guest.
+
+Reciprocity happens quietly over time through repeat invitations, small gestures, and reliability, reflecting the broader Swiss pattern of trust built on steady proof. If a colleague hosts you, the expectation is that you will return the gesture later, not split a bill or repay immediately. Regional tone varies: some circles lean more formal and structured, while others, depending on language region and social setting, may feel more relaxed. But even relaxed hosting tends to be planned.

@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Business interactions in Qatar follow rituals rooted in the majlis tradition, where receiving guests, exchanging news, and maintaining harmony are understood as structured social practice. Courtesy sequences are not decorative. They are how professionals calibrate respect, signal goodwill, and prepare the ground for substantive exchange. If you open a meeting by launching straight into the agenda, you bypass the relational work that makes everything else possible. Start with greetings, settle in with a few courteous exchanges, and accept offers of Arabic coffee or tea when they are made. Declining abruptly can read as impatient or dismissive. If you must decline, do so gently and without fuss.
+
+Hierarchy and sequence shape how interactions unfold. The right hand is used for offering, receiving, and greeting, reflecting a broader sensitivity to embodied respect. In group settings, older or more senior figures are acknowledged first. Turn-taking is deliberate, and public disagreement is softened or avoided entirely to protect dignity. A colleague from a culture where decisions emerge through rapid back-and-forth debate may read this as avoidance. A Qatari counterpart may read that same directness as disrespectful or poorly timed. Using process language like "let's consult" or "let's align" supports the cultural ideal of shura (consultation), which is embedded in Qatar's constitutional framing and reinforces that thoughtful deliberation is a form of legitimacy, not delay.
+
+Qatar's workplace is diverse, but the public tone in formal settings remains calibrated around Islamic norms, especially during Ramadan and other holy periods. This means adjusting your schedule, pacing meetings appropriately, and being attentive to the rhythm of the day. What looks like formality is actually a way of maintaining shared dignity across difference.

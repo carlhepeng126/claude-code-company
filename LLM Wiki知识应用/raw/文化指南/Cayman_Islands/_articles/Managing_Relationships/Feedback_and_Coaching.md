@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in the Cayman Islands tends to be indirect and relationship-focused, shaped by a culture where social harmony and personal reputation hold considerable weight in a small, tightly networked society. Caymanians generally avoid open criticism, especially in group settings, because protecting dignity and maintaining face are essential to preserving long-term working relationships. Pointing out mistakes too bluntly can damage trust and create lasting distance. Managers and colleagues typically soften critiques by framing them as suggestions or observations rather than direct faults, and negative feedback is almost always given privately to avoid public embarrassment.
+
+In sectors where expatriates from more direct feedback cultures work alongside Caymanians, misunderstandings can surface on both sides. A manager from a culture where feedback is expected to be explicit and immediate may interpret a colleague's indirect response as vague or unclear, while a Caymanian colleague may perceive that same directness as unnecessarily harsh or disrespectful. When offering feedback, choose one-on-one conversations over team meetings, and lead with context or a positive observation before raising concerns. This allows the message to land without threatening the relationship.
+
+Coaching works best when built on established trust. Caymanians are more likely to take guidance seriously when it comes from someone they know and respect, rather than from a formal process or system introduced externally. Informal check-ins and mentoring conversations often carry more influence than structured performance reviews, particularly when they acknowledge the person's strengths before addressing areas for development.

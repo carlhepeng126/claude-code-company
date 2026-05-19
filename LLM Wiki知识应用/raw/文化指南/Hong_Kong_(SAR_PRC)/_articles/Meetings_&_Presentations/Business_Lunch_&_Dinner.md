@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+The setting and format of a meal in Hong Kong convey the seriousness of the relationship. A relaxed dim sum session at City Hall, Maxim's, or a neighbourhood teahouse works well for internal team catch-ups or early relationship-building. These are social and efficient, but not the place for high-stakes negotiations. For important client entertaining, expect upmarket Cantonese restaurants or private hotel dining rooms, chosen for their privacy and the attention paid to every detail of the meal.
+
+At formal banquets, the choreography of the meal reinforces hierarchy and respect. Cold starters arrive first, followed by seafood, soup, main dishes, and finally rice or noodles, with fruit to close. Who makes the first toast and how they phrase it signals relationship depth and seniority. While refusing alcohol is perfectly acceptable, matching every toast with baijiu is not expected in Hong Kong the way it can be in mainland China. The host will rotate shared dishes so everyone can reach, and guests are expected to try a little of everything as a gesture of appreciation. A colleague from a culture where meals are for candid discussion may find the scripted politeness limiting, while Hong Kong professionals may see immediate business talk at the table as rushed and transactional.
+
+For working lunches, many teams head to a cha chaan teng, where the rhythm is order, eat, and go. These canteen-style cafés serve milk tea, rice plates, and quick dishes at cramped tables. Lingering feels out of step. If you suggest a two-hour lifestyle lunch, you risk appearing disconnected from the local pace.

@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+The traditional sampeah greeting, palms pressed together with a slight bow, establishes respect from first contact. A colleague who uses a calm, gentle voice and offers this gesture before settling into a handshake shows awareness of how Cambodians mark good manners. Those who arrive too loudly, with immediate jokes or casual physical touch, risk feeling intrusive. Cambodians meet you halfway with handshakes, but they notice who tries their way first.
+
+Agreement does not always mean yes. To preserve your dignity and avoid embarrassing you in front of others, a Cambodian counterpart may smile, nod, or say "maybe" or "we'll try" even when a request is unlikely or impossible. A colleague from a culture where explicit refusals are standard may misread this as confirmation and plan accordingly, only to discover later that nothing will happen. From the Cambodian side, a blunt "no" can feel uncomfortably direct, especially in a group setting. Train yourself to listen for polite refusals wrapped in soft language, and follow up with gentle questions in private to confirm what was really agreed.
+
+Public contradiction or singling someone out for mistakes damages face in ways that outlast the moment itself. A person whose dignity is harmed in front of peers may withdraw cooperation or quietly work against you later. Move criticism into discreet one-to-one settings and use language that preserves respect. Small, symbolic gifts like fruit, sweets, or company items are appreciated, but lavish or poorly timed offerings can be read as bribe attempts in a context where corruption remains a real and sensitive issue. Keep gifts modest and clearly separate from decision moments.

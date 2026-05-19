@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In Guatemala, appearance is understood as respect made visible. Even in communities with limited means, turning up neatly dressed shows you recognize the effort your counterpart has made and the occasion you are sharing. Guatemalans read care in clothing choices as care about the relationship itself. In business settings, that usually means a conservative suit. A lightweight option works in warmer stretches, though Guatemala City stays temperate year-round. For men, a suit with a quiet tie is expected; for women, a tailored dress, skirt and blouse, or a business suit sets the right tone. Flashy labels go unnoticed, but being well put together does not.
+
+The country's clothing landscape shifts markedly by geography and identity. In the capital's Zona 10, where offices, banks and embassies cluster, classic business dress is the baseline. Cross town to a logistics yard near the bus terminals or an NGO warehouse in Zona 3, and practicality overrides formality. In highland towns like Sololá or Totonicapán, traje—handwoven huipiles (blouses) and cortes (skirts)—encodes village, family and sometimes marital status. A K'iche' lawyer might wear traje in her hometown and switch to Western business clothes in the capital, reading both worlds with ease. Traje is living identity, not folklore. Compliment it as you would a well-cut suit, and never treat it as a photo opportunity unless explicitly invited.
+
+Practical conditions shape appropriate dress as much as formality does. Highland towns and rural areas mean steep, unpaved streets, frequent rain and long market days. Turning up in delicate shoes or light-colored trousers suggests you have no intention of staying when it rains. Waterproof boots, a sturdy rain jacket and a simple bag say you came to work in local conditions, not observe from a distance.

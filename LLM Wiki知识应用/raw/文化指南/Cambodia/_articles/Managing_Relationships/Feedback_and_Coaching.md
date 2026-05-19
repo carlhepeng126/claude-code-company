@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Many Cambodians experienced extreme punishment, loss or arbitrary criticism during and after the Khmer Rouge era. This history makes people sensitive to shame but also accustomed to swallowing feelings in front of authority. The result is a workplace culture where feedback requires careful handling. People may respond with a smile or nod even when they feel hurt, confused, or in disagreement, because preserving harmony in the moment takes priority over expressing discomfort. If you read that smile as understanding or agreement and move on, the underlying issue remains unresolved.
+
+Give feedback privately, in a calm tone, and with clear separation between the person's worth and the behavior in question. Acknowledge what someone does well before naming what needs to shift, and frame the problem as something you can solve together rather than a personal failing. After the conversation, ask open questions like "How do you feel about this?" or "What will make this easier?" rather than assuming the discussion is closed. Leave room for a second conversation, as people often need time to process before responding honestly.
+
+When employees attribute problems to "lack of knowledge" or say "I am not smart," they may be deflecting criticism in a way that protects both parties from confrontation. This indirect self-critique can mask structural issues you need to fix. Look for patterns across individuals before concluding the problem lies with the person. Often the real cause is unclear instructions, missing tools, or conflicting priorities that no one feels safe naming directly.

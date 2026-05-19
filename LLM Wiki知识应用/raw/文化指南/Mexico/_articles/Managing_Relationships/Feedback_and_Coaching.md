@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Mexico, feedback works best when it protects the person receiving it. Both Indigenous and Catholic traditions emphasize teaching through encouragement and example rather than direct criticism, and the principle of *respeto* (dignity and respect) runs through professional relationships. Public criticism can be taken personally, even when it's intended as purely task-focused. A colleague from a culture where directness signals clarity may deliver feedback quickly and move on, assuming the issue is now resolved. A Mexican counterpart may hear that same feedback as a personal judgment, particularly if it's delivered in front of others. Conversely, when a Mexican manager wraps criticism in warmth or offers it indirectly, a colleague expecting clarity may miss the message entirely or feel uncertain about what needs to change.
+
+Feedback is usually given privately, framed with care, and balanced with positive acknowledgment. A manager might begin by asking the person's view of a situation before offering observations, which builds collaboration and avoids making the conversation feel like a lecture. Stories and gentle humor often carry the message without putting the person on the defensive. Much like *pastorelas*, short festive plays that mix humor and moral lessons, serious points can be made lightly while keeping the relationship intact. Humor should never target the person, but it can soften a tough conversation when used with skill.
+
+Younger professionals may expect more straightforward feedback, but even then, tact still matters. Strong relationships make feedback easier to receive across all generations. If trust is already in place, a manager has more room to be direct without causing offense. Where the relationship is newer or more formal, take time to frame developmental points with examples and suggestions, not just critique.

@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Canadians value clarity and substance over spectacle. Presentations succeed when the logic is transparent, the data reliable, and the tone understated. Exaggeration or rhetorical flourish tends to weaken credibility rather than strengthen it. Audiences expect factual grounding and balanced arguments, and they listen carefully for gaps or overstatement. A presenter who builds a case methodically, using evidence that can be verified, will be taken more seriously than one who relies on emotion or salesmanship. Questions may come from any level of seniority, and they tend to be direct. Canadians expect to engage with the substance, not just absorb it.
+
+Regional and linguistic context shapes how a presentation lands. Anglophone audiences generally respond well to concise, pragmatic framing. Francophone audiences may appreciate slightly more narrative structure and expressive delivery. In both settings, inclusive language and examples that reflect Canada's diversity strengthen reception. A presenter who adapts visuals and references to reflect multicultural sensibilities avoids alienating parts of the room. If your audience includes people from a range of cultural backgrounds, assume varied communication preferences and aim for accessibility rather than uniformity.
+
+Storytelling works when it serves the argument. Real cases and examples grounded in community benefit resonate more than abstract claims. Canadians are good listeners and will not interrupt readily, but silence does not mean agreement. They are comfortable saying no, and decisions follow deliberation, though not lengthy delay. Prepare for questioning that tests your assumptions, and treat it as a sign of engagement rather than skepticism.

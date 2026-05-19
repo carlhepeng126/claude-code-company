@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hospitality in Guatemala often means offering what is scarce. When someone serves you atol, tamales, coffee, or pan dulce (sweet bread) in a home where money is tight, they may have gone without something else to prepare for your visit. The phrase "es poquito" (it's just a little) is ritual modesty, a way to deflect attention from what has been given, even when that gift required real sacrifice. Accept what is offered, even if just a small portion. Declining repeatedly can feel like a rejection of the host, rather than simple politeness. To ask a genuine question about the weaving on the wall or the photos displayed is to acknowledge the household beyond its material condition.
+
+Many highland homes show the visible architecture of migration: grey concrete block walls built room by room with remittances, sometimes topped with ornate balconies or US-style façades. These houses represent years of risk and sacrifice in the North. Complimenting the home recognizes that effort. Religious images, family altars, photos from a child's first communion or a church youth group are not decoration. They are moral anchors and markers of identity. A visitor who asks about them shows they understand what holds meaning.
+
+In professional settings, Guatemalans will often invite you out for a meal. The invitation itself builds trust, and it is understood that business is set aside until after the food. Asking your counterpart to recommend a place allows them to offer local knowledge, a gesture of trust in return. If you host Guatemalan colleagues, warmth and shared dishes will land better than a formal buffet setup. Partners are typically included for evening meals, and whoever invites is expected to pay.

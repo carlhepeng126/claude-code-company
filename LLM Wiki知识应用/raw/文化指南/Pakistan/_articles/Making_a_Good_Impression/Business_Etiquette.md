@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Izzat, the code of honor and reputation, shapes how courtesy works in Pakistani professional settings. Public embarrassment can damage standing well beyond a single exchange, so many people use tact and indirectness to protect dignity. Disagreement, refusal, or correction are often delivered privately or through gentle deflection rather than stated outright. A colleague from a culture where direct feedback is valued might read this as evasive or unclear, while a Pakistani counterpart might find blunt statements in front of others unnecessarily harsh and relationship-damaging. If you need to raise a concern, choose a one-on-one conversation or phrase it carefully in group settings.
+
+Hospitality is understood as moral labor, often performed publicly to demonstrate generosity and family standing. Accepting tea, greeting warmly, and acknowledging the effort behind hosting are ways of recognizing this. What might feel like a long preamble or interruption is often the relational groundwork that makes the business conversation possible. Declining refreshments or rushing past greetings can be read as dismissing the person, not just the gesture.
+
+Pakistan's regional and class diversity means etiquette codes vary. Urban elite environments may favor crisp professionalism and fluent English, while other contexts prioritize relational warmth, deference to seniority, and indirectness. Reading which code is in play is a cultural skill in itself. Biradari networks create strong reciprocity expectations, so follow-through, acknowledgment of support, and relational continuity are often interpreted as moral seriousness, not optional networking behavior.

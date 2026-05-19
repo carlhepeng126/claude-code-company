@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Guam work best when they balance professionalism with personal connection. Audiences respond to warmth and sincerity more than polish alone. Lead with respect and avoid coming across as overly formal or detached. People want to see who you are, not just what you're proposing. Share something about your background or motivations early on. This helps establish trust and signals that you're approaching the conversation as a relationship, not just a transaction.
+
+Keep your tone conversational and avoid aggressive persuasion. Hard-sell tactics can feel uncomfortable in a culture shaped by collectivist values and respect for dignity. Frame your message around mutual benefit and long-term collaboration rather than quick wins. Use stories or relatable examples to illustrate your points. Guam's culture values narrative and lived experience, and a well-placed anecdote often resonates more than abstract data. If your slides are dense with text or technical language, simplify them. Visual clarity helps interpretation and keeps attention on the discussion itself.
+
+Expect flexibility during your presentation. People may take calls, step out briefly, or join partway through. This reflects the fluid nature of workplace interactions and shouldn't be read as disengagement. Welcome latecomers naturally and continue without making it an issue. Questions may come later in private rather than during the session itself, especially if the topic involves disagreement or uncertainty. These follow-up conversations often reveal the most candid feedback, so treat them as part of the process, not a detour.

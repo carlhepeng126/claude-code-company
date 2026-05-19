@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Uruguay's small scale shapes how professional contacts are made. School ties, neighbourhood roots, union membership, and long-running networks often overlap, especially in Montevideo, where much of the country's business life is concentrated. People can place each other socially quite quickly, often without needing to state it. This makes a personal introduction or shared reference point far more effective than a cold approach. If you know someone in common, mention them early. If you don't, ask a trusted local colleague or adviser to help make the connection. Relationships open doors more reliably than credentials alone.
+
+The country's secular civic identity encourages a public tone that is calm and matter-of-fact rather than highly ceremonial. This doesn't mean formality is absent, but it does mean you can expect straightforward exchanges without elaborate ritual. Appointments should be made well in advance and reconfirmed when you arrive. Uruguayans may not always be precisely on time, but as a visitor you should be. Turning up unannounced is unlikely to be well received. Plan for several meetings before any negotiation begins, and avoid scheduling visits during Carnival week, Holy Week, or the Christmas and New Year period, when most businesses close.
+
+How you enter a network can shift depending on where you are. In Montevideo, institutional roles and professional bodies often provide legitimacy. In towns across the interior, local standing and continuity of presence count for more. Near the Brazilian border, in places like Rivera, cross-border familiarity and hybrid connections play a role. Understanding which kind of network you're entering will help you adjust your approach accordingly.

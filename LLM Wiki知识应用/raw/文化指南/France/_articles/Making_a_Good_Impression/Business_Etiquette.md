@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+A French business meeting often begins with a ritual that can puzzle newcomers: clear greetings to everyone in the room, handshakes with eye contact, and occasionally *bises* (cheek kisses) among colleagues who know each other well. Entering without acknowledging people or launching straight into the agenda can jar. This choreography reflects the French understanding of professional life as fundamentally social, where you are present not just as a function but as a person. Skipping the greeting skips that recognition.
+
+The way ideas are discussed reveals a cultural pairing that can confuse outsiders: sharp, blunt criticism wrapped in courteous address. A French colleague may dismiss a proposal with phrases like *ce n'est pas sérieux* (this isn't serious) or *ce n'est pas possible* (this isn't possible), then address you as *Monsieur* or *Madame* without missing a beat. The critique refers to the idea, and a vigorous exchange is often a sign that people are taking the issue seriously, not proof of personal hostility. Treating such objections as stylistic noise rather than substantive pushback is a mistake. When someone says an idea isn't serious, they mean it: the practical step is to ask what would make it so.
+
+This blend of formality and intellectual challenge reflects a deeper tension in French professional culture. Republican ideals of equality coexist with clear hierarchies, especially in ministries, large corporations, and networks linked to the *grandes écoles* (elite higher education institutions). Etiquette navigates this paradox: conversations may feel egalitarian on the surface while decision-making authority remains firmly concentrated. Understanding who actually decides, despite the egalitarian tone, becomes necessary for getting things done.

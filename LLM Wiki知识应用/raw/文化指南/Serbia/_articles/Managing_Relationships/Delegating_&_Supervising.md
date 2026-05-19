@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Serbia's management culture reflects the legacy of Yugoslav socialism, which practiced a distinctive form of workers' self-management alongside centralized party control. This created workplaces where collective discussion had formal space but real authority stayed firmly at the top. The result is a present-day instinct for teamwork and group consultation paired with deep deference to those who hold power. Managers are expected to be decisive and authoritative, and subordinates generally comply with decisions without open challenge. The gap between manager and employee remains wide in traditional organizations, though it narrows in younger, international-facing companies.
+
+Serbian employees expect clear, comprehensive direction. Vague or incomplete briefs tend to stall work rather than prompt independent problem-solving. This reflects both the hierarchical structure and a lingering caution around taking initiative without explicit permission. The Yugoslav period also embedded a culture of silence around mistakes and problems, which persists particularly among older professionals. Demonstrating that issues can be raised safely, and following through consistently when they are, builds the trust needed for more open communication. Personal relationships are central to getting things done. Trust built through genuine connection makes both formal processes and informal problem-solving significantly smoother.
+
+Generational differences are pronounced. Older professionals, shaped by the Yugoslav and post-Yugoslav years, tend toward greater caution and deference. Younger colleagues, especially in tech or multinational environments, are more open to flatter structures and direct exchange. A foreign manager may initially face skepticism, rooted in a broader wariness of outsiders, but demonstrating expertise and respect for local knowledge typically shifts this.

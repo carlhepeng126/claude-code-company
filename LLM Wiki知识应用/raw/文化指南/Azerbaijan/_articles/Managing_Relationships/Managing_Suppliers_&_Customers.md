@@ -1,0 +1,11 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Trust and word-of-mouth shape supplier selection across Azerbaijan more strongly than price alone. Whether you are sourcing from a state-linked company in Baku or a small family workshop in the regions, customers ask who you have worked with before and whether you stood by your commitments when problems arose. Personal reliability builds the foundation for commercial relationships, and reputation travels quickly through tight professional networks. If you want to be recommended, respond when things go wrong and stay visible after the contract is signed.
+
+Azerbaijan's supply chains often combine two very different kinds of partners: large enterprises with state influence and small family businesses with limited administrative capacity. Each type brings its own responsiveness, paperwork habits and tolerance for risk. A manager used to dealing with standardized vendors may find the mix frustrating, but recognizing these differences early allows you to tailor your expectations and offer appropriate support. A family firm may need more lead time or clearer written confirmation; a state-linked partner may require patience with approvals but offer more predictable logistics.
+
+Price negotiations can be robust, yet many Azerbaijani customers also weigh future relationship alongside cost. They want to know you will answer the phone when equipment fails or a delivery goes astray. A supplier who disappears after payment damages not only their own reputation but any intermediary who recommended them. If you push negotiations to the point where no margin remains for quality or aftercare, you signal that the relationship ends at the invoice. Leaving room for service builds the loyalty that opens doors to repeat business and new introductions.
+
+Building a few strong partnerships will serve you better than switching suppliers to chase marginal savings. One well-handled crisis often does more for your standing than flawless routine delivery, because it shows you understand that reliability extends beyond the first transaction.

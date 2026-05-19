@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+WeChat is where most business coordination happens in China. Over 90% of professional communication flows through WeChat groups and individual chats, not email. This reflects a broader shift toward speed and accessibility in corporate culture. Messages come quickly, and replies are expected within 24 hours. In a competitive environment where opportunities move fast, silence reads as disinterest or disengagement. If you delay your response, the conversation may simply move on without you.
+
+Introductions through mutual contacts still open doors more reliably than cold outreach, but the logic has shifted. Formal titles alone do not build instant credibility. What matters more is the performance record of the person making the introduction or a shared project history that demonstrates results. A referral from a high performer signals competence and alignment with the pace of work, not just courtesy. Cold outreach can succeed if it leads with concrete data or clear value, but a trusted connection shortens the path significantly.
+
+Scheduling is flexible but fast-moving. Digital tools like calendar sharing on WeChat and ride-sharing apps are standard, and last-minute changes are common. The expectation is not rigid adherence to the original plan but immediate confirmation when something shifts. Flexibility here shows you understand how teams operate. Rigidity, by contrast, signals poor fit in a culture where speed and responsiveness shape daily workflow. If next steps are left vague after an exchange, the contact may fade. Clarity keeps momentum alive.

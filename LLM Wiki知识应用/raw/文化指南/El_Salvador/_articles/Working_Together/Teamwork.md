@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+In El Salvador, teams function most smoothly when relationships carry the work forward. Collaboration is built on trust and personal connection rather than formal process, and this shapes how people contribute, how problems get solved, and how decisions move through the group. A manager who tries to accelerate results by cutting straight to tasks without first investing in rapport may find the team polite but hesitant, unsure whether to speak openly or defer. Building that relational foundation takes time, but once in place it allows people to coordinate without needing everything spelled out.
+
+Hierarchy remains visible in most professional settings. Senior colleagues guide and protect those below them, and this often includes mentoring informally, offering advice in private rather than through structured feedback sessions. Younger team members expect this kind of care and may interpret its absence as disinterest. At the same time, managers who lead only by authority without showing personal concern risk being respected but not followed with energy. People respond to leaders who ask after their families, notice when something is wrong, and create space for conversation beyond the immediate project.
+
+Praise and criticism both require care. Public recognition aimed at one person can create discomfort, either for the individual singled out or for colleagues left unnamed. Framing success as a team effort preserves harmony and avoids putting anyone in an awkward position. When something goes wrong, feedback should be given privately and with attention to dignity. Directness without relational context can feel harsh, even when the content is mild. A colleague from a culture where feedback is expected to be immediate and explicit may read this as slow or indirect, while a Salvadoran team member may experience that same directness as unnecessarily blunt and relationally careless.

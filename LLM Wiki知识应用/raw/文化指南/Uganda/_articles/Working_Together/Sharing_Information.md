@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information in Uganda often moves through layers of language, relationship, and context before it lands. Ugandan communication traditions favor story, proverb, and the warmth of delivery over bare facts alone. Meaning comes not just from what is said but from how it is shaped for the listener. This shows up in workplace communication too. A colleague may reframe a message to make it socially legible, using humor, example, or local equivalents to help it resonate. When sharing updates or decisions, organize information clearly: state the headline, explain what it means, offer an example, and recap. This structure travels better across language differences and education levels, and it mirrors the way people naturally process spoken information.
+
+Language itself adds another layer. English often signals formality and institutional seriousness, while local languages like Luganda carry nuance, warmth, and indirect critique. Since everyday life is multilingual, information can shift tone or emphasis as it crosses languages. What sounds direct in English may feel blunt when translated into local terms, and what reads as vague in English may carry precise social meaning in another language. For sensitive topics, use respectful framing. Bluntness that would feel efficient elsewhere can risk shaming someone or triggering wider talk in tight social networks where reputation is shared currency.
+
+Within organizations, information does not always flow freely across departments. Decision-making tends to be concentrated, and knowledge often stays close to those with formal authority. That said, informal channels matter. Nuance, concern, and real understanding often surface in side conversations, not formal meetings. Treat these moments as signals to clarify and re-align, and when confidentiality is needed, name it simply and hold the circle tightly.

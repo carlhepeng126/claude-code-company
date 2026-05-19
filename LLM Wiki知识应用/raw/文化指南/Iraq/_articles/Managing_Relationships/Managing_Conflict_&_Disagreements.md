@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Disagreement in Iraqi workplaces rarely feels separate from the country's lived history of sectarian violence, displacement, and communal fracture. What might seem like a routine professional dispute can evoke deeper associations with real danger, making people reluctant to let conflict escalate publicly. This reluctance is self-protective, rooted in the knowledge that tensions can shift unpredictably from personal to communal. In mixed teams, a poorly handled disagreement risks being interpreted as sectarian or ethnic bias, even when the original issue had nothing to do with identity. Frame disputes carefully and avoid language that could be read as collectively blaming a group. Document what happened neutrally, and be deliberate about how you describe each person's role.
+
+When conflict becomes serious, many Iraqis turn to traditional mechanisms that sit outside formal systems. Tribal sulh sessions, involving mediators such as sheikhs or respected elders, often resolve disputes through compensation, oath-taking, and negotiated reconciliation rather than legal procedure alone. In workplaces, this means that simply referring to policy or HR processes may feel incomplete or impersonal to those involved. Consider whether involving a locally respected figure alongside your formal approach would help restore trust and reach a resolution that people accept as fair. This is especially relevant outside the Kurdistan Region of Iraq, where tribal structures remain influential.
+
+Visible fairness in the first serious conflict you handle will shape how your broader leadership is judged. People watch to see whether you listen, whether you act impartially, and whether you protect dignity on all sides. If they sense bias or haste, trust erodes quickly and future disagreements will be managed around you, not through you.

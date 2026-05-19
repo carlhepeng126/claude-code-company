@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+Motivation in Djibouti is deeply relational. People respond when they are recognized as individuals, not when they are managed through impersonal systems or distant performance metrics. A manager who greets colleagues warmly, asks about their well-being, and takes time to acknowledge effort in person will see greater engagement than one who relies on formal incentive structures alone. This is a workplace culture where trust and personal connection precede commitment. Someone who feels known and valued will put in discretionary effort. Someone who feels like a number on a spreadsheet will not.
+
+Recognition should be immediate and personal. Public acknowledgment of a job well done, especially in front of peers or senior colleagues, affirms dignity and raises standing within the group. Delayed or impersonal praise, such as an annual review comment or a generic thank-you email, has far less impact. Djiboutians want to know their contribution has been seen and that it mattered to someone they respect. That visibility is often more motivating than financial reward on its own, though fair compensation remains foundational.
+
+Rigid deadlines and heavy workloads tend to backfire. In a context where family obligations and the realities of daily life take precedence, and where the future is often seen as ultimately beyond human control, pushing people to work overtime or meet inflexible targets can breed resentment rather than urgency. A manager from a culture where schedules are fixed and output is tightly measured may read this flexibility as a lack of commitment. A Djiboutian colleague may in turn see that rigidity as disrespectful of life's unpredictability and the value of presence outside work.

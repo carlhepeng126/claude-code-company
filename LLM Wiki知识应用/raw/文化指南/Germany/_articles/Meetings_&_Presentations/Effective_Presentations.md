@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+German audiences expect *Sachlichkeit*, a matter-of-fact presentation rooted in evidence rather than persuasive flair. In a culture shaped by engineering pride and a respect for technical mastery, showmanship without substance loses credibility quickly. People want to know not just the outcome, but how the outcome was reached. Process flows, diagrams, and technical caveats are welcome. If you claim a result, be ready to explain the calculation behind it. A presenter from a culture that prioritizes storytelling and emotional engagement may find German listeners unresponsive to anecdotes or rhetoric, while a German presenter in such settings may be seen as overly dry or resistant to persuasion.
+
+Historical wariness of overconfidence means that naming limitations and uncertainties is treated as professional integrity. Glossing over risks or using vague superlatives invites skepticism. Your audience will probe edge cases and ask detailed questions, often without waiting until you finish. They see themselves as co-analysts responsible for evaluating your thinking, not passive recipients of a pitch. Structure your presentation clearly: context, analysis, options, recommendation, and explicit acknowledgment of constraints. This transparency builds trust rather than undermining it.
+
+Introduce yourself at the start and establish your expertise. German listeners assess credibility through demonstrated competence, not charisma. Keep the delivery formal but approachable, and run to time. If you say the presentation will take twenty minutes, ending at twenty-two signals disrespect for the room's discipline. Handouts should contain supporting data so the presentation itself can stay focused and concise.

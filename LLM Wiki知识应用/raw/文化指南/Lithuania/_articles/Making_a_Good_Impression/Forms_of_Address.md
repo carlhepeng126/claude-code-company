@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Lithuanian professional settings, a respectful baseline means starting formal and allowing the other person to set the pace toward familiarity. First meetings typically involve a firm handshake, steady eye contact, and the use of surnames paired with honorifics like *Ponas* (Mr.) or *Ponia* (Mrs.). Academic and professional titles such as "doctor" are valued and acknowledged as markers of standing. This measured tone reflects a culture where politeness shows through restraint, and holding back from forced familiarity is itself a form of respect. Pushing for first-name terms too quickly can read as presumptuous, particularly with senior colleagues or in more institutional contexts.
+
+Younger professionals and those in informal or startup environments often move to first names much sooner, sometimes immediately. The shift depends less on fixed rules than on reading the situation and mirroring the other person's cues. If a colleague introduces themselves with a first name only, that is the signal. If they use their full name or title, follow that lead until they invite a change. In mixed-generational settings, this variation can be noticeable, so the safest approach is to wait and observe.
+
+Language choice itself can set the register. In Vilnius and the surrounding region especially, Lithuanian, Polish, Russian, and English all circulate in professional life, and switching between them can quietly signal belonging, history, or context. Names and the language people choose to speak in can function as identity markers tied to family background and regional ties. Pronouncing names correctly, even if they are unfamiliar, and staying attentive to which language someone defaults to shows cultural sensitivity in a way that no formal title alone can accomplish.
+
+When the setting is more structured, such as meetings with government bodies, universities, or established institutions, role-based address and the use of professional titles become especially relevant. Written communication follows the same principle. Formality holds until the relationship has earned informality. Retain titles, use clear closings, and maintain the same tone in email as you would in person until invited otherwise.

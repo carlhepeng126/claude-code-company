@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Ukrainian uses grammar to map relationships. The language distinguishes between *ти* (informal "you") and *ви* (formal "you"), and the choice places someone inside or outside your circle of closeness. This is less about politeness and more about social geometry. Using *ви* with a new colleague, someone older, or in any formal context shows that you recognize the distance between you. Switching to *ти* happens later, once trust is established, and the shift is often treated as a relationship threshold rather than casual informality. If you move to *ти* too soon, you risk assuming closeness that hasn't been offered.
+
+Full names in Ukraine traditionally include a patronymic, which links a person to their father's name and family line. In formal or serious settings, addressing someone by first name and patronymic communicates respect and dignity. This convention coexists with everyday use of first names, but the patronymic resurfaces when you want to signal gravity or honor. Colleagues from cultures where first names are standard from the outset may read the patronymic as unnecessarily formal, while Ukrainian counterparts may see skipping it as a loss of depth in how you acknowledge them.
+
+In western Ukraine especially, the terms *пан* (Mr.) and *пані* (Ms.) have cultural weight. They connect to older Central European civic styles and a post-Soviet effort to recover pre-Soviet forms of address. Using them in these regions can feel culturally aligned, distinct from Soviet-era conventions. Language choice also functions as a form of address. Since 2022, the shift toward Ukrainian has accelerated, and which language you use can signal identity and solidarity. Regional and generational variation means that sensitivity to language preference helps keep interactions safe and respectful.

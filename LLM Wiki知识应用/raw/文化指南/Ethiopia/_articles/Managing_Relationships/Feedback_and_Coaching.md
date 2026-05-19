@@ -1,0 +1,11 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Ethiopia, the way feedback is delivered depends on who is speaking, who is listening, and who else might be watching. Age and respect anchor the exchange. Telling an older colleague that they have made a mistake, especially in front of others, breaks a fundamental expectation: elders give wisdom, they do not receive correction from juniors. Even in private, younger staff tread carefully. Framing feedback as a request for collaboration rather than a critique makes it possible to raise an issue without undermining someone's standing. Asking "How can we handle this better next time together?" invites shared problem-solving without the humiliation of being judged.
+
+Story often replaces directness. Leaders and elders correct through narrative, recounting a long example of someone who did something unwise and suffered the consequences. The listener is expected to recognize themselves in the tale and adjust accordingly. This approach preserves dignity and allows the person receiving feedback to reflect without the rawness of being named. For managers accustomed to clarity and brevity, this can feel indirect or slow. But in Ethiopia, a story is not a delay. It is the mechanism through which feedback can be absorbed without shame.
+
+Colleagues from cultures where candor is valued may find that their directness lands badly. What feels like honesty or efficiency to them can be experienced in Ethiopia as cruelty or a loss of self-control. The same manager who believes they are being helpful by naming a problem quickly may be seen as lacking respect or emotional discipline. From the other side, an Ethiopian colleague may view the avoidance of story or careful framing as a sign that the relationship does not yet exist, or that the feedback is not serious enough to be wrapped in care.
+
+For non-Ethiopian managers working in Ethiopia, dialing down bluntness is not about softening the message. It is about separating urgency from humiliation, and understanding that the way something is said determines whether it will be heard at all.

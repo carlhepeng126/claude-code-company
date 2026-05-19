@@ -1,0 +1,11 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Swedish business culture runs on consensus, and that consensus needs time to form. Swedes often prefer to sound things out through low-pressure conversations before they feel ready for anything that resembles a formal commitment. A short phone call, an informal fika, or a few email exchanges can build the comfort level needed before a proposal feels appropriate. For someone from a culture where decisions are made quickly and a single pitch meeting can move things forward, this phased approach might feel like delays. From a Swedish perspective, though, rushing to a formal ask without first establishing shared understanding can feel pushy or poorly judged. Plan a sequence rather than a single event: an exploratory conversation, a more concrete meeting, then a written proposal if there's genuine interest.
+
+When introducing yourself, lead with the organization you represent and how the collaboration fits their institutional goals. Swedes often identify strongly with where they work rather than with personal achievements, and credibility flows from the organization's reputation and alignment with shared priorities like climate, health, or innovation. Emphasize how your idea serves those ends at least as much as your own track record. This matters especially when making initial contact, because institutional fit is part of the trust equation.
+
+Hierarchies are relatively flat, but roles and responsibilities are clearly defined. It's usually straightforward to find who owns a topic if you understand the structure, so ask explicitly about who the decision-maker and key stakeholders are rather than assuming seniority alone will guide you. Schedule meetings at least two weeks ahead, and confirm the day before. Avoid June through August, the Christmas period, and late February into early March when vacation time is highly valued.
+
+Sector and location shape the pace. Contacts in Stockholm or Gothenburg tech and creative circles may move faster and more informally than those in municipalities, unions, or state agencies, where processes are more formal and political oversight slows timelines even when individuals are enthusiastic.

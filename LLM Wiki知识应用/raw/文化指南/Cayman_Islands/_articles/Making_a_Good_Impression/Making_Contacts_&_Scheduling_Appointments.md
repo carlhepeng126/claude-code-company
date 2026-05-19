@@ -1,0 +1,11 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+The Cayman Islands operates as a major international finance hub with a population where expatriates outnumber locals, yet business relationships still begin with personal connection. In a small society where reputation travels fast and professional communities overlap, people prefer to understand who they're working with before moving to formal engagements. An introduction from a mutual contact, whether Caymanian or expatriate, smooths the path considerably. That person's standing becomes part of your credibility, and colleagues take notice when someone they respect makes the connection.
+
+First contact often happens through email or LinkedIn, and responses tend to be prompt in professional sectors like finance, legal services, or real estate. Caymanian professionals working in these industries move comfortably between global business norms and local relationship culture. If you're reaching out cold, a brief mention of how you found them or what you have in common helps establish context. Once initial interest is there, expect a phone call or video chat before anything is locked in.
+
+Appointments are typically scheduled a week or two ahead, and calendar software is widely used. Reconfirming a day or two before is courteous and practical. Meetings usually start on time in corporate settings, though small delays can happen when personal matters come up or when someone's schedule shifts unexpectedly. Building in a buffer between appointments is wise, especially if you're meeting people outside the main financial district or connecting with smaller, locally owned businesses where relationships may unfold at a different rhythm.
+
+Flexibility in tone and timing matters. A Caymanian colleague might pause to chat about a shared contact or weekend plans before turning to business, and that exchange builds the foundation for what follows. Skipping straight to the agenda can feel transactional in a context where trust develops through repeated, personable interaction.

@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+In Japan, negotiation is fundamentally an exercise in risk management. A deal is evaluated not only on commercial terms but on whether it can be justified internally, to auditors, trading partners, and the wider network of relationships a company maintains. Decision-makers face reputational exposure if a deal goes wrong, and that makes caution both rational and necessary. When a counterpart uses phrases like "a little difficult" or "we must carefully consider," these are not delaying tactics. They signal genuine concern about what risks the proposal introduces and whose criticism might follow.
+
+Long-term business relationships are shaped by moral obligations known as *giri* and unspoken debts of gratitude, or *on*. If a partner absorbed a quality issue in the past, extended credit during a downturn, or supported you through a crisis, that history sits in the background of every discussion. Fairness is read through this accumulated record, not just the spreadsheet. When proposing new terms, the question your counterpart is asking is whether the deal can be defended not only today, but across the moral and commercial history you share.
+
+Once a position has been developed through internal consultation, it becomes difficult to reverse. Gentle language preserves *wa*, or group harmony, but the line beneath it can be extremely firm. At the same time, negotiators are conscious that any concession may set a precedent. Other customers, suppliers, or internal departments may demand the same treatment, and in industries where relationships are tightly woven through trading companies and financial institutions, word travels. Showing how a concession can be contained, through a pilot phase, limited scope, or special conditions, addresses this concern directly and opens room for flexibility.

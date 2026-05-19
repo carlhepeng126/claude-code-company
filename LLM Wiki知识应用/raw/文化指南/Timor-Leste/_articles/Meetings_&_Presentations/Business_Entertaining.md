@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Timor-Leste is a relatively informal affair, shaped by the country's limited commercial infrastructure and the personal nature of professional relationships. Meals with colleagues or contacts typically take place in the handful of restaurants available in Dili, often serving Indonesian, Portuguese, or simple local dishes. Outside the capital, options narrow considerably, and hospitality may shift to someone's home or a more casual setting. These gatherings are less about formality and more about creating time to talk beyond the constraints of an office or meeting room.
+
+Conversations over meals tend to roam widely, covering family, background, and shared interests before circling back to work, if at all. Business may come up naturally later in the meal or not be discussed in detail. Pushing to discuss contracts or timelines early can come across as transactional. The meal itself serves as a way to gauge how someone thinks and relates, which in turn informs whether a working relationship will develop trust. For someone from a culture where business dinners have clear objectives and outcomes, this can feel unstructured. From a Timorese perspective, a visiting colleague who treats the meal as a working session may seem to miss the point of the invitation entirely.
+
+Alcohol is not a prominent feature of business entertaining. While beer or wine may be available in some restaurants, many Timorese do not drink, and offering or ordering alcohol without reading the situation first can create discomfort. It's more common to share soft drinks or coffee. Reciprocating an invitation, even informally, is valued and helps balance the relationship.

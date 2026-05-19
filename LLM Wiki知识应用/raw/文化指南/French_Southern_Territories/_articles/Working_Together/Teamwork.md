@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+The French Southern Territories have no permanent population and no traditional workplace culture. The islands host only rotating scientific research teams and logistical staff working under fixed-term contracts, usually French nationals or researchers from partner institutions. These temporary research bases operate under French administrative oversight, which shapes the formal structures that govern collaboration.
+
+Teamwork in this environment develops around the constraints of isolation and interdependence. Teams are small, often fewer than twenty people on a single base, and everyone knows that their presence depends on the smooth functioning of the group. Practical cooperation becomes immediate and visible. A researcher studying seabirds relies on the technician maintaining the generator, who in turn depends on the cook managing limited supplies. This creates a strong ethic of mutual support, but it also means that interpersonal friction has nowhere to disperse. Most personnel arrive with an understanding that the assignment requires flexibility and a degree of self-management, since hierarchies exist but daily problem-solving often happens peer-to-peer.
+
+Formal roles are clear, typically organized along French institutional lines, but informal collaboration shapes much of the workday. Team members often take on tasks outside their official remit because the size and remoteness of the setting demand it. A biologist might help unload cargo; a meteorologist might assist with equipment repair. This blurring of boundaries reflects necessity rather than philosophy, and it works when everyone accepts that contribution is shared, not strictly defined by job title.

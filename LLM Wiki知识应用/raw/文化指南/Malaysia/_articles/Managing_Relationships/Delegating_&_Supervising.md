@@ -1,0 +1,11 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Malaysia's workplace culture reflects three overlapping traditions: Malay Islamic values, Chinese Confucianism, and Indian heritage, brought together under British colonial rule. This multiethnic foundation means that hierarchy functions differently depending on who you are managing. For Malay-Muslim employees, respect for authority is reinforced by Islamic emphasis on moral integrity in leadership and the feudal traditions of the Malay sultanates, where deference was a core social contract. For Malaysian Chinese employees, Confucian values add another dimension: relationships are understood as inherently hierarchical, and group harmony consistently takes precedence over individual dissent. Across all communities, face is central. A nod or a polite "yes" may be social courtesy rather than confirmation, and employees will rarely surface concerns openly if doing so risks embarrassment for themselves or their manager.
+
+When delegating, be specific and detailed. Provide both verbal and written instructions, and frame follow-up conversations as collaboration rather than oversight. Apparent agreement does not guarantee full understanding, so build in regular check-ins that allow space for clarification without requiring employees to admit confusion. Explain why deadlines matter in terms of collective impact — on the team's reputation or on others who depend on the work. Compliance strengthens when the reason connects to relationships and shared responsibility, not just rules or efficiency.
+
+Public correction damages face and the relationship. Sensitive feedback must always be handled privately and with genuine care for the individual's dignity. If you need to address a concern, focus on the outcome you want and offer support to help the person get there, rather than dwelling on what went wrong.
+
+In culturally mixed teams, recognize that Chinese-Malaysian, Malay, and Indian-Malaysian employees may have subtly different expectations around authority and initiative. A single management style may not land equally across the group, so stay alert to how different individuals respond and adjust your approach accordingly.

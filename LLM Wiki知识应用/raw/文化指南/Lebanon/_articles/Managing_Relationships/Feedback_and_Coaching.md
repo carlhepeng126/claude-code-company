@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Lebanon travels best when it protects dignity in a society where networks are tight and reputations are shared across families, communities, and professional circles. In a densely interconnected place, public criticism can feel like social exposure rather than constructive guidance. Correcting someone in front of others risks damaging not just the individual but the web of relationships around them. Private conversations, by contrast, allow someone to adjust course without losing face, and they often lead to more genuine reflection and change.
+
+Lebanese communicative culture values wit, verbal agility, and the ability to say difficult things without bluntness. Coaching often lands more effectively through story, analogy, or light irony than through direct critique. A manager might share a brief personal example or use humor to illustrate a point, allowing the recipient to draw their own conclusion. This approach preserves the relationship while still delivering the message. For colleagues from cultures where feedback is expected to be explicit and immediate, this indirectness can feel evasive. From the Lebanese side, rapid, unvarnished critique can come across as harsh or socially clumsy, especially if delivered without first establishing trust.
+
+Who else is in the room shapes what can be said. Because groups may be diverse in background, communal affiliation, or political reading, people calibrate their words depending on the audience. What feels safe in a one-to-one conversation may carry unintended weight in a mixed setting. When giving feedback, consider not just the content but the context, and adjust your approach to fit the relational and social environment.

@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Polish professional culture opens with formal address as a threshold ritual. The Pan (Mr.) and Pani (Mrs./Ms.) system, combined with surnames, sets the register for first meetings and written communication. This formality reflects a history where public interaction was encoded with respectful distance, and where tone and structure signaled credibility before warmth. Even in companies where first names now circulate quickly, many Poles still begin with formal address and wait for the relationship to invite the shift. Jumping to first names before that invitation can read as presumptuous rather than friendly.
+
+Respect in Poland is often read through competence and restraint rather than overt warmth. Colleagues respond to well-prepared contributions, clear language, and calm professionalism. Excessive flattery or effusive praise can feel performative and undermine credibility. A manager from a culture where informal tone builds rapport quickly may find Polish colleagues reserved early on. From the Polish side, colleagues who move to first names or casual language too soon may seem to be skipping the stage where trust is actually built.
+
+The shift to first-name terms has historically been marked by a small social moment, the bruderschaft, a semi-ceremonial toast acknowledging the move to informal address. While younger professionals and international workplaces may skip this ritual, the underlying principle remains: informality is something granted, not assumed. In cross-generational or formal-sector settings, colleagues may remain on surname terms for years without any strain. That formality creates room for directness and critique without making disagreement personal.
+
+When challenging or correcting, keep your tone factual and your language structured. Polish colleagues distinguish between the content of a critique and the respect shown in how it is delivered. A challenge framed calmly, with precision, will typically be received as professional. One delivered with visible impatience or casual dismissal risks being read as disrespectful, regardless of the substance.

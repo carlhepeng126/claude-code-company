@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Dutch meetings run on structure and substance. Participants expect an agenda in advance, preparation from all sides, and efficient use of time. Small talk, if it happens, is brief and functional. Once the meeting begins, the focus shifts directly to the topic at hand. Long introductions or scene-setting speeches will feel out of place. Clarity and logic are what give you credibility, not title or delivery style. This reflects a broader cultural preference for directness and a practical, no-nonsense approach to getting things done.
+
+Hierarchy exists in Dutch organizations, but it does not dominate the meeting room. Junior colleagues, technical specialists, and external partners all contribute openly, and their input is expected. Dutch professionals value the quality of an argument over the seniority of the person making it. This means you may be questioned, challenged, or interrupted, regardless of your role. For a colleague from a culture where senior figures guide the discussion and dissent is voiced privately, this can feel blunt or even confrontational. From a Dutch perspective, the same direct exchange is a sign of engagement. A meeting without debate suggests either lack of interest or incomplete thinking. If you present a proposal, expect frank questions on the spot. Raising concerns now is seen as more efficient and more respectful than staying silent and revisiting issues later.
+
+Decisions are rarely made unilaterally. Even when a senior leader is present, the expectation is that input from others will shape the outcome. Consensus-building is common, which may mean follow-up conversations, alignment across teams, or a slower pace than in cultures where decisions are made quickly by one person. If you need a clear commitment before leaving the room, say so early. Otherwise, assume that agreement will emerge through iterative discussion rather than a single decisive moment.

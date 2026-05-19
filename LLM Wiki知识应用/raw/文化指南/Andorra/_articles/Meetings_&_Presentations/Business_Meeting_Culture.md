@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Andorra are arranged through personal networks as much as formal channels. The country's small population and close-knit business community mean that trust and reputation travel quickly. Many introductions happen through mutual contacts, and a shared connection can open doors more effectively than a cold approach. Once a meeting is set, punctuality is expected. Andorran professionals work in a multilingual environment and often switch between Catalan, Spanish, and French depending on who is in the room. Checking ahead about language preference shows respect and helps everyone prepare.
+
+The tone in meetings tends to be polite and measured. Andorrans value discretion and are often cautious about revealing too much too soon, especially with new partners. This caution reflects the country's geography and history: a small nation where proximity to larger neighbors has made careful negotiation a survival skill. Decisions are rarely made on the spot. Senior figures hold authority, and even when someone appears to agree in principle, final approval often requires consultation beyond the room. A colleague from a culture where speed signals confidence may read this as hesitation. An Andorran counterpart may view rapid decision-making as reckless or poorly informed.
+
+Follow-up after a meeting should be clear and written. Summarizing what was discussed and confirming next steps helps avoid misunderstanding and shows you take the relationship seriously. If the meeting went well, expect future conversations to become warmer, though the measured style will remain.

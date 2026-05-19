@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Tajikistan, making business contacts begins with trusted intermediaries. Personal introductions open doors far more effectively than cold outreach, because Soviet-era professional networks and deeply rooted clan and regional affiliations continue to shape who people feel comfortable working with. A shared contact provides assurance of character and reliability before formal business discussions begin. If you lack a local connection, reaching out through professional associations, chambers of commerce, or mutual acquaintances can help establish credibility. Without that bridge, your email or call may go unanswered, not out of disinterest but because the relationship has not yet been established.
+
+Scheduling appointments works best when done at least a week in advance, with a polite follow-up closer to the date. Meetings may be confirmed but then shifted at short notice, particularly if a higher-status visitor appears or family obligations arise. This flexibility reflects the primacy of relationships over rigid schedules. Colleagues from cultures where punctuality anchors professionalism may read this as disorganization, while Tajik counterparts may view insistence on fixed timing as inflexible or transactional, missing the relational context that governs priorities.
+
+Regional and generational differences shape how contacts are made. In Dushanbe, younger professionals in international firms may be comfortable with direct email contact and quicker scheduling. In regional centers and rural areas, introductions still rely heavily on family or community ties, and meetings unfold at a slower pace. Building the relationship first remains the surest route to productive collaboration.

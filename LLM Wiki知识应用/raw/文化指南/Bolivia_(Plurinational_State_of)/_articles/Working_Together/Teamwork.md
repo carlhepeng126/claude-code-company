@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Bolivian teamwork often reflects the country's strong collectivist orientation and respect for hierarchy. Teams function best when relationships are established first, and collaboration flows through personal connection rather than purely procedural channels. Senior colleagues typically guide others through mentorship and example, offering direction in ways that preserve dignity and group cohesion. This approach means decisions may emerge through consensus-building rather than top-down directives, even in hierarchical settings. When working with Bolivian colleagues, expect time to be spent on relationship-building before diving into task execution. Rushing this phase can undermine trust and collaboration later.
+
+Regional and generational differences shape how teams operate. In urban centers like La Paz and Santa Cruz, younger professionals influenced by multinational firms may adopt more structured project management practices. In more traditional or rural settings, informal networks and personal loyalty often determine how work gets done. Indigenous cultural values, particularly the concept of *ayni* (reciprocal exchange), can also shape expectations around mutual support and fairness within teams.
+
+Direct criticism in group settings can damage relationships and disrupt team harmony. Feedback is better delivered privately and framed constructively, with attention to preserving face. A colleague from a culture where frank debate is seen as productive might read this as inefficiency or avoidance, while a Bolivian team member might perceive rapid, direct challenge as disrespectful or destabilizing. Recognizing that both approaches serve group effectiveness, just through different social logics, helps collaboration move forward without misreading intent.

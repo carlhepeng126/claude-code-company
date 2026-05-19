@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In a country of roughly 400,000 people, the first thing that happens when you reach out to someone in Iceland is often invisible to you. Behind the scenes, your contact is likely running a quiet background check through friends, former classmates, or someone they swim with every morning. You are rarely a total stranger here. Someone will ask who brought you in or how you found them, and those answers travel fast through overlapping social and professional circles. A local reference smooths this process considerably. Mentioning that you worked with someone at Landsvirkjun or know a colleague in Akureyri gives your contact a thread to pull and often accelerates trust.
+
+Cold emails and calls are perfectly acceptable. Iceland is used to outsiders and business structures are flat, so reaching the right person directly is usually straightforward. But initial openness does not mean instant trust. That forms later, when you do exactly what you promised, especially when conditions turn difficult. Storm alerts, closed mountain roads, and the realities of four-hour daylight windows in January are normal planning variables here. People remember who stayed steady when the wind picked up or the ash cloud grounded flights.
+
+When scheduling, ask about road conditions, storm forecasts, and daylight availability if you are meeting outside Reykjavik. These are not dramatic complications. They are stakeholders in the plan, and factoring them in without fuss signals that you understand the island is not just a map. Meetings booked in January require different thinking than those set for the midnight sun of July, and Icelanders expect partners who plan accordingly.

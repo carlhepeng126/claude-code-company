@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+In Andorra, people respond to recognition that feels personal and grounded in genuine appreciation. The country's small size means workplace relationships are often layered with family ties or long-term social connections, and someone's contribution reflects on their reputation across these networks. A manager who acknowledges effort in a way that feels sincere, perhaps with a quiet word after a meeting or a mention in front of colleagues, taps into this deeper sense of standing. Public praise can be motivating, but it needs to feel earned and authentic rather than formulaic.
+
+Financial incentives play a role, but they rarely drive sustained commitment on their own. What tends to inspire more consistent engagement is the sense of being valued as part of a trusted group. In a workplace culture shaped by proximity and long-term relationships, people are more likely to give their best when they feel their manager sees them as individuals, when flexibility around family obligations is quietly offered, and when their role feels secure rather than conditional. Younger professionals, especially those with international exposure or ambitions beyond Andorra's borders, may be drawn to development opportunities or variety in their work, but even then, stability and respect within the local context remain strong motivators.
+
+Rigid deadlines or pressure tactics tend to backfire. Andorra's pace is shaped by a culture where time is flexible and relationships take precedence over strict schedules. A manager from a culture where urgency is assumed may find that pushing harder yields withdrawal rather than speed. From the Andorran side, that urgency can feel disconnected from the reality of how work actually gets done. Adapting timelines and maintaining momentum through trust rather than pressure will consistently produce better results.

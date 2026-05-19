@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Romania reflects a deeper social principle: hospitality reveals moral character. The Romanian concept of *omenie* (human decency or goodness) is closely tied to how someone hosts. Generosity toward guests conveys warmth, but also honour and self-respect. When a Romanian colleague invites you to a meal or takes time to ensure you're well looked after, they're demonstrating something beyond friendliness. Treating this space as purely transactional or hurrying through it misses what's being built.
+
+Food and drink play a central role, and abundance matters more than extravagance. Romanian hosts typically offer more than can comfortably be consumed, and this isn't about showing off. It's about making someone feel valued and cared for. Traditional plum brandy, *țuică* (a strong fruit spirit), may be offered early in a gathering, especially outside major cities or in more traditional settings. Accepting a glass, or declining gently with a brief reason such as driving or health, acknowledges the gesture without awkwardness. The offer itself functions as a small ritual of welcome rather than an expectation of heavy drinking.
+
+Business discussions often emerge naturally once rapport has been established, not as the stated purpose of the gathering. Romanians may use the meal to observe how people behave, how they respond to hospitality, and whether trust can be built. Pressing for decisions or steering the conversation toward outcomes too quickly can feel impatient. If you host in return, the quality of care you show will be noted. Making guests feel comfortable and attending to detail often registers more strongly than the choice of venue.

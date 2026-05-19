@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Trust-building comes before deal-making. Relationships are evaluated over time, through consistency and track record, not early assurances. This reflects a reality shaped by economic instability: people have learned to weigh promises against proof. Commitments are tested through social accountability, whether someone is embedded in a community that remembers, and whether their word has held up before. Arriving with credible references or working through a known intermediary can shorten the trust-building phase, but expect early conversations to focus on connection more than contract terms.
+
+Agreements may be reopened or revisited even after apparent consensus. This is not evasion but a reflection of *kukiya-kiya* logic, the improvisational skill that values adaptability over rigid systems. Conditions shift, new information emerges, and partners who can adjust calmly are valued more than those who insist on fixed plans. A colleague from a culture where signed agreements are treated as final may read this as unreliability, while a Zimbabwean counterpart may read an insistence on rigid terms as a lack of realism or flexibility when circumstances change.
+
+Tone and tact are read as indicators of whether the relationship will be safe over time. Direct pressure or visible frustration can threaten face and reduce cooperation, even if the underlying concern is valid. Disagreement is better framed in terms that preserve dignity: acknowledging constraints, offering alternatives, or expressing concern rather than criticism. What may feel like indirectness to a colleague from a culture where refusal is stated plainly functions here as relationship continuity, keeping discussions workable when the answer is no or not yet.

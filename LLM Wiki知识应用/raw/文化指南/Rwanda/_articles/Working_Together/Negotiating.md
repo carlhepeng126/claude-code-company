@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+In Rwanda, a negotiation is rarely understood as a neutral exchange of interests. It unfolds inside a moral frame shaped by *ubupfura*, the concept of ethical character that includes integrity, honesty, and a commitment to doing good. Your counterpart will be reading the conversation not just for what you offer, but for who you are: whether you keep your word, whether your proposal is fair, and whether you approach the table with sincerity. This means that how you present yourself can be as influential as the terms themselves. If you frame a concession as a calculated move without acknowledging the principle behind it, or if your proposal feels opaque or transactional, trust may stall before the details are even discussed.
+
+*Agaciro*, often translated as dignity or self-worth, shapes the tone of the exchange. Rwanda's national narrative emphasizes agency and self-reliance, and proposals that feel patronizing or that position Rwanda as a passive recipient risk being met with distance. Partners who treat the negotiation as between equals, who show respect for Rwanda's capacity and voice, and who avoid language that implies rescue or dependency, are more likely to build momentum. A colleague accustomed to rapid-fire bargaining may read this care for tone as overly formal or slow, while a Rwandan counterpart may read aggressive tactics or impatience as disrespectful or morally suspect.
+
+Clarity and follow-through are taken seriously. The cultural practice of *imihigo*, public pledges tied to accountability and evaluation, encourages a preference for commitments that are concrete: what will happen, who owns it, and by when. Summarize agreements in writing, name trade-offs openly, and show your reasoning rather than leaving it implicit. This transparency reinforces moral credibility and can accelerate trust in a context where vague promises or hidden clauses are read as signs of unreliability.

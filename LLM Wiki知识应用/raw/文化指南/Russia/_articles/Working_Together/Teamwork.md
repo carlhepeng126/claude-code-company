@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Russia's collective past sits alongside a selective instinct for trust. Soviet life embedded the habit of working inside formal groups—schools, institutes, factories—yet everyday survival also relied on tight circles of dependable people. That combination often produces teams where togetherness exists on the surface, but deeper trust builds through repeated proof of reliability rather than immediate openness. A colleague from a culture where teams bond quickly through disclosure may wonder why colleagues remain guarded. From the Russian side, early informality can read as performative or unsafe until someone shows they follow through.
+
+The cultural sorting of *svoi* and *chuzhoi* (our own and strange) still quietly shapes who speaks freely, who gets the benefit of the doubt, and how quickly a newcomer moves from observer to insider. This is less about deliberate exclusion and more about an organizing instinct for safety and belonging that evolved through generations of uncertainty. To be treated as *svoi*, prepare thoroughly, honor commitments, and close loops—substance and dependability matter more than visibility. Teams can develop a family atmosphere once that threshold is crossed, with high human contact and mutual support during difficulty.
+
+Russia's regional and ethnic diversity means one team can hold sharply different norms around directness, hierarchy, gender roles, and when to speak up. Republic identities, languages, and religious backgrounds create real variation. Rather than assume uniformity, ask how the team prefers to handle disagreement or raise concerns. Recognize contribution by naming the work itself—rigor, precision, problem-solving—rather than offering broad praise. Seriousness is a social contribution, and competence often reads as respect.

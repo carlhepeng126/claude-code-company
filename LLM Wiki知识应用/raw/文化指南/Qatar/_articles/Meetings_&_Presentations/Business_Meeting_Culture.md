@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Qatar reflect the majlis tradition, a gathering place where people are received, issues are discussed, and alignment is built through conversation. UNESCO recognises the majlis as a social institution for deliberation, and that template shapes how professional meetings are often experienced: taking time to greet properly, allowing people to settle in, and giving space for discussion to widen before it tightens. If you are used to working from a fixed agenda that moves in a straight line, you may feel the meeting is drifting. From the Qatari side, the same exchange may feel appropriately deliberate, ensuring everyone is heard and dignity is maintained.
+
+Consultation is valued here not just as a practice but as a moral idea. Qatar's constitution frames the political system as democratic and based on shura, or consultation, and that principle shows up in professional life as well. Discussion may circle back, new voices may be brought in partway through, and consensus may take longer to surface than it would in environments where decisions are made quickly by individuals. Use gentle summarising to help the conversation reach clarity rather than trying to close it down early.
+
+Formality and courtesy are visible from the start. Coffee or tea will often be offered, and accepting graciously is part of the receiving etiquette. Arabic coffee is recognised by UNESCO as a symbol of generosity, served with codified etiquette around sequencing and respect. That same sensitivity to pacing and honour extends to how meetings unfold. Keep your tone measured, allow respectful turn-taking, and avoid pressing hard for immediate commitments, especially in settings with mixed seniority or official representation.

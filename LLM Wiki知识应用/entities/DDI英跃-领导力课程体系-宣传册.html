@@ -1,0 +1,854 @@
+<!DOCTYPE html>
+<html lang="zh-CN">
+<head>
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+<title>DDI英跃 · 领导力课程体系萃取手册</title>
+<link rel="preconnect" href="https://fonts.googleapis.com">
+<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin>
+<link href="https://fonts.googleapis.com/css2?family=Noto+Sans+SC:wght@300;400;500;700&family=Noto+Serif+SC:wght@400;600;700;900&family=Playfair+Display:ital,wght@0,400;0,700;0,900;1,400;1,700&display=swap" rel="stylesheet">
+<style>
+:root {
+  --navy: #1B2A4A; --navy-light: #263A5E; --gold: #C8963E; --gold-light: #D4A85C;
+  --cream: #FAF8F5; --cream-dark: #F0EBE0; --white: #FFFFFF;
+  --text: #2D3748; --text-light: #6B7B8F; --text-muted: #94A3B8; --red: #9B2C2C;
+  --tag-new: #C8963E;
+}
+* { margin:0; padding:0; box-sizing:border-box; }
+body {
+  font-family:'Noto Sans SC',sans-serif;
+  background:#E6E2DA;
+  display:flex; flex-direction:column; align-items:center;
+  padding:30px 20px; gap:40px;
+}
+.page {
+  width:210mm; min-height:297mm; background:var(--cream);
+  box-shadow:0 8px 40px rgba(27,42,74,0.18); position:relative; overflow:hidden; flex-shrink:0;
+}
+.page::before {
+  content:''; position:absolute; top:0;left:0;right:0;bottom:0;
+  background:url("data:image/svg+xml,%3Csvg viewBox='0 0 256 256' xmlns='http://www.w3.org/2000/svg'%3E%3Cfilter id='n'%3E%3CfeTurbulence type='fractalNoise' baseFrequency='0.9' numOctaves='4' stitchTiles='stitch'/%3E%3C/filter%3E%3Crect width='100%25' height='100%25' filter='url(%23n)' opacity='0.02'/%3E%3C/svg%3E");
+  opacity:0.5; pointer-events:none; z-index:0;
+}
+.page>* { position:relative; z-index:1; }
+.pn { position:absolute; bottom:20px; right:34px; font-family:'Playfair Display',serif; font-size:10px; color:rgba(0,0,0,0.12); letter-spacing:1px; }
+.pn-light { color:rgba(255,255,255,0.15); }
+.gold-rule { width:40px; height:3px; background:var(--gold); margin-bottom:16px; }
+
+/* ===== PAGE 01: COVER ===== */
+.page-cover { background:var(--navy); display:flex; flex-direction:column; align-items:center; justify-content:center; text-align:center; padding:50px; }
+.page-cover::before { display:none; }
+.cover-badge { font-size:10px; letter-spacing:6px; color:var(--gold); text-transform:uppercase; margin-bottom:30px; }
+.cover-title { font-family:'Noto Serif SC',serif; font-size:40px; font-weight:900; color:white; letter-spacing:6px; line-height:1.4; margin-bottom:12px; }
+.cover-subtitle { font-family:'Noto Serif SC',serif; font-size:18px; color:var(--gold-light); letter-spacing:4px; font-weight:400; margin-bottom:40px; }
+.cover-line { width:60px; height:1px; background:var(--gold); margin-bottom:40px; }
+.cover-meta { font-size:11px; color:rgba(255,255,255,0.45); letter-spacing:3px; line-height:2; }
+.cover-circle { position:absolute; border:1px solid rgba(255,255,255,0.04); border-radius:50%; pointer-events:none; z-index:0; }
+.cc1 { width:360px; height:360px; top:-100px; right:-80px; }
+.cc2 { width:240px; height:240px; bottom:-60px; left:-40px; }
+
+/* ===== PAGE 02: SYSTEM OVERVIEW ===== */
+.page-overview { padding:55px 60px; }
+.sys-hero { background:var(--navy); color:white; padding:30px 36px; margin:-55px -60px 30px; }
+.sys-hero h1 { font-family:'Noto Serif SC',serif; font-size:28px; font-weight:700; letter-spacing:4px; margin-bottom:6px; }
+.sys-hero p { font-size:12px; color:rgba(255,255,255,0.55); line-height:1.8; }
+.sys-stat-row { display:flex; gap:16px; margin-bottom:28px; }
+.sys-stat { flex:1; text-align:center; padding:16px 10px; background:var(--white); border-radius:3px; box-shadow:0 2px 12px rgba(0,0,0,0.03); }
+.sys-stat .num { font-family:'Playfair Display',serif; font-size:36px; font-weight:900; color:var(--gold); }
+.sys-stat .lbl { font-size:10px; color:var(--text-light); margin-top:4px; letter-spacing:1px; }
+
+.domain-grid { display:flex; gap:14px; margin-bottom:20px; }
+.domain-card { flex:1; padding:18px 14px; border-radius:3px; border-top:3px solid; }
+.domain-card:nth-child(1) { border-color:var(--navy); background:rgba(27,42,74,0.03); }
+.domain-card:nth-child(2) { border-color:var(--navy-light); background:rgba(38,58,94,0.03); }
+.domain-card:nth-child(3) { border-color:var(--gold); background:rgba(200,150,62,0.04); }
+.domain-card h3 { font-size:14px; color:var(--navy); margin-bottom:6px; letter-spacing:2px; }
+.domain-card .count { font-size:24px; font-weight:900; color:var(--gold); font-family:'Playfair Display',serif; margin-bottom:8px; }
+.domain-card ul { list-style:none; font-size:10px; color:var(--text-light); line-height:2; }
+.domain-card ul li::before { content:'· '; color:var(--gold); font-weight:700; }
+.tag-new { font-size:8px; color:var(--gold); background:rgba(200,150,62,0.12); padding:1px 5px; border-radius:2px; margin-left:3px; letter-spacing:1px; }
+
+.prep-banner { background:var(--cream-dark); border-radius:3px; padding:14px 20px; display:flex; align-items:center; gap:16px; }
+.prep-banner .prep-tag { font-size:10px; color:var(--gold); letter-spacing:2px; font-weight:700; white-space:nowrap; }
+.prep-banner span { font-size:11px; color:var(--text); }
+
+/* ===== PAGE 03: METHODOLOGY ===== */
+.page-method { padding:45px 55px; }
+.method-hero { background:var(--navy); color:white; padding:24px 30px; margin:-45px -55px 28px; }
+.method-hero h2 { font-family:'Noto Serif SC',serif; font-size:22px; letter-spacing:3px; }
+
+.method-block { margin-bottom:22px; }
+.method-block h3 { font-family:'Noto Serif SC',serif; font-size:16px; color:var(--navy); margin-bottom:8px; letter-spacing:2px; padding-bottom:6px; border-bottom:2px solid var(--gold); display:inline-block; }
+.method-block p { font-size:12px; color:var(--text-light); line-height:1.8; }
+
+.cycle-row { display:flex; gap:10px; margin:16px 0; }
+.cycle-step { flex:1; text-align:center; padding:16px 10px; background:var(--white); border-radius:3px; box-shadow:0 2px 8px rgba(0,0,0,0.03); position:relative; }
+.cycle-step .cs-num { font-family:'Playfair Display',serif; font-size:28px; font-weight:900; color:var(--gold); opacity:0.3; margin-bottom:4px; }
+.cycle-step h4 { font-size:12px; color:var(--navy); font-weight:700; margin-bottom:4px; }
+.cycle-step p { font-size:9px; color:var(--text-muted); line-height:1.5; }
+.cycle-arrow { position:absolute; right:-14px; top:50%; color:var(--gold); font-size:16px; transform:translateY(-50%); z-index:2; }
+
+/* ===== PAGE 04: PYRAMID ===== */
+.page-pyramid { padding:45px 55px; }
+.pyr-header { text-align:center; margin-bottom:28px; }
+.pyr-header h2 { font-family:'Noto Serif SC',serif; font-size:22px; color:var(--navy); letter-spacing:3px; }
+.pyr-header p { font-size:11px; color:var(--text-muted); margin-top:6px; }
+
+.pyr-body { display:flex; flex-direction:column; align-items:center; gap:6px; }
+.pyr-tier { color:white; text-align:center; padding:18px 24px; border-radius:2px; letter-spacing:2px; }
+.pyr-tier strong { font-family:'Noto Serif SC',serif; font-size:16px; display:block; }
+.pyr-tier span { font-size:10px; opacity:0.7; display:block; margin-top:4px; }
+.pt1 { background:var(--navy); width:45%; }
+.pt2 { background:var(--navy-light); width:60%; }
+.pt3 { background:#2E5080; width:78%; }
+.pt4 { background:#3A5F96; width:96%; }
+.pyr-side { width:100%; border-top:2px solid var(--gold); margin-top:14px; padding-top:14px; text-align:center; }
+.pyr-side span { font-size:11px; color:var(--navy); letter-spacing:4px; font-weight:700; }
+.pyr-note { text-align:center; font-size:10px; color:var(--text-muted); margin-top:10px; }
+
+/* ===== PAGE 05-10: COURSE DETAIL ===== */
+.page-module { padding:45px 55px; }
+.mod-banner { background:var(--navy); color:white; padding:22px 30px; margin:-45px -55px 24px; display:flex; align-items:baseline; gap:16px; }
+.mod-banner .mod-num { font-family:'Playfair Display',serif; font-size:48px; font-weight:900; opacity:0.15; line-height:1; }
+.mod-banner h2 { font-family:'Noto Serif SC',serif; font-size:20px; letter-spacing:3px; }
+.mod-banner p { font-size:10px; color:rgba(255,255,255,0.5); margin-top:4px; }
+
+.course-card { background:var(--white); border-radius:3px; padding:16px 20px; margin-bottom:10px; box-shadow:0 2px 10px rgba(0,0,0,0.03); display:flex; gap:14px; align-items:flex-start; border-left:3px solid var(--navy); }
+.course-card.new-course { border-left-color:var(--gold); }
+.cc-icon { font-family:'Playfair Display',serif; font-size:22px; font-weight:900; color:var(--gold); min-width:32px; line-height:1; }
+.cc-body { flex:1; }
+.cc-body h4 { font-size:13px; color:var(--navy); font-weight:700; margin-bottom:3px; letter-spacing:1px; }
+.cc-body .cc-hook { font-size:10px; color:var(--text-muted); font-style:italic; margin-bottom:6px; }
+.cc-body .cc-outline { font-size:10px; color:var(--text-light); line-height:1.6; }
+.cc-body .cc-target { font-size:9px; color:var(--gold); margin-top:4px; }
+.cc-badge-new { font-size:8px; background:var(--gold); color:white; padding:2px 6px; border-radius:2px; letter-spacing:1px; margin-left:6px; }
+
+/* ===== PAGE 11: TOOL SUITE ===== */
+.page-tools { padding:45px 55px; }
+.tools-table { width:100%; border-collapse:collapse; font-size:10px; margin:16px 0; }
+.tools-table th { background:var(--navy); color:white; padding:9px 10px; text-align:left; font-weight:500; font-size:9px; letter-spacing:2px; }
+.tools-table td { padding:8px 10px; border-bottom:1px solid rgba(27,42,74,0.05); color:var(--text); vertical-align:top; }
+.tools-table .cat-row td { background:rgba(200,150,62,0.06); font-weight:700; color:var(--navy); font-size:11px; letter-spacing:1px; }
+.tt-num { color:var(--gold); font-weight:700; font-family:'Playfair Display',serif; font-size:11px; width:30px; }
+.tt-star { color:var(--gold); letter-spacing:1px; font-size:9px; }
+.tt-use { color:var(--text-muted); font-size:9px; }
+
+/* ===== PAGE 12: DELIVERY MODEL ===== */
+.page-delivery { padding:45px 55px; }
+.del-hero { background:var(--navy); color:white; padding:24px 30px; margin:-45px -55px 28px; }
+.del-hero h2 { font-family:'Noto Serif SC',serif; font-size:20px; letter-spacing:3px; }
+
+.del-row { display:flex; gap:12px; margin-bottom:18px; }
+.del-card { flex:1; padding:18px 16px; border-radius:3px; box-shadow:0 2px 8px rgba(0,0,0,0.03); }
+.del-card:nth-child(1) { background:rgba(27,42,74,0.04); border-top:3px solid var(--navy); }
+.del-card:nth-child(2) { background:rgba(38,58,94,0.04); border-top:3px solid var(--navy-light); }
+.del-card:nth-child(3) { background:rgba(200,150,62,0.04); border-top:3px solid var(--gold); }
+.del-card h4 { font-size:13px; color:var(--navy); margin-bottom:6px; letter-spacing:1px; }
+.del-card p { font-size:10px; color:var(--text-light); line-height:1.6; }
+
+/* ===== PAGE 13: ABOUT / KEY INSIGHTS ===== */
+.page-about { background:var(--navy); color:white; padding:50px 55px; display:flex; flex-direction:column; }
+.page-about::before { display:none; }
+.page-about h2 { font-family:'Noto Serif SC',serif; font-size:22px; color:var(--gold); letter-spacing:3px; margin-bottom:24px; }
+.about-grid { display:flex; gap:30px; flex:1; }
+.about-main { flex:1.3; font-size:12px; line-height:2; color:rgba(255,255,255,0.75); }
+.about-main strong { color:white; }
+.about-side { flex:0.7; }
+.about-side h5 { font-size:10px; letter-spacing:3px; color:var(--gold); margin-bottom:12px; }
+.about-item { padding:8px 0; border-bottom:1px solid rgba(255,255,255,0.06); font-size:10px; color:rgba(255,255,255,0.6); display:flex; align-items:center; gap:8px; }
+.about-item::before { content:''; width:5px; height:5px; background:var(--gold); border-radius:50%; flex-shrink:0; }
+.insight-box { background:rgba(255,255,255,0.03); border:1px solid rgba(255,255,255,0.06); border-radius:3px; padding:16px 20px; margin-top:18px; }
+.insight-box h5 { font-size:11px; color:var(--gold-light); letter-spacing:2px; margin-bottom:8px; }
+.insight-box p { font-size:10px; color:rgba(255,255,255,0.5); line-height:1.7; }
+
+/* ===== PAGE 14: BACK COVER ===== */
+.page-back { background:var(--navy); display:flex; flex-direction:column; align-items:center; justify-content:center; text-align:center; padding:50px; }
+.page-back::before { display:none; }
+.back-quote { font-family:'Noto Serif SC',serif; font-size:20px; color:var(--gold-light); line-height:1.8; letter-spacing:3px; max-width:480px; margin-bottom:30px; }
+.back-line { width:40px; height:1px; background:var(--gold); margin-bottom:24px; }
+.back-source { font-size:10px; color:rgba(255,255,255,0.35); letter-spacing:2px; line-height:2; }
+
+/* ===== TOOL FORMS (Page 11) ===== */
+.form-sheet { background:var(--white); border:1px solid rgba(27,42,74,0.08); border-radius:4px; padding:18px 22px; margin:10px 0 14px; box-shadow:0 2px 8px rgba(0,0,0,0.03); font-size:10px; }
+.form-sheet .form-title { font-family:'Noto Serif SC',serif; font-size:14px; font-weight:700; color:var(--navy); margin-bottom:3px; letter-spacing:1px; }
+.form-sheet .form-meta { font-size:9px; color:var(--text-muted); margin-bottom:10px; letter-spacing:1px; }
+.form-section-label { font-size:10px; font-weight:700; color:var(--navy); margin:10px 0 6px; padding-bottom:3px; border-bottom:1px solid rgba(200,150,62,0.3); letter-spacing:1px; }
+.form-row { display:flex; align-items:baseline; gap:8px; margin-bottom:5px; font-size:10px; }
+.fr-label { color:var(--navy); font-weight:500; min-width:100px; flex-shrink:0; }
+.fr-value { color:var(--text-light); border-bottom:1px dashed rgba(0,0,0,0.12); flex:1; min-width:50px; padding:2px 0; }
+
+@media print {
+  body { background:white; padding:0; gap:0; }
+  .page { box-shadow:none; page-break-after:always; width:210mm; min-height:297mm; }
+  .page:last-child { page-break-after:avoid; }
+  .page::before { display:none; }
+}
+@page { size:A4; margin:0; }
+</style>
+</head>
+<body>
+
+<!-- ===== PAGE 01: COVER ===== -->
+<div class="page page-cover">
+  <div class="cover-circle cc1"></div><div class="cover-circle cc2"></div>
+  <div class="cover-badge">DDI 英跃 · 竞争情报萃取</div>
+  <div class="cover-title">领导力科学<br>培训课程体系</div>
+  <div class="cover-subtitle">Leadership Development Course Architecture</div>
+  <div class="cover-line"></div>
+  <div class="cover-meta">
+    萃取自 DDI 英跃官网 · 2026年5月<br>
+    iMorgan 摩根 · 竞争研究参考
+  </div>
+  <div class="pn pn-light" style="position:absolute; bottom:20px; right:34px;">P01</div>
+</div>
+
+<!-- ===== PAGE 02: SYSTEM OVERVIEW ===== -->
+<div class="page page-overview">
+  <div class="sys-hero">
+    <h1>3+16 课程体系全景</h1>
+    <p>课程体系构建自DDI半个世纪建模数据及近千国内企业调研结果，专为企业基中层管理者构建。<br>以具体单项能力为最小培训单位，协助企业打造灵活、及时、有针对性的领导力提升培训解决方案。</p>
+  </div>
+  <div class="sys-stat-row">
+    <div class="sys-stat"><div class="num">3</div><div class="lbl">准备课程</div></div>
+    <div class="sys-stat"><div class="num">16</div><div class="lbl">核心能力课程</div></div>
+    <div class="sys-stat"><div class="num">3</div><div class="lbl">能力域</div></div>
+    <div class="sys-stat"><div class="num">50+</div><div class="lbl">年研究积淀</div></div>
+  </div>
+
+  <h3 style="font-family:'Noto Serif SC',serif; font-size:15px; color:var(--navy); letter-spacing:2px; margin-bottom:14px;">三大能力域 · 十六项核心能力</h3>
+
+  <div class="domain-grid">
+    <div class="domain-card">
+      <h3>业务管理</h3>
+      <div class="count">5</div>
+      <ul>
+        <li>计划与组织</li>
+        <li>决策</li>
+        <li>达至最佳绩效</li>
+        <li>执行力 <span class="tag-new">NEW</span></li>
+        <li>推动创新 <span class="tag-new">NEW</span></li>
+      </ul>
+    </div>
+    <div class="domain-card">
+      <h3>团队管理</h3>
+      <div class="count">8</div>
+      <ul>
+        <li>目标选才</li>
+        <li>辅导</li>
+        <li>授权</li>
+        <li>打造高效团队</li>
+        <li>驱动变革</li>
+        <li>激励与保留人才 <span class="tag-new">NEW</span></li>
+        <li>领导虚拟团队 <span class="tag-new">NEW</span></li>
+        <li>培养人才 <span class="tag-new">NEW</span></li>
+      </ul>
+    </div>
+    <div class="domain-card">
+      <h3>人际管理</h3>
+      <div class="count">3</div>
+      <ul>
+        <li>协作</li>
+        <li>影响力</li>
+        <li>解决冲突</li>
+      </ul>
+    </div>
+  </div>
+
+  <div class="prep-banner">
+    <div class="prep-tag">领导力加速驱动</div>
+    <span>3门准备课程：<strong>领导力DNA</strong>（大五人格测评·51题）+ <strong>领导力启程</strong>（新经理思维转型）+ <strong>领导力精要</strong>（领导力核心认知）</span>
+  </div>
+  <div class="pn">P02</div>
+</div>
+
+<!-- ===== PAGE 03: METHODOLOGY ===== -->
+<div class="page page-method">
+  <div class="method-hero"><h2>核心方法论：行为模式法 + 四步学习闭环</h2></div>
+
+  <div class="method-block">
+    <h3>行为模式法（Behavioral Modeling Method）</h3>
+    <p>DDI将领导力领域中一系列能力一一拆解成可转化为实践的<strong>"关键行动"</strong>，让学员掌握展现某项领导能力所需要展现的关键行为和步骤。这是培训内容中<strong>绝对不可缺少的</strong>让学习能够"落地"的关键。过去五十年，DDI已通过诸多实际案例证明了抓住关键行动路径的有效性。</p>
+  </div>
+
+  <div class="method-block">
+    <h3>四步学习闭环</h3>
+    <p>每门课程遵循同一教学设计逻辑：诊断 → 学习 → 模拟 → 考核，形成完整的行为改善闭环。</p>
+    <div class="cycle-row">
+      <div class="cycle-step">
+        <div class="cs-num">01</div>
+        <h4>能力诊断</h4>
+        <p>了解学员单项能力学前水平，自我识别优势短板，获得个性化学习建议</p>
+        <div class="cycle-arrow">→</div>
+      </div>
+      <div class="cycle-step">
+        <div class="cs-num">02</div>
+        <h4>微课学习</h4>
+        <p>7分钟左右小课，最适宜学习颗粒度，通过课前后小练习加深理解和巩固</p>
+        <div class="cycle-arrow">→</div>
+      </div>
+      <div class="cycle-step">
+        <div class="cs-num">03</div>
+        <h4>情景模拟</h4>
+        <p>场景化挑战案例，学员化身"游戏挑战"角色，在模拟实操中应用所学</p>
+        <div class="cycle-arrow">→</div>
+      </div>
+      <div class="cycle-step">
+        <div class="cs-num">04</div>
+        <h4>能力考核</h4>
+        <p>学习前后诊断与考核结果对比，行为改善一目了然，获取个性化发展建议</p>
+      </div>
+    </div>
+  </div>
+
+  <div class="method-block">
+    <h3>产品分层：标准版 / 高级版 / 学习管理平台</h3>
+    <div style="display:flex; gap:12px; margin-top:12px;">
+      <div style="flex:1; padding:14px 16px; border:1px solid rgba(27,42,74,0.1); border-radius:3px;">
+        <h4 style="font-size:12px; color:var(--navy);">英跃® 标准版</h4>
+        <p style="font-size:10px; color:var(--text-muted); line-height:1.6;">线上自驱学习，标准课程库，在线测评与模拟</p>
+      </div>
+      <div style="flex:1; padding:14px 16px; border:1px solid rgba(200,150,62,0.2); border-radius:3px;">
+        <h4 style="font-size:12px; color:var(--navy);">英跃® 高级版</h4>
+        <p style="font-size:10px; color:var(--text-muted); line-height:1.6;">混合式学习，附加线下工作坊、教练辅导、行动学习</p>
+      </div>
+      <div style="flex:1; padding:14px 16px; border:1px solid rgba(27,42,74,0.1); border-radius:3px;">
+        <h4 style="font-size:12px; color:var(--navy);">学习管理平台</h4>
+        <p style="font-size:10px; color:var(--text-muted); line-height:1.6;">企业级LMS，学习数据追踪，组织人才看板</p>
+      </div>
+    </div>
+  </div>
+  <div class="pn">P03</div>
+</div>
+
+<!-- ===== PAGE 04: COURSE PYRAMID ===== -->
+<div class="page page-pyramid">
+  <div class="pyr-header">
+    <h2>领导力发展进阶金字塔</h2>
+    <p>从自我认知到团队引领的系统进阶路径</p>
+  </div>
+  <div class="pyr-body">
+    <div class="pyr-tier pt4">
+      <strong>人际管理 · 横向影响力</strong>
+      <span>协作 · 影响力 · 解决冲突 — 跨部门、跨层级推动事情发生</span>
+    </div>
+    <div class="pyr-tier pt3">
+      <strong>团队管理 · 带队伍能力</strong>
+      <span>选才 · 辅导 · 授权 · 建团队 · 推变革 · 留人才 · 带虚拟 · 育人才</span>
+    </div>
+    <div class="pyr-tier pt2">
+      <strong>业务管理 · 拿结果能力</strong>
+      <span>计划组织 · 决策 · 绩效管理 · 执行 · 创新</span>
+    </div>
+    <div class="pyr-tier pt1">
+      <strong>领导力加速驱动 · 自我认知基座</strong>
+      <span>DNA测评 → 启程思维转型 → 精要核心认知</span>
+    </div>
+  </div>
+  <div class="pyr-side"><span>英跃® 学习管理平台 — 数据驱动 · 全程追踪</span></div>
+  <p class="pyr-note">基中层管理者忙于业务，仅需最为必要的学习来聚焦提升核心能力，解决业务挑战。</p>
+
+  <div style="margin-top:24px; padding:16px 20px; background:rgba(27,42,74,0.03); border-radius:3px;">
+    <h3 style="font-family:'Noto Serif SC',serif; font-size:14px; color:var(--navy); letter-spacing:2px; margin-bottom:8px;">学习形式标准化</h3>
+    <table style="width:100%; font-size:10px; border-collapse:collapse;">
+      <tr><td style="padding:5px 0; color:var(--navy); font-weight:700; width:80px;">能力诊断</td><td style="color:var(--text-light);">在线测评，识别优势短板，获得个性化学习建议</td></tr>
+      <tr><td style="padding:5px 0; color:var(--navy); font-weight:700;">微课学习</td><td style="color:var(--text-light);">7分钟/节，课前后小练习，最适宜学习颗粒度</td></tr>
+      <tr><td style="padding:5px 0; color:var(--navy); font-weight:700;">情景模拟</td><td style="color:var(--text-light);">场景化游戏挑战，立即应用所学，实操中强化理解</td></tr>
+      <tr><td style="padding:5px 0; color:var(--navy); font-weight:700;">能力考核</td><td style="color:var(--text-light);">前后测对比，行为改善数据可视化，获取发展建议</td></tr>
+    </table>
+  </div>
+  <div class="pn">P04</div>
+</div>
+
+<!-- ===== PAGE 05: 业务管理 ===== -->
+<div class="page page-module">
+  <div class="mod-banner">
+    <div class="mod-num">01</div>
+    <div><h2>业务管理 · 拿结果的能力</h2><p>Business Management — 5门核心课程</p></div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">P</div>
+    <div class="cc-body">
+      <h4>计划与组织</h4>
+      <div class="cc-hook">"计划从容不迫，行动才能游刃有余"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>一整套制定计划、执行计划的步骤和技巧<br>
+        <strong>课程要点：</strong>厘清任务核心目的 → 轻重缓急矩阵定优先级 → 任务细分与资源清单 → 内外部资源协调 → 专注力与双指标追踪 → 5项关键行动<br>
+        <strong>情景模拟：</strong>海外事业部的挑战 — 任务重重，状况不断，如何从容应对？
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">D</div>
+    <div class="cc-body">
+      <h4>决策</h4>
+      <div class="cc-hook">"一个错误的决策，100个行动也无法挽救"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>完整实用的决策步骤和技巧，帮助高效自信地做出业务决策<br>
+        <strong>课程要点：</strong>辨识四种决策盲点 → 高效决策五步骤 → 集思广益拟定可选方案 → 系统分析利弊找最佳解 → 沟通实施决策 → 7大关键行动<br>
+        <strong>适合人群：</strong>"纠结"的决策者 / "焦虑"的决策者 / "小白"的决策者
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">Pf</div>
+    <div class="cc-body">
+      <h4>达至最佳绩效</h4>
+      <div class="cc-hook">"绩效管理很关键，但做绩效管理很糟心"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>绩效三模块体系梳理 — 不要完美的规划，只要可见的绩效<br>
+        <strong>课程要点：</strong>绩效管理本质理解 → 公司愿景与个人绩效关系 → 定目标（关键结果领域+SMART）→ 定能力 → 个人发展计划（学习·应用·反馈）→ 绩效计划讨论达成共识
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card new-course">
+    <div class="cc-icon">Ex</div>
+    <div class="cc-body">
+      <h4>执行力 <span class="cc-badge-new">NEW</span></h4>
+      <div class="cc-hook">"没有执行力，再好的战略也无法实现 — 企业成功5%在战略，95%在执行"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>执行力三大实战要领 — 聚焦战略，明确分工，有效衡量<br>
+        <strong>课程要点：</strong>保持战略一致性的"硬件"+"软件" → 聚焦"灵魂三问" → 时间管理技巧 → 进度指标vs成果指标 → 识别关键成功要素 → 选对人+追踪问责+复盘四部曲
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card new-course">
+    <div class="cc-icon">In</div>
+    <div class="cc-body">
+      <h4>推动创新 <span class="cc-badge-new">NEW</span></h4>
+      <div class="cc-hook">"创新不仅是一种思维，更是一项技能"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>成为团队创新的孵化者，让创新从单打独斗变成协同作战<br>
+        <strong>课程要点：</strong>心（建立创新观念·四步培养好奇心）→ 脑（挑战思维定式·四种方式转变思维）→ 眼（识别机会·发散→收敛）→ 手（创新方案·小步推进）→ 脚（走出去·影响利益相关人·五大策略）→ 五大关键行动
+      </div>
+    </div>
+  </div>
+  <div class="pn">P05</div>
+</div>
+
+<!-- ===== PAGE 06: 团队管理 (1-4) ===== -->
+<div class="page page-module">
+  <div class="mod-banner">
+    <div class="mod-num">02</div>
+    <div><h2>团队管理 · 带队伍的能力（上）</h2><p>Team Management — 8门核心课程 · 第1-4门</p></div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">TS</div>
+    <div class="cc-body">
+      <h4>目标选才</h4>
+      <div class="cc-hook">"求职者越来越会'面试'，做面试官，没技巧怎么行？"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>系统学习目标选才，掌握面试前、中、后的技能，拥有"火眼金睛"<br>
+        <strong>课程要点：</strong>选才目标定义 → 面试分工表+准备步骤 → STAR行为事例提问与追问 → 动力适配性（Motivational Fit）→ 控制面试气场<br>
+        <strong>核心工具：</strong>行为事例（STAR）提问法、动力适配性评估
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">Co</div>
+    <div class="cc-body">
+      <h4>辅导</h4>
+      <div class="cc-hook">"卓越的管理者，是下属的教练兼老板，而非团队管理上的'消防员'"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>识别问题和机会，学会高效指导下属的解题思路<br>
+        <strong>课程要点：</strong>三种辅导类型认知 → 识别真正需要辅导的问题（找根本原因）→ 轻度辅导：日常反馈三原则 → 完整辅导：沟通五步法 → 两大讨论技巧（防跑偏+理解对齐）<br>
+        <strong>适合人群：</strong>初带团队新经理 / 有心无力的团队管理者 / 下属状况百出的经理人
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">De</div>
+    <div class="cc-body">
+      <h4>授权</h4>
+      <div class="cc-hook">"授权，还是不授权？真是一个两难的选择"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>习得授权的要点和关键技巧，助管理者腾出时间专注于更有意义的职责<br>
+        <strong>课程要点：</strong>五种任务分派方式 → 选人做事四维度 → 五方面授权信息交代 → 互动流程+五大人际基本原则进行授权沟通 → 授权跟进五要点 → 四项关键行动<br>
+        <strong>情景模拟：</strong>未来智播间 — 麾下人才济济，谁是合适人选？
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">HT</div>
+    <div class="cc-body">
+      <h4>打造高效团队</h4>
+      <div class="cc-hook">"将领的作用不是能否冲锋陷阵，而是在黑暗中用微光带领团队前进"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>了解高效团队五大成功要素，找准问题切入团队管理<br>
+        <strong>课程要点：</strong>团队领导者三大挑战 → 成功五要素：流程（角色职责+章程）→ 结果（任务优先级）→ 沟通（信息交换+有效互动）→ 承诺（合作意识+行动）→ 信任（信任方程式四因素）→ 虚拟团队最佳实践 → 六项关键行为<br>
+        <strong>适合人群：</strong>带团队的管理者 / 新团队组建人 / 刚上任的新经理<br>
+        <strong>情景模拟：</strong>火星移民计划 — 身处外太空，团队挑战如何解决？
+      </div>
+    </div>
+  </div>
+  <div class="pn">P06</div>
+</div>
+
+<!-- ===== PAGE 07: 团队管理 (5-8) ===== -->
+<div class="page page-module">
+  <div class="mod-banner">
+    <div class="mod-num">02</div>
+    <div><h2>团队管理 · 带队伍的能力（下）</h2><p>Team Management — 8门核心课程 · 第5-8门</p></div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">Ch</div>
+    <div class="cc-body">
+      <h4>驱动变革</h4>
+      <div class="cc-hook">"为什么70%的变革计划以失败告终？变革真正的成功来自人们行为模式上的改变" — John P. Kotter</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>综合运用3个变革加速器，化解抵触情绪，成功实现加速变革<br>
+        <strong>课程要点：</strong>变革反应四阶段（抗拒→观察→适应→拥抱）→ 个人变革章程 → 加速器一：说清楚（什么在变+为什么变+什么收益）→ 加速器二：解除情绪警报赢得认同 → 加速器三：掌控进程加速变革<br>
+        <strong>适合人群：</strong>即将负责变革者 / 正处于变革中 / 积极迎战变革者
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card new-course">
+    <div class="cc-icon">MR</div>
+    <div class="cc-body">
+      <h4>激励与保留人才 <span class="cc-badge-new">NEW</span></h4>
+      <div class="cc-hook">"留任人才的关键管理法则 — 流失一个人才的损失是培养新员工成本的6倍"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>三大关键因子，提前识别风险，提升员工敬业度<br>
+        <strong>课程要点：</strong>激励的定义与正面影响 → 日常激励的"一颦一笑、一言一行、一举一动" → 驱动因子一：有意义的工作（目的关联+信息分享+充分授权）→ 驱动因子二：积极的工作环境（信任+尊重+合作机制）→ 驱动因子三：个人价值感（认可+成长发展）→ 激励因素谈话 → 识别并留住人才<br>
+        <strong>适合人群：</strong>中基层管理者 / 人力资源伙伴
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card new-course">
+    <div class="cc-icon">VT</div>
+    <div class="cc-body">
+      <h4>领导虚拟团队 <span class="cc-badge-new">NEW</span></h4>
+      <div class="cc-hook">"数智时代团队效能加速器 — 时间或空间的阻隔，是否成为你带队冲锋的阻碍？"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>领导远程协作团队技巧，让团队在缺少面对面互动的情况下依然高效运作<br>
+        <strong>课程要点：</strong>领导虚拟团队挑战与四大招式 → 创造协作环境（团队工具+章程+远程能力培养）→ 远程沟通精要（打破参与壁垒+非正式沟通）→ 确保高产出（短周期目标+跟踪复盘四要点）→ 关注成员身心状态（一对一谈话+针对性支持）→ 四大关键行动
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card new-course">
+    <div class="cc-icon">DT</div>
+    <div class="cc-body">
+      <h4>培养人才 <span class="cc-badge-new">NEW</span></h4>
+      <div class="cc-hook">"为人才创造茁壮成长的良好环境，为团队建立生生不息的人才土壤"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>计划性地协助团队成员在知识、技术和能力等方面持续发展<br>
+        <strong>课程要点：</strong>培养与辅导的差异 → 发展3A流程 → 评估（明确发展目标：高回报机会+一个强项一个待发展+以用为始）→ 学习（多样化方式+一鱼多吃+扫清障碍+评估成效）→ 应用（循序渐进计划+监控衡量+对计划外机会开放）
+      </div>
+    </div>
+  </div>
+  <div class="pn">P07</div>
+</div>
+
+<!-- ===== PAGE 08: 人际管理 ===== -->
+<div class="page page-module">
+  <div class="mod-banner">
+    <div class="mod-num">03</div>
+    <div><h2>人际管理 · 横向影响力</h2><p>Interpersonal Management — 3门核心课程</p></div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">Co</div>
+    <div class="cc-body">
+      <h4>协作</h4>
+      <div class="cc-hook">"VUCA环境下，建立长期稳定的协作并非易事"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>掌握伙伴关系建立的成功五要素，破解协作困局，取得双赢<br>
+        <strong>课程要点：</strong>协作与伙伴关系定义 → 伙伴关系成功五要素 → 打破"本位主义"障碍（OBBSAM口诀上）→ 让伙伴凝成一股绳（OBBSAM口诀下）→ 用基本原则维护正面气氛 → 五大关键行动<br>
+        <strong>适合人群：</strong>扁平组织管理者 / 赢在人际的业务人员 / 难迈协作第一步的职场人<br>
+        <strong>情景模拟：</strong>跨部门协同挑战案例
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">In</div>
+    <div class="cc-body">
+      <h4>影响力</h4>
+      <div class="cc-hook">"在跨流程、跨部门环境里达成目标总是困难重重 — 发挥非职权影响力是当代每一位管理者的必修课"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>影响力三要素实操妙招，获得他人承诺，以推动事情发生<br>
+        <strong>课程要点：</strong>影响力定义与三大要素 → 了解立场获得他人承诺（界定承诺三步骤）→ 七大策略让影响力更有效 → 巧用包装打动他人（三大包装手段）→ 承诺评估与后续行动跟进 → 六项关键行动<br>
+        <strong>适合人群：</strong>承上启下的中层管理者 / 需多方支持的项目管理者 / 总被"拒绝"的职场人
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">CR</div>
+    <div class="cc-body">
+      <h4>解决冲突</h4>
+      <div class="cc-hook">"'差异'可以促进创新，'不合'会引发冲突 — 如何妥善处理矛盾，是管理的艺术"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>由道及术，运用5种策略模型，掌握6项关键行动，化冲突为共识<br>
+        <strong>课程要点：</strong>冲突策略模型（五种策略）→ 强调冲突的影响 → 澄清冲突的原因 → 对各方表现出同理心 → 专注于解决冲突 → 发展他人解决冲突的想法 → 针对解决方案达成共识<br>
+        <strong>情景模拟：</strong>项目血泪史 — 两个部门，一场纷争
+      </div>
+    </div>
+  </div>
+
+  <div style="margin-top:18px; padding:16px 20px; background:rgba(27,42,74,0.03); border-radius:3px;">
+    <h3 style="font-family:'Noto Serif SC',serif; font-size:13px; color:var(--navy); letter-spacing:2px; margin-bottom:8px;">人际管理三课的内在逻辑</h3>
+    <p style="font-size:10px; color:var(--text-light); line-height:1.8;">
+      <strong>协作</strong>（建立伙伴关系）→ <strong>影响力</strong>（赢得承诺推动事情）→ <strong>解决冲突</strong>（化分歧为共识）<br>
+      三课形成从"建立关系"到"施加影响"再到"化解矛盾"的完整人际能力链。
+    </p>
+  </div>
+  <div class="pn">P08</div>
+</div>
+
+<!-- ===== PAGE 09: 准备课程 ===== -->
+<div class="page page-module">
+  <div class="mod-banner">
+    <div class="mod-num">00</div>
+    <div><h2>领导力加速驱动 · 自我认知基座</h2><p>Leadership Acceleration — 新经理转型必备的3门准备课程</p></div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">DNA</div>
+    <div class="cc-body">
+      <h4>领导力DNA</h4>
+      <div class="cc-hook">"领导力不是一种与生俱来的天赋，它是一种可以学习掌握，并能逐步提升的思维模式"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>解码领导力"基因图谱"，五个维度探秘个性"真相"，指导职业发展<br>
+        <strong>课程要点：</strong><br>
+        1. 领导力DNA指标的理论来源 — 了解个性与自我认知<br>
+        2. 个性与领导力发展：动力 vs 阻力<br>
+        3. 领导力DNA指标解读 — 基于"大五"模型（51题测评），五个指标分别解读<br>
+        4. DNA组合分析 — 不同组合的指标解读、个性与能力关系、个性与学习成效关系<br>
+        <strong>核心工具：</strong>大五（Big Five）领导风格测试·51题 + DNA报告解读说明文案
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">LK</div>
+    <div class="cc-body">
+      <h4>领导力启程</h4>
+      <div class="cc-hook">"新经理们，是否做好了转型的准备？角色转变带来诸多压力，做好准备对新晋经理至关重要"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>从聚焦于自己获得认可，转变为成就他人的成长型心态<br>
+        <strong>课程要点：</strong><br>
+        1. 引言：领导力，从这里启程 — 领导力是后天可培养的能力<br>
+        2. 从"院子"到"直升机"：提升你的领导者思维 — 阳台思维、树顶思维、直升机思维<br>
+        3. 优秀领导者的自我修养 — 领导者应具备的特点及自我修炼<br>
+        4. 领导力的三大维度 — 人际交往、业务管理、领导团队
+      </div>
+    </div>
+  </div>
+
+  <div class="course-card">
+    <div class="cc-icon">LE</div>
+    <div class="cc-body">
+      <h4>领导力精要</h4>
+      <div class="cc-hook">"了解作为领导者应该有的思维模式及自我修养，为后续课程学习做铺垫"</div>
+      <div class="cc-outline">
+        <strong>核心交付：</strong>不再仅仅是"专家"角色，需要更高视野与更强的团队带领能力<br>
+        <strong>涵盖主题：</strong>经理人角色转变、领导力基本认知、如何与平级/老板/下属相处、拥抱新的团队领导角色
+      </div>
+    </div>
+  </div>
+
+  <div style="margin-top:18px; padding:16px 20px; background:var(--cream-dark); border-radius:3px;">
+    <h3 style="font-family:'Noto Serif SC',serif; font-size:13px; color:var(--navy); letter-spacing:2px; margin-bottom:8px;">设计逻辑：先测评后认知，再进入核心课程</h3>
+    <p style="font-size:10px; color:var(--text-light); line-height:1.8;">
+      <strong>DNA</strong>（个性测评·知己）→ <strong>启程</strong>（思维转型·明道）→ <strong>精要</strong>（核心认知·筑基）<br>
+      三门准备课程为后续16门核心能力课程建立自我认知基础和领导者思维框架。学员在清楚了解自身个性特质和发展方向后，有针对性地选择业务/团队/人际管理课程。
+    </p>
+  </div>
+  <div class="pn">P09</div>
+</div>
+
+<!-- ===== PAGE 10: TOOL SUITE OVERVIEW ===== -->
+<div class="page page-tools">
+  <div style="background:var(--navy); color:white; padding:22px 30px; margin:-45px -55px 24px;">
+    <h2 style="font-family:'Noto Serif SC',serif; font-size:20px; letter-spacing:3px;">课程体系内置工具与测评套件</h2>
+    <p style="font-size:10px; color:rgba(255,255,255,0.5); margin-top:4px;">每门课程均内置：能力诊断 + 微课 + 情景模拟 + 能力考核 四件套</p>
+  </div>
+
+  <table class="tools-table">
+    <thead><tr><th></th><th>工具/测评</th><th>所属课程</th><th>类型</th><th>说明</th></tr></thead>
+    <tbody>
+      <tr class="cat-row"><td colspan="5">测评类工具</td></tr>
+      <tr><td class="tt-num">T01</td><td class="tt-name">领导力DNA · 大五测评</td><td>领导力DNA</td><td class="tt-star">★★★</td><td class="tt-use">51题，基于大五模型，五维度个性分析+组合解读</td></tr>
+      <tr><td class="tt-num">T02</td><td class="tt-name">能力诊断前测</td><td>全部16门</td><td class="tt-star">★★★</td><td class="tt-use">每门课前单项能力诊断，识别优势短板，获得学习建议</td></tr>
+      <tr><td class="tt-num">T03</td><td class="tt-name">能力考核后测</td><td>全部16门</td><td class="tt-star">★★★</td><td class="tt-use">学习前后对比，行为改善数据可视化，个性化发展建议</td></tr>
+
+      <tr class="cat-row"><td colspan="5">面试与选拔类</td></tr>
+      <tr><td class="tt-num">T04</td><td class="tt-name">STAR行为事例提问法</td><td>目标选才</td><td class="tt-star">★★★</td><td class="tt-use">结构化行为面试提问与追问框架，区分面霸与优秀人才</td></tr>
+      <tr><td class="tt-num">T05</td><td class="tt-name">动力适配性评估</td><td>目标选才</td><td class="tt-star">★★</td><td class="tt-use">评估求职动机与职位匹配度，识别适配性激发因素</td></tr>
+      <tr><td class="tt-num">T06</td><td class="tt-name">面试分工表</td><td>目标选才</td><td class="tt-star">★★</td><td class="tt-use">多面试官场景下的结构化工具有效协同</td></tr>
+
+      <tr class="cat-row"><td colspan="5">绩效与发展类</td></tr>
+      <tr><td class="tt-num">T07</td><td class="tt-name">SMART目标公式</td><td>达至最佳绩效</td><td class="tt-star">★★★</td><td class="tt-use">制定符合SMART原则的绩效目标，关键结果领域设定</td></tr>
+      <tr><td class="tt-num">T08</td><td class="tt-name">个人发展计划模板</td><td>达至最佳绩效</td><td class="tt-star">★★★</td><td class="tt-use">"学习·应用·反馈"循环，强弱搭配原则</td></tr>
+      <tr><td class="tt-num">T09</td><td class="tt-name">发展3A流程</td><td>培养人才</td><td class="tt-star">★★</td><td class="tt-use">评估(Assess)→学习(Acquire)→应用(Apply)闭环</td></tr>
+
+      <tr class="cat-row"><td colspan="5">团队诊断与规划类</td></tr>
+      <tr><td class="tt-num">T10</td><td class="tt-name">团队成功五要素诊断</td><td>打造高效团队</td><td class="tt-star">★★★</td><td class="tt-use">流程·结果·沟通·承诺·信任，五维度团队诊断模型</td></tr>
+      <tr><td class="tt-num">T11</td><td class="tt-name">轻重缓急矩阵</td><td>计划与组织</td><td class="tt-star">★★</td><td class="tt-use">确定事件优先级，摆脱"忙于救火"</td></tr>
+      <tr><td class="tt-num">T12</td><td class="tt-name">变革反应四阶段模型</td><td>驱动变革</td><td class="tt-star">★★</td><td class="tt-use">抗拒→观察→适应→拥抱，诊断变革接受度</td></tr>
+      <tr><td class="tt-num">T13</td><td class="tt-name">冲突策略五模型</td><td>解决冲突</td><td class="tt-star">★★</td><td class="tt-use">五种冲突处理策略选择矩阵</td></tr>
+      <tr><td class="tt-num">T14</td><td class="tt-name">辅导沟通五步法</td><td>辅导</td><td class="tt-star">★★★</td><td class="tt-use">结构化辅导讨论流程，区分轻度辅导与完整辅导</td></tr>
+    </tbody>
+  </table>
+  <div class="pn">P10</div>
+</div>
+
+<!-- ===== PAGE 11: TOOL TEMPLATES ===== -->
+<div class="page page-tools">
+  <div style="background:var(--navy); color:white; padding:22px 30px; margin:-45px -55px 24px;">
+    <h2 style="font-family:'Noto Serif SC',serif; font-size:20px; letter-spacing:3px;">核心工具模板萃取</h2>
+    <p style="font-size:10px; color:rgba(255,255,255,0.5); margin-top:4px;">以下为DDI课程中最具参考价值的工具模板结构</p>
+  </div>
+
+  <!-- STAR 模板 -->
+  <div class="form-sheet">
+    <div class="form-title">STAR 行为事例提问框架</div>
+    <div class="form-meta">T04 · 目标选才课程 · ★★★ 核心工具</div>
+    <div class="form-section-label">S — 情境 (Situation)</div>
+    <div class="form-row"><span class="fr-label">提问示例</span><span class="fr-value">"请描述一个你曾经……的情境？当时的情况是怎样的？"</span></div>
+    <div class="form-section-label">T — 任务 (Task)</div>
+    <div class="form-row"><span class="fr-label">提问示例</span><span class="fr-value">"在那样的情境下，你需要完成的具体任务是什么？"</span></div>
+    <div class="form-section-label">A — 行动 (Action)</div>
+    <div class="form-row"><span class="fr-label">提问示例</span><span class="fr-value">"你当时采取了哪些具体行动？你是怎么想的？你实际做了什么？"</span></div>
+    <div class="form-section-label">R — 结果 (Result)</div>
+    <div class="form-row"><span class="fr-label">提问示例</span><span class="fr-value">"这些行动最终带来了什么结果？你从中学到了什么？"</span></div>
+  </div>
+
+  <!-- 团队五要素诊断 -->
+  <div class="form-sheet">
+    <div class="form-title">团队成功五要素诊断卡</div>
+    <div class="form-meta">T10 · 打造高效团队课程 · ★★★ 核心工具</div>
+    <table style="width:100%; font-size:9px; border-collapse:collapse;">
+      <thead><tr><th style="background:var(--navy); color:white; padding:6px 8px; text-align:left;">要素</th><th style="background:var(--navy); color:white; padding:6px 8px; text-align:left;">诊断问题</th><th style="background:var(--navy); color:white; padding:6px 8px; text-align:center;">评分(1-5)</th></tr></thead>
+      <tbody>
+        <tr><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--navy); font-weight:700;">流程</td><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--text-light);">团队成员的角色职责是否明确？是否有清晰的团队章程？</td><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); text-align:center;"></td></tr>
+        <tr><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--navy); font-weight:700;">结果</td><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--text-light);">团队任务优先级是否清晰？是否与公司首要目标对齐？</td><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); text-align:center;"></td></tr>
+        <tr><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--navy); font-weight:700;">沟通</td><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--text-light);">团队成员是否积极主动交换所需信息？互动方式是否有效？</td><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); text-align:center;"></td></tr>
+        <tr><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--navy); font-weight:700;">承诺</td><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--text-light);">团队合作意识和行动是否得到强化？成员是否全心投入？</td><td style="padding:6px 8px; border-bottom:1px solid rgba(0,0,0,0.05); text-align:center;"></td></tr>
+        <tr><td style="padding:6px 8px; color:var(--navy); font-weight:700;">信任</td><td style="padding:6px 8px; color:var(--text-light);">影响团队信任的四个因素是否得到关注？</td><td style="padding:6px 8px; text-align:center;"></td></tr>
+      </tbody>
+    </table>
+  </div>
+  <div class="pn">P11</div>
+</div>
+
+<!-- ===== PAGE 12: APPLICATION SCENARIOS ===== -->
+<div class="page page-delivery">
+  <div class="del-hero"><h2>适用场景与学员画像</h2></div>
+
+  <h3 style="font-family:'Noto Serif SC',serif; font-size:15px; color:var(--navy); letter-spacing:2px; margin-bottom:14px;">核心学员画像</h3>
+  <div class="del-row">
+    <div class="del-card">
+      <h4>新晋经理（0-2年）</h4>
+      <p>从个人贡献者到团队管理者的角色转型<br>
+      需要：领导力DNA测评+启程+精要<br>
+      优先课程：辅导、授权、打造高效团队</p>
+    </div>
+    <div class="del-card">
+      <h4>基层管理者（2-5年）</h4>
+      <p>带领团队冲锋在业务第一线<br>
+      需要：业务管理三件套（计划/决策/绩效）<br>
+      优先课程：执行力、目标选才、协作</p>
+    </div>
+    <div class="del-card">
+      <h4>中层管理者（5年+）</h4>
+      <p>跨部门协调，推动组织变革<br>
+      需要：人际管理三件套+战略思维<br>
+      优先课程：影响力、驱动变革、解决冲突、推动创新</p>
+    </div>
+  </div>
+
+  <h3 style="font-family:'Noto Serif SC',serif; font-size:15px; color:var(--navy); letter-spacing:2px; margin:20px 0 14px;">典型企业应用场景</h3>
+  <table style="width:100%; font-size:10px; border-collapse:collapse;">
+    <thead><tr><th style="background:var(--navy); color:white; padding:8px 10px; text-align:left;">场景</th><th style="background:var(--navy); color:white; padding:8px 10px; text-align:left;">推荐课程组合</th><th style="background:var(--navy); color:white; padding:8px 10px; text-align:left;">预期效果</th></tr></thead>
+    <tbody>
+      <tr><td style="padding:8px 10px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--navy); font-weight:700;">新经理90天转身</td><td style="padding:8px 10px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--text-light);">DNA + 启程 + 精要 + 辅导 + 授权 + 打造高效团队</td><td style="padding:8px 10px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--text-light);">加速角色转型，建立管理自信</td></tr>
+      <tr><td style="padding:8px 10px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--navy); font-weight:700;">中层领导力提升</td><td style="padding:8px 10px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--text-light);">决策 + 达至最佳绩效 + 影响力 + 驱动变革 + 激励与保留人才</td><td style="padding:8px 10px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--text-light);">系统提升综合管理能力</td></tr>
+      <tr><td style="padding:8px 10px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--navy); font-weight:700;">海外团队管理者</td><td style="padding:8px 10px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--text-light);">领导虚拟团队 + 协作 + 解决冲突 + 跨文化沟通（外部）</td><td style="padding:8px 10px; border-bottom:1px solid rgba(0,0,0,0.05); color:var(--text-light);">应对远程管理和跨文化挑战</td></tr>
+      <tr><td style="padding:8px 10px; color:var(--navy); font-weight:700;">组织变革期</td><td style="padding:8px 10px; color:var(--text-light);">驱动变革 + 推动创新 + 影响力 + 执行力</td><td style="padding:8px 10px; color:var(--text-light);">驱动变革落地，激活组织创新</td></tr>
+    </tbody>
+  </table>
+
+  <div style="margin-top:20px; padding:16px 20px; background:rgba(200,150,62,0.06); border-left:3px solid var(--gold); border-radius:0 3px 3px 0;">
+    <h4 style="font-size:11px; color:var(--navy); letter-spacing:1px; margin-bottom:4px;">摩根启示</h4>
+    <p style="font-size:10px; color:var(--text-light); line-height:1.7;">DDI的课程体系以<strong>单项能力为最小培训单位</strong>的模块化设计，使企业可以灵活组合课程。16门课程各自独立但形成体系，这种"积木式"产品架构值得参考。同时注意DDI侧重<strong>通用领导力</strong>，在<strong>出海/跨文化</strong>场景仅有"领导虚拟团队"一门，这是摩根差异化切入的空间。</p>
+  </div>
+  <div class="pn">P12</div>
+</div>
+
+<!-- ===== PAGE 13: ABOUT / COMPETITIVE ANALYSIS ===== -->
+<div class="page page-about">
+  <h2>DDI 英跃 · 竞争情报卡</h2>
+  <div class="about-grid">
+    <div class="about-main">
+      <p><strong>DDI (Development Dimensions International)</strong> 成立于1970年，全球领先的领导力咨询机构。英跃是DDI在中国的数字化领导力学习品牌。</p>
+      <p style="margin-top:12px;"><strong>核心优势：</strong></p>
+      <p>· 50年领导力研究与数据积累<br>
+      · "行为模式法"将能力拆解为可操作的关键行动<br>
+      · 基中层管理者覆盖面完整（16项能力）<br>
+      · 四步学习闭环确保行为改善可衡量<br>
+      · 大五模型测评与课程体系深度整合</p>
+      <p style="margin-top:12px;"><strong>产品局限：</strong></p>
+      <p>· 强通用领导力，弱行业/场景定制<br>
+      · 跨文化领导力仅有"虚拟团队"一门<br>
+      · 缺乏出海/国际化人才培养专项方案<br>
+      · 标准版纯线上，高级版才有混合式交付<br>
+      · 央企/国企场景缺乏定制化适配</p>
+    </div>
+    <div class="about-side">
+      <h5>基本信息</h5>
+      <div class="about-item">中文名：智睿卓才企业咨询（上海）</div>
+      <div class="about-item">产品线：英跃标准版/高级版/LMS</div>
+      <div class="about-item">目标客群：中大型企业基中层</div>
+      <div class="about-item">定价模式：线上直购+方案定制</div>
+      <div class="about-item">总部：上海浦东前滩</div>
+      <h5 style="margin-top:18px;">竞争定位</h5>
+      <div class="about-item">品类：数字化领导力培训</div>
+      <div class="about-item">对标：中欧、凯洛格、AMA</div>
+      <div class="about-item">差异化：测评+课程一体化</div>
+    </div>
+  </div>
+
+  <div class="insight-box">
+    <h5>对摩根的战略启示</h5>
+    <p>
+      <strong>1. 课程体系对标：</strong>DDI的16门能力课程覆盖了基中层管理者90%的通用场景，摩根可作为竞争参照，梳理自身课程的覆盖度和差异点。<br>
+      <strong>2. 模块化设计参考：</strong>"单项能力=最小培训单位"的产品思路，可应用于摩根课程体系设计。<br>
+      <strong>3. 差异化空间：</strong>DDI在出海/跨文化/央企定制三个方向存在明显缺口，是摩根的蓝海机会。<br>
+      <strong>4. 测评整合：</strong>DDI将大五测评与课程体系深度绑定的做法，摩根可参考将自身测评工具（如跨文化适应力评估）嵌入课程体系。
+    </p>
+  </div>
+  <div class="pn pn-light">P13</div>
+</div>
+
+<!-- ===== PAGE 14: BACK COVER ===== -->
+<div class="page page-back">
+  <div class="cover-circle cc1"></div><div class="cover-circle cc2"></div>
+  <div class="back-quote">
+    "领导力不是一种<br>与生俱来的天赋，<br>它是一种可以学习掌握，<br>并能逐步提升的思维模式。"
+  </div>
+  <div class="back-line"></div>
+  <div class="back-source">
+    — DDI 英跃 · 领导力DNA课程<br><br>
+    萃取日期：2026年5月18日<br>
+    iMorgan 摩根 · 竞争情报研究<br>
+    仅供内部参考 · 不作商业用途
+  </div>
+  <div class="pn pn-light" style="position:absolute; bottom:20px; right:34px;">P14</div>
+</div>
+
+</body>
+</html>

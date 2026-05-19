@@ -1,0 +1,11 @@
+# Sharing Information
+
+## Working Together
+
+In Peru, what you are told often depends on who you are and what relationship you have built. Information flows more freely within trusted circles — family, close colleagues, and established contacts — than across the wider organization. This reflects both the country's concentrated power structures and a long history in which institutional authority has not always been safe or reliable. People calibrate what they share based on perceived safety, especially around sensitive topics or where hierarchy is involved.
+
+The legacy of informality also shapes how information moves. In a context where much of the economy operates outside formal structures, relationships and quick verbal exchanges often serve as the primary channel for coordination. Written updates may follow, but clarity is usually secured in conversation. A colleague from a culture where information is documented and distributed systematically may find this frustrating or unclear, while a Peruvian counterpart may view heavy reliance on formal channels as impersonal or slow to respond to shifting circumstances.
+
+Language adds another layer. Spanish dominates institutional settings, but Quechua and Aymara are also official languages in regions where they predominate, and many professionals navigate multiple language worlds. Clarity becomes more than a stylistic choice when some team members carry the cognitive load of translating not just words, but frameworks. Communicate in clean layers: state the headline, explain the meaning, give a concrete example, and recap briefly. Avoid jargon, and invite questions in ways that do not require public exposure, such as offering to clarify after the meeting.
+
+Peruvians often value learning by doing over learning by reading. Offer practical examples and demonstrations rather than relying solely on written instructions. Follow up with short summaries to stabilize understanding, but recognize that relationship channels remain how real clarity is built.

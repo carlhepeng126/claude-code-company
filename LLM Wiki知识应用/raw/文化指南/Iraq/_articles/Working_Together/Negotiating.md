@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+Iraqis bring decades of experience with sanctions, extraction contracts, and reconstruction deals that favored outsiders. Many negotiators arrive with a sharp sense for when they are being sidelined or undervalued, and they watch for signs that history is repeating itself. Framing your offer in terms of shared benefit, not just return on investment, helps address this. Mention local jobs, capacity building, environmental stewardship, or recognition for communities that have suffered loss. These are not add-ons to sweeten a commercial deal. They speak to concepts of fairness rooted in tribal and Islamic traditions, where diya (compensation) and sulh (reconciliation) shape what a just agreement looks like.
+
+Any substantial deal, especially in oil, land, reconstruction, or security, typically involves multiple layers of authority: Baghdad, the local governorate, the Kurdistan Regional Government if relevant, and often tribal or religious actors. What you offer to one level can be read as a slight to another. Ask your Iraqi partners early where hidden vetoes might sit, whether with a tribal council, a shrine authority, or an armed group. Mapping these stakeholders at the start prevents delays and mistrust later.
+
+Expect several preliminary meetings before serious discussion begins. Iraqis want to understand who you are and whether the relationship will hold over time. Negotiators can be expressive and theatrical; raised voices and emotional argument reflect passion, not hostility. Leave room for concessions. A counterpart from a culture where best terms are presented upfront may read this back-and-forth as gamesmanship, while an Iraqi negotiator may view an inflexible opening offer as disrespectful or naive.
+
+Be consistent across all parties. Iraqis will notice quickly if you give different accounts to different sides, and they will treat it as a breach of trust, not tactical flexibility. The spoken word is taken seriously, though written contracts are still expected for legal certainty.

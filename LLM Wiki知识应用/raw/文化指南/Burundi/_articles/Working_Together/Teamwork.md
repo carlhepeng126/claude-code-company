@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teams in Burundi function through relationships built over time and a strong awareness of hierarchy. Collaboration is shaped by the need to preserve dignity and avoid confrontation, which means that disagreements or criticism are rarely surfaced in group settings. Instead, concerns are shared privately or through trusted intermediaries. This reflects a broader cultural logic where maintaining harmony and protecting face are seen as essential to group effectiveness. A colleague from a culture where open debate is welcomed may interpret this reticence as disengagement, while a Burundian team member may view direct challenge as divisive and disrespectful.
+
+Authority figures are expected to guide the team with both decisiveness and care. A manager who leads only through formal instructions without showing personal interest in team members' well-being may find it difficult to build the trust that underpins collaboration. Leadership is relational, and team members respond more readily when they feel seen and valued beyond their output.
+
+Praise is typically directed at the group rather than singling out individuals, which helps preserve collective cohesion and avoids the discomfort of public elevation. Feedback that highlights a mistake should be given discreetly and framed gently to avoid causing embarrassment. Public correction, even when constructive, risks damaging trust and making future collaboration more cautious. If you need to address a performance issue, a quiet conversation that emphasizes support rather than fault will yield better results.

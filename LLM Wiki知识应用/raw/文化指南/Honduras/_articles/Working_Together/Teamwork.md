@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Collaboration in Honduras is rooted in close personal bonds and a strong sense of group loyalty. Teams function more like extended family networks than formal work units, and trust is built through time spent together, shared experiences, and demonstrated commitment to the group. Colleagues often socialize outside work hours, and these informal gatherings strengthen the relationships that underpin effective teamwork. A manager who joins in these moments, or who takes an interest in team members' personal lives, builds credibility and cooperation in ways that formal team-building exercises alone cannot.
+
+Hierarchy shapes how teams operate, but the tone is relational rather than distant. Senior members are expected to guide and support junior colleagues, and in return, they receive loyalty and deference. Direct challenges to a senior team member in front of the group can damage both the individual's standing and the team's cohesion. When disagreement arises, it is often communicated privately or through indirect channels to preserve dignity and avoid public confrontation.
+
+Public praise tends to be directed at the group rather than singling out individuals, reflecting a preference for collective recognition over personal visibility. This approach protects harmony and avoids envy or resentment within the team. When feedback is needed, it should be delivered one-on-one and framed in a way that acknowledges effort and preserves the relationship. A colleague from a culture where direct critique is standard may find this approach evasive, while a Honduran team member may read blunt feedback as disrespectful or damaging to trust.

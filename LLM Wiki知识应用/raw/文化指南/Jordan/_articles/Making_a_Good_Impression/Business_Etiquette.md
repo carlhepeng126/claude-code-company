@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Hospitality in Jordan is less about being welcoming than about maintaining social order. The majlis tradition, recognized by UNESCO, functions as a gathering place where communities receive guests, settle disputes, hold weddings, and pay condolences. These rituals train people in presence and reciprocity, and those habits show up in how professional relationships are maintained. When a colleague offers coffee or insists on a meal, they're not just being friendly. They're enacting a daily ritual that signals inclusion and builds the social foundation business relies on. Accepting, even briefly, acknowledges the connection. Refusing multiple times can read as distance or lack of interest in the relationship itself.
+
+Emotion and gesture are woven into conversation, but the volume stays low. Jordanians often speak quietly, and matching that tone helps avoid being read as domineering or disrespectful. A loud voice can undermine the respect you're trying to show. Communication tends to be indirect, shaped by the need to protect dignity. A direct "no" is rare. Instead, listen for pauses, raised eyebrows, or a lift of the head tilted back, all of which mean refusal without stating it. Shaking the head means "I don't understand," not disagreement. Placing a hand over the heart is a polite decline.
+
+Physical closeness between men is common and signals trust. A colleague may stand nearer than expected, touch your shoulder, or hold your hand briefly during conversation. These aren't intrusions but gestures of connection. Between men and women, contact is more reserved. A handshake may be offered, but only if the woman initiates. Expansive gestures or overly animated movements can read as anger or a lack of control, so keep gestures small and contained.
+
+When giving gifts, context matters. In a professional setting, avoid gifts early on as they may be misread. A modest, well-timed gift to mark a relationship that has deepened is more appropriate. If invited to a colleague's home, bring something for the family or children rather than for a spouse. Never give alcohol, pork products, or anything with religious symbolism. Present gifts with your right hand or both hands, never the left.

@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Language choice comes first. Opening in the right language — French in Wallonia, Dutch in Flanders, often either in Brussels — is read as a basic sign of respect. Flemish professionals generally appreciate being addressed in Dutch from the start, even if they are fluent in French and English. Walloons expect French. Getting this wrong, or defaulting to the wrong language without asking, can create friction before a word of substance is exchanged. When working with mixed-language groups, English often serves as neutral ground, sidestepping the politically charged divide between the two communities.
+
+Formality in Belgium starts a notch higher than informality, then relaxes quickly once the relationship feels secure. Use "Monsieur" or "Madame" with the surname in French, or "Meneer" or "Mevrouw" in Dutch, especially in early written contact or when age or rank differences are present. First names tend to follow soon after, particularly among younger colleagues or in Flanders, where the shift happens more readily than in Wallonia. The move is usually signaled in how someone signs an email or introduces themselves in person. Mirror that cue rather than assuming familiarity too early.
+
+In written communication and invitations, ask in advance which language is preferred. This question alone demonstrates cultural awareness and even-handedness. When working with teams from both regions, honor both French and Dutch in slides, signage, or opening remarks where practical. Avoid joking about the language divide. It remains a sensitive, political issue, and lightness on this topic is rarely received well.

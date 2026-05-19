@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Shared meals in Iraq follow a choreography shaped by family structure, sectarian awareness, and decades of conflict. Large trays of rice with lamb, masgouf (grilled carp), mezze, and bread are placed in the centre for everyone to share. People notice who serves whom, who encourages others to eat more, and who waits for elders or senior figures before beginning. Following this order acknowledges hierarchy and shows respect. If you start eating before the host or most senior person at the table, the gesture may read as hasty or dismissive.
+
+Venue choice carries weight beyond convenience. Shia guests may avoid restaurants in strongly Sunni districts and vice versa, depending on recent tensions or the presence of armed groups. Some colleagues will not drink alcohol or eat certain meats; Yazidi or Christian guests may observe their own fast days. Letting local colleagues choose the venue ensures it feels safe and neutral to everyone present. Overriding that choice with a more central or familiar option can unintentionally expose colleagues to risk or discomfort they will not voice openly.
+
+Conversations over food often loop back to war. Stories of frontlines, checkpoints, ISIS, and militia presence surface naturally, sometimes mid-sentence: "Before the war we used to eat here." These references are not diversions. They reveal which areas people avoid, which actors they name or step around, and how they assess current risk. Listening closely during meals gives you information that may not appear in formal briefings, and helps you adjust travel or meeting plans accordingly.

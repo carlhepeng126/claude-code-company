@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+South Africa's history of collective bargaining and the legacy of contested power relations mean many negotiators are attuned to fairness and balance, not only to the terms on the table. Dignity enters the conversation early. Proposals are often judged by whether they respect people and communities, and a one-sided offer can be rejected on those grounds even if the numbers work. If you frame concessions only in commercial terms, you may miss the relational test happening in parallel. Name trade-offs explicitly, show how burdens are shared, and document what has been agreed. This builds confidence that the process is equitable.
+
+How firmly you can push varies by sector, group, and setting. Directness that reads as decisive in one room can feel disrespectful in another, and humor or indirectness may be used to soften a firm position without abandoning it. Read tone carefully, and adjust your approach if resistance stiffens. Allow your counterpart time to consult their networks before committing. This is not delay, it reflects the group orientation that underpins many decisions, especially where the outcome affects others beyond the table.
+
+Infrastructure realities shape what counts as realistic. Load shedding and transport variability affect timelines and delivery assumptions, so build buffers into schedules and agree contingencies upfront. A colleague from a culture where deadlines are fixed may interpret this as vagueness. From a South African perspective, a counterpart who won't adjust for known disruptions may seem inflexible or out of touch with the environment both sides are working in.

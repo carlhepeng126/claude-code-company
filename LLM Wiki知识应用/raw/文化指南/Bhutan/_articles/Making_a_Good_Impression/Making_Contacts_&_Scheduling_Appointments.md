@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Bhutan's small size and deeply interconnected social fabric mean that making business contacts often depends on who you already know. The country's population is highly networked, and trust is built through shared connections rather than cold outreach. A personal introduction from a mutual colleague or acquaintance can open doors far more effectively than an unsolicited email or LinkedIn message. This reflects a cultural preference for relationships grounded in known circles, where reputation and family background quietly inform how people are received. In practice, this means that your first step may be asking a local colleague or partner to facilitate an introduction, even informally, before you attempt direct contact.
+
+Once a connection is made, scheduling a formal meeting is straightforward, but expect some flexibility around timing. Appointments are typically arranged in advance, and it's wise to confirm a day or two before. However, meetings may start a little later than planned or be interrupted by unexpected visitors. This fluidity reflects Bhutan's relationship-centered culture, where maintaining harmony and accommodating others often takes precedence over strict punctuality. A colleague from a culture where schedules are tightly managed might read this as disorganization, while a Bhutanese colleague may find rigid adherence to timelines impersonal or unnecessarily abrupt.
+
+Generational differences are also emerging. Younger professionals, particularly those in Thimphu or who have studied abroad, may respond quickly to emails and move to business topics more directly. Older or more senior contacts, especially in government or rural areas, may prefer a slower, more relationship-focused approach before discussing any formal agenda.

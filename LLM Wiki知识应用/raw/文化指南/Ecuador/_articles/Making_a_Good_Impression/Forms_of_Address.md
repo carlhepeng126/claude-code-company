@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Ecuador, how you address someone in a professional setting reflects both respect for hierarchy and an interest in building personal connection. First encounters in business typically begin with formal titles: Señor, Señora, or professional titles like Doctor, Ingeniero, or Licenciado, paired with the person's last name. This formality is expected regardless of sector or region, and using it correctly helps establish credibility from the outset. Moving to first names too quickly can undermine the initial impression, particularly when there is a difference in seniority or age.
+
+The shift from formal to informal address happens as the relationship develops, but the timing is not fixed. An older manager or client may invite a younger colleague to use their first name as a gesture of warmth, but the reverse is rarely appropriate. In larger cities like Quito or Guayaquil, and especially among younger professionals or those in creative or tech sectors, the pace toward informality may be faster. In more traditional industries or smaller towns, formal address can persist for the entire duration of a working relationship. Wait for the invitation rather than assuming familiarity.
+
+Written communication holds to the same standard. Emails and letters should open with the appropriate title and last name, and close with Atentamente or Cordialmente. Even in digital exchanges, skipping this formality can signal a lack of seriousness or cultural awareness, particularly in early-stage negotiations or formal correspondence with government or institutional contacts.

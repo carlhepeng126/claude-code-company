@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information moves carefully in Burundi, shaped by a history of ethnic tension and political instability that has made discretion a survival skill. People choose what to share and with whom, especially across ethnic or political lines. Trust is built slowly and through personal relationships, not formal roles. A colleague may withhold details until they understand your intentions, your network, and whether you can be relied upon to handle sensitive matters with care.
+
+Within organizations, information often stays within small circles rather than moving freely across departments or hierarchies. This reflects both the importance of face-saving and the practical reality that sharing the wrong detail with the wrong person has led to real consequences in the past. Younger professionals and those in international organizations may share more openly, but even they will hold back until they sense you understand the context and will not expose them or their team. A manager who presents problems in team meetings without gauging trust first may find that information stops reaching them altogether.
+
+Building access to information means building personal connection. Regular one-on-one check-ins, shared meals, and showing genuine interest in people's lives outside work all help. So does demonstrating that you treat sensitive matters with discretion and that you do not assign blame when problems surface. A colleague from a culture where transparency is expected from the start may read this caution as evasiveness. A Burundian colleague may read rapid, broad information-sharing as naive or even reckless, particularly if it bypasses relational groundwork.

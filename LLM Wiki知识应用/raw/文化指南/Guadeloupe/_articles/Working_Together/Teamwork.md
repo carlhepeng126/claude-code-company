@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Guadeloupe reflects the weight of relationships and the expectation that professional life includes personal connection. Colleagues are rarely just colleagues. Teams function best when members know one another beyond task assignments, when time is taken to check in, share meals, or acknowledge what is happening in someone's life outside the office. This relational foundation builds trust, and trust determines how smoothly work unfolds. A manager from a culture where efficiency is measured in meeting agendas and deliverables may find this tempo frustrating, reading it as informality or distraction. From the Guadeloupean perspective, the same manager may seem cold or transactional, prioritizing output over the people producing it.
+
+Hierarchy shapes collaboration without always announcing itself. Senior colleagues guide more than they instruct, often through example, quiet correction, or indirect suggestion rather than explicit direction. Junior team members are expected to observe and adapt, learning the rhythm of the group without being handed a script. This approach protects dignity and avoids putting anyone on the spot. If you need input from someone less senior, frame the invitation in a way that does not expose them to risk if they are uncertain.
+
+Public praise can feel uncomfortable when directed at one person, even if the intention is positive. Recognizing the group maintains harmony and avoids singling out individuals in ways that might create tension or imply hierarchy within peers. Criticism, by contrast, should never happen in front of others. A private conversation that acknowledges context and preserves respect will be far more effective than a direct callout, no matter how constructive the framing.

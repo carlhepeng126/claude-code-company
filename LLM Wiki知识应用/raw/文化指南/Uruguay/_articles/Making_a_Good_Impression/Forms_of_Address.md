@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Uruguayans typically begin professional interactions with a degree of formal correctness that reflects respect rather than distance. Initial greetings use titles such as Señor or Señora paired with the last name, and professional titles like Doctor or Licenciado are common where relevant. The emphasis is on getting the tone right before moving closer. This stems from Uruguay's civic tradition, where respect is shown through composure and listening rather than through heavy displays of hierarchy or effusive warmth. People prefer not to overdo familiarity at the start, allowing the relationship to earn its informality over time.
+
+The shift to first names often happens fairly quickly, but it is usually signaled by the other person rather than assumed. Pay attention to how your counterpart introduces themselves or how they address you in return. If they offer their first name, it is safe to reciprocate. In writing, maintain formal openings such as "Estimado Señor [Last Name]" until the relationship has clearly shifted. Digital communication follows the same logic: formality softens as trust builds, but starting too casually can feel performative.
+
+Greetings involve a firm handshake and steady eye contact, which signals sincerity and attention. Among colleagues who know each other well, a brief hug or a kiss on each cheek is normal, but this develops over time. Physical proximity during conversation is often closer than in cultures where personal space is more protected, and light touches on the arm or hand are typical signs of engagement. For someone from a culture where formality is maintained through distance, this can feel unexpectedly warm. For Uruguayans interacting with colleagues who remain physically reserved, the lack of touch may read as coolness or disengagement, even when respect is intended.
+
+In bilingual border regions, code-switching between Spanish and Portuguese is common and normalized. Follow the other person's lead without making the shift itself a point of comment. Treating language flexibility as unremarkable is part of the local ease.

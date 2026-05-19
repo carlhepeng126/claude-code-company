@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Cyprus professionals dress with care, especially in business settings where appearance reflects seriousness and respect for the occasion. Men typically wear suits or tailored shirts and trousers, while women choose business suits, dresses, or smart separates. The tone leans formal in sectors like law, finance, and government, where dark suits remain standard. In younger industries such as tech, tourism, or creative fields, business casual is more common, though even here the look is polished rather than relaxed. Formality also shifts between urban centers like Nicosia or Limassol, where international business styles blend with local expectations, and smaller towns where traditional dress codes hold more firmly.
+
+Dressing well signals that you take the relationship seriously. A colleague from a culture where business casual is the default might read Cyprus formality as stiff or overly hierarchical. From the Cyprus side, underdressed visitors can come across as careless or dismissive, even if no offense was intended. The effort you put into your appearance is noticed, and it sets the tone before the first handshake.
+
+Evening events call for more formality and flair. At a nice restaurant or concert, people arrive dressed smartly, and your host will likely do the same. Matching that effort shows you understand the occasion. In cultural or religious settings, such as Orthodox churches or monasteries, modesty becomes the expectation. Shoulders should be covered, skirts kept below the knee, and men should avoid shorts. These small adjustments show respect for local custom and are appreciated.

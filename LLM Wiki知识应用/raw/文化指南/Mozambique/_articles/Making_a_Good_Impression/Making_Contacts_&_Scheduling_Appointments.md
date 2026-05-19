@@ -1,0 +1,11 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Introductions in Mozambique often move through moral communities rather than organizational charts. Churches, mosques, and locality-based networks provide social infrastructure in a country where state services have been uneven and where conflict and displacement disrupted formal systems. These communities anchor reputation, and people rely on them to make sense of who someone is before committing. A contact who arrives through a trusted pastor, community elder, or long-standing business associate brings context that an email or LinkedIn message cannot. When scheduling a first meeting, ask if there's a mutual connection who can introduce you properly. That grounding helps the relationship begin on firmer social footing.
+
+Trust develops gradually, and that pacing has roots in lived memory. The civil war ended formally in 1992, but its effects—family separation, migration, and the risks people associate with being too visible or too quickly aligned—still shape how commitment unfolds. Reliability matters as much as speed. Confirm appointments a day ahead, arrive when you say you will, and follow through on small promises. A colleague from a setting where deals close quickly after one meeting may read this caution as hesitation, but for many Mozambicans, gradual trust-building reflects social realism. From the other side, rapid agreement without relationship can feel uncomfortably transactional or naive.
+
+Transport realities influence what "easy to meet" actually means. In Maputo and other cities, the chapa minibus network is the main form of daily mobility, and it comes with unpredictability: delays, waiting, routes that shift with traffic. Build realistic buffers into your schedule. Meetings may start later than planned or take longer than expected. Back-to-back bookings can unravel quickly.
+
+In the north, especially in areas connected to Cabo Delgado, displacement and insecurity have reshaped who is reachable, how networks reform, and how travel is experienced. If your work involves those regions, factor in volatility and check in regularly about availability and continuity.

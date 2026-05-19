@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+In the Philippines, meals do relational work that meeting rooms rarely accomplish. Shared eating reinforces kinship and community, so a business lunch or dinner builds trust through ease and attentiveness, not just through what is said. This means allowing the early part of the meal to centre on human connection. Opening with work objectives or turning the table into a problem-solving session can feel transactional and may undermine the very rapport you are trying to build. Let the conversation find its rhythm, and bring business topics in gently once the table feels settled.
+
+Respect shows up in micro-behaviours more than in assertive talk. Listening without interrupting, noticing when someone seems uncomfortable, keeping humor inclusive, and inviting quieter colleagues into the conversation all register as markers of character. A colleague from a setting where assertiveness and quick verbal exchange are valued might interpret this quieter attentiveness as passivity. From a Filipino perspective, the same colleague's directness at the table may come across as impatient or dismissive of the group's comfort.
+
+Religious and regional calendars shape what is served and when. Christian majorities and Muslim communities observe different fasting periods and dietary norms, and these can vary by region. If you are hosting, offer options and ask about dietary needs in advance. Treating accommodations as normal hospitality, rather than an exception, keeps the focus where it belongs: on the meal as a shared experience, not a logistical hurdle.

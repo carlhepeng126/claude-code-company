@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Guernsey tend to favor understated competence over showmanship. The island's professional culture values substance and quiet credibility, and presenters who push too hard or oversell their case may be seen as unreliable or overly ambitious. Instead, focus on clarity and evidence. Let your data speak for itself, and avoid hyperbole or exaggerated claims. A measured, factual tone establishes trust more effectively than enthusiasm alone. This reflects a broader cultural preference for pragmatism and caution, particularly in a small community where professional reputations are built slowly and remembered long.
+
+Keep presentations concise and well organized. Guernsey audiences expect you to respect their time and come prepared. Rambling introductions or lengthy preambles can lose attention quickly. Open with a clear statement of purpose, structure your points logically, and close without unnecessary repetition. Supporting materials should be clean and detailed enough to stand alone if needed. Dense slides or vague summaries may raise questions about your thoroughness.
+
+Tone should be collaborative rather than directive. Even when presenting to junior colleagues, avoid speaking down or assuming authority that hasn't been earned through relationship. Guernsey's professional environment is relatively flat in style, and people respond better to presenters who invite dialogue rather than lecture. Leave room for questions, and don't interpret silence as disengagement. Reflection often precedes response, and the most substantive feedback may come in follow-up conversations rather than in the room itself.

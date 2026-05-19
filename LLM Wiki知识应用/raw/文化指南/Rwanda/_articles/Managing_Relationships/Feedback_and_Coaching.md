@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Rwanda feels weightier than routine performance talk. The country's recent history of mass accountability processes following the genocide has left a lasting mark on how people hear correction. Language that feels accusatory or prosecutorial can trigger defensiveness in ways that go beyond the workplace moment. At the same time, Rwanda's emphasis on values education and the ideal of *ubupfura* (integrity and good character) means that coaching is often understood as moral formation, a chance to strengthen not just skills but the person's standing as a responsible member of the community. This creates a context where feedback must be clear and honest, but never humiliating.
+
+Preserving dignity, or *agaciro*, is central. Correction that strips someone of respect in front of others can cause harm that lasts well beyond the conversation. Managers who deliver feedback privately, in a calm tone, and with specific examples rather than sweeping judgments are more likely to be heard. Focus on behaviors and next steps, and avoid language that sounds like moral verdict. A colleague from a culture where direct, public critique is seen as transparent may find this restraint slow or overly protective, while a Rwandan colleague may read such public correction as a serious breach of respect that damages trust rather than building it.
+
+When feedback is framed around shared values like integrity, care for others, and collective responsibility, it becomes culturally legible. Praise delivered sincerely and linked to these ideals reinforces what the organization stands for. Correction works best when it connects the gap to a standard everyone recognizes, and when it leaves the person's sense of worth intact while still naming what needs to change.

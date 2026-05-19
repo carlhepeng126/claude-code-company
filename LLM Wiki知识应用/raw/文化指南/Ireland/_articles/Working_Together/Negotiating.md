@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiations in Ireland blend pragmatism with relationship awareness, rooted in a history of community agreements and local bargaining. The focus is less on winning every point and more on reaching a fair outcome that both sides can live with over time. Opening with rapport and light conversation is typical. Moving straight to hard positions without establishing some personal connection can feel abrupt or overly transactional, a reaction shaped partly by historical wariness of domineering tactics. Starting with a bit of ease signals respect for the person across the table, not just the deal.
+
+Fairness and recognition of the other side's needs tend to be more persuasive than aggressive pressure. Irish negotiators often resist being pushed hard or rushed, and a heavy-handed approach can generate quiet resentment rather than movement. Humor may surface as a way to ease tension, but it should not be used to sidestep serious issues. The tone can be warm and even playful, but the substance is taken seriously.
+
+Expect some twists along the way. Decisions may take longer than anticipated because consultation with colleagues or senior figures is common, and unexpected requests can emerge late in the process. This reflects both a collaborative decision-making style and a practical instinct to test flexibility before final commitment. For colleagues from cultures where decisions are made quickly and linearly, this back-and-forth can feel slow or unpredictable. From an Irish perspective, a counterpart who presses for immediate closure may seem to undervalue the importance of getting the details right and preserving the relationship beyond a single transaction.

@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+A long pattern of central announcements from Addis Ababa and late trickle-down to the regions has left staff and communities outside the capital wary of information that arrives from above. The instinct is to assume decisions have already been made and the announcement is a formality. "Decisions are made there; we just swallow them" is a common refrain. When international organizations replicate that structure by briefing headquarters or capital-based teams first and filtering information outward later, they risk triggering the same suspicion. Sharing information with regional colleagues at the same time as those in Addis, and being explicit about what has been decided versus what remains open, helps counter that inherited mistrust.
+
+Official communication often employs wax-and-gold phrasing, the Amharic literary tradition of surface meaning and deeper implication. Leaders carefully word announcements to leave room for adjustment, avoiding clear commitments they might later need to walk back. Listeners know this and pay close attention to what is not promised. A colleague from a culture where explicit commitments are expected may hear vagueness or evasion; an Ethiopian colleague may hear a sensible hedge that preserves flexibility. Where you can commit, say so plainly. Where conditions apply, name them. A clearer style than people are used to will be noticed and often appreciated.
+
+Outside cities, information on projects, land use, or hiring often travels through kebele meetings, Sunday sermons, mosque announcements, and local markets rather than written channels. Face-to-face briefings with local leaders, elders, and religious figures, delivered in Amharic or Afan Oromo by someone the community already trusts, reach people more reliably than an English PDF or email ever will. Budget time and people for these conversations.

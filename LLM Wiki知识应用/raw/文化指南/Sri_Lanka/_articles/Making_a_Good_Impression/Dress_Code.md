@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Sri Lankan dress codes shift by setting, reflecting where you are, who you're with, and what the space represents. Colombo corporate environments expect formal, conservative tailoring: lightweight suits for men, modest business suits or below-the-knee dresses for women, with covered shoulders and backs. Bright colors and flashy accessories often read as socially unaware. After initial meetings, you may see colleagues loosen slightly—jackets removed, lighter colors, sometimes polo shirts—but follow their lead rather than assuming informality. First impressions are shaped in part by grooming and presentation, as these signal respect for the relationship and the setting before much else is known about you.
+
+This emphasis on modesty has several roots. It may be shaped by Buddhist, Hindu, Muslim, or Christian practice, by family reputation, or by generational expectation. What seems unremarkable in a beach town or tourist area may read as overexposed in a family gathering or provincial business setting. Religious and community spaces expect shoulders and knees covered as a baseline, and in some contexts, women may be expected to cover their heads. These expectations are rarely explained aloud—they are assumed to be understood.
+
+Climate also shapes practicality. Heat, humidity, and sudden monsoon rain reward breathable, neat clothing that moves well between air-conditioned offices and outdoor environments. Light layers and rain readiness help you stay composed across unpredictable weather. Symbolic or partisan imagery on clothing can also land unpredictably in a country where language and identity have been historically charged. Understated choices, especially around unfamiliar audiences, reduce unintended friction and keep the focus on the work.

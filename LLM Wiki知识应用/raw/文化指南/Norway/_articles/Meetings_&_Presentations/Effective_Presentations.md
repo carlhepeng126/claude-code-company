@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Norwegian audiences respond well to understatement. Restraint reads as seriousness here, shaped by egalitarian norms where self-elevation sits uncomfortably. Over-claiming risks triggering scepticism, especially when it resembles performance rather than proof. A colleague from a culture where confidence is demonstrated through bold assertions may find Norwegian reactions hard to read: what feels like polite disengagement can actually be careful evaluation. From the other direction, Norwegians may view emphatic delivery as compensation for weak content or as status-seeking behaviour that undermines trust. Credibility builds faster through precise claims and clear reasoning than through persuasive flourish.
+
+Plain speech has cultural prestige. Norwegians often dislike "walking around the porridge," reflecting a preference for directness that feels honest rather than manipulative. This means slides should be clean and uncluttered, and arguments should move quickly to the point. Functional aesthetics are valued over gloss. When visual polish becomes too elaborate, it can be read as substituting surface for substance. Focus on facts, figures, and logical structure. The person who quietly demonstrates mastery tends to be admired, while theatrical displays of expertise may be distrusted as insecure or performative.
+
+Expect questions as a form of engagement, not hostility. A culture shaped by participation through clubs, committees, and consensus-building treats scrutiny as normal civic behaviour. The group tests an idea to make it "ours," and questioning is a way of building collective ownership. Be ready for forthright views and avoid interrupting when others speak. Silence after a question often reflects thought, not resistance. Allow pauses to breathe rather than filling every gap.

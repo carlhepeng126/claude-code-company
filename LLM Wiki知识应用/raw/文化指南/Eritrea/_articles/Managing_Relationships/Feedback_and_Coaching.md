@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Eritrea is handled with care, shaped by a culture where hierarchy runs deep and personal dignity is closely tied to public reputation. Managers tend to offer praise openly, often in group settings, as a way to affirm contribution and reinforce collective morale. Recognition delivered in front of colleagues builds standing and strengthens team cohesion. But criticism follows a different path. Corrective feedback is almost always given in private, framed indirectly, and delivered in a way that avoids direct confrontation. A manager might raise a concern through a general observation or suggest improvement as a shared goal rather than naming a fault outright. This allows the person receiving feedback to adjust without losing face.
+
+The emphasis on respect for authority means that younger or less senior employees are unlikely to challenge feedback, even if they disagree. Silence or acceptance in the moment does not always signal understanding or agreement. It may simply reflect deference. For managers used to more open dialogue, this can make it harder to gauge whether the message has been understood or whether follow-up is needed. Checking in later, asking clarifying questions in a non-confrontational way, and creating opportunities for informal conversation can help surface any lingering questions.
+
+Coaching relationships often develop slowly and rely heavily on trust. In a society where personal networks and loyalty matter deeply, advice from someone outside an established relationship may be received politely but not acted on. Building credibility takes time, consistency, and a willingness to invest in the relationship beyond formal responsibilities.

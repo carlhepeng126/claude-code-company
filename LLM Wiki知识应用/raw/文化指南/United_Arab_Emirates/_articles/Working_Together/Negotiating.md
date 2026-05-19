@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+The table is rarely where the real deal is won. Much of the negotiation unfolds informally beforehand, through intermediaries who test ranges, conditions and red lines via WhatsApp, coffee chats or quiet face-to-face conversations. By the time senior figures sit down formally, the broad shape is usually understood. The official meeting confirms what has already been scoped. If you treat the first formal session as the start of the negotiation, you may find yourself behind. Ask your local contact or mid-level counterpart what makes sense before you propose it publicly.
+
+A senior Emirati wants to be remembered as the leader who gave a good opportunity, not the one who humiliated the other side. Deals that look too one-sided, especially in your favor, can feel dishonorable even if they are legal. This means you should design offers that let your counterpart look generous and wise. Add visible concessions, transfer of know-how or community benefit they can point to. If you squeeze hard and walk away with everything, you may win the contract but lose the next opportunity, because many family groups and rulers' courts have long memories. An aggressive deal today can quietly close doors with cousins, brothers or allied families running other entities tomorrow.
+
+Price alone rarely tells the full story. Emirati counterparts often think in terms of access, prestige and strategic positioning. Sometimes the key currency is not money but a network, a market entry point, visibility with leadership, or flagship status. If you can offer access to your own networks or quietly solve an issue that matters to them, you may unlock more than a discount ever would. Avoid cornering people into a public yes or no on issues that touch pride. Structure negotiations with options and face-saving exits, so that decisions can shift without loss of standing.

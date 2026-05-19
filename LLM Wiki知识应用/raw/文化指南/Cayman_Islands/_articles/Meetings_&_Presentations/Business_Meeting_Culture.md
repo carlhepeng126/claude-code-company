@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in the Cayman Islands usually reflect the pragmatism and professionalism that define its role as a major offshore financial center. Scheduling is generally straightforward, with invitations sent in advance and responses expected promptly. Punctuality is respected, though there is some tolerance for minor delays, especially when dealing with international counterparts across time zones. Senior figures are often present when decisions need to be made, particularly in finance, legal services, and government-related contexts where authority sits clearly at the top.
+
+The tone during meetings tends to be polite and measured. There is often some initial small talk, particularly if participants have an established relationship, but this rarely extends beyond a few minutes. Caymanians prefer directness once the agenda begins, and discussions focus on the substance of the issue rather than lengthy preamble. At the same time, formality is maintained, especially in first meetings or when hierarchy is present. Colleagues from cultures where debate is used to test ideas may find this restraint hard to read, while Caymanians may view overt challenge as unnecessary or even confrontational when the goal is to reach agreement efficiently.
+
+Silence is not uncommon and should not be filled unnecessarily. It often indicates thought rather than discomfort. Decisions are usually made by senior individuals, so pressing for immediate answers from those without authority will not speed things up. If a matter requires approval from elsewhere, expect follow-up rather than resolution in the room. Written summaries or minutes after a meeting are appreciated and help confirm what was agreed, particularly when legal or regulatory implications are involved.

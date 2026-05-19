@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in Albania is strongly shaped by hierarchy, but also by caution born of historical upheaval. Decades of authoritarian rule followed by abrupt transition left a legacy of mistrust in formal systems and an expectation that decisions made at the top may change or unravel. As a result, senior leaders hold final authority, but they often consult informally with trusted individuals before committing. This consultation is not about building consensus or inviting input across the team. It is about securing reliable intelligence and gauging how a decision will land, especially in terms of personal loyalty and political alignment.
+
+Managers are expected to decide, but they will rarely do so in isolation. They draw on a small circle of trusted colleagues or advisors, often through one-on-one conversations rather than formal meetings. These conversations help them assess risk, test reactions, and avoid decisions that could expose them to criticism or loss of standing. The process can appear slow or opaque to colleagues from cultures where decisions are made quickly and announced once. What looks like delay is often careful positioning.
+
+For international professionals, this means decisions may not follow the timeline or the logic presented in meetings. A proposal agreed in principle may stall without explanation, or shift in response to factors not visible on the agenda. Pressing for speed or formal closure can backfire, as it is read as disregard for the relational groundwork that makes implementation possible. Instead, invest time in understanding who holds real influence, and allow space for informal soundings before expecting a firm commitment.

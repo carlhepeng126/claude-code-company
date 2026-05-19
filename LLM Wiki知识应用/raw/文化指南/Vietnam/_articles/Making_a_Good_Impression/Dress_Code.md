@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Neat, understated professionalism makes the best first impression in Vietnam. The effort you put into how you present yourself is read as a sign of how seriously you take the meeting. In more formal contexts, government-linked settings, or rooms where seniority matters, men typically wear suits and ties, and women choose business suits or conservative dresses. In the south, especially during the hottest months, you will often see open-collar shirts and trousers rather than full suits, though the overall look stays polished. The north tends toward more consistent formality across seasons. In both regions, shorts are reserved for the beach, not the boardroom.
+
+Women are often judged more closely on how they dress than men. Ostentatious jewelry or visible displays of wealth can read as tone-deaf or disrespectful. A tasteful, minimalist approach works better. If you are moving between air-conditioned offices and humid streets, bring extra changes of clothing. In the rainy season, practical footwear becomes essential as streets flood quickly.
+
+In creative or younger sectors, business casual is more common, but even here the standard leans toward deliberate and put-together rather than casual. If a meeting includes a ceremonial element, a pagoda visit, or a family-linked event, ask quietly what appropriate dress looks like. When colleagues wear traditional dress for an occasion, show respect through your own appropriateness rather than imitation. Checking with a local contact beforehand avoids missteps that linger longer than the meeting itself.

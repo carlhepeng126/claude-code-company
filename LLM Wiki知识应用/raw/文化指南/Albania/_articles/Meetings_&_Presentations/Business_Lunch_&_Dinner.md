@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals in Albania play a social role first and a transactional one second. Food and conversation build connection, and that connection eventually makes work easier. Meals are rarely short. A lunch might last two hours, and dinner longer. This reflects a wider expectation that trust grows through repeated, unhurried interaction rather than formal efficiency. Trying to steer conversation toward work too early, or signaling that you have somewhere else to be, can feel dismissive. A colleague from a culture where meetings are tightly scheduled and meals treated as optional may interpret this pace as unfocused, while an Albanian counterpart may read a rushed approach as a sign that the relationship doesn't matter.
+
+Hospitality is central. Your Albanian host will likely order generously and encourage you to eat. Declining food repeatedly can come across as polite only up to a point. After that, it may seem like rejection of the gesture itself. If you have dietary restrictions, it's better to mention them in advance than to explain at the table. Restaurants in larger cities offer variety, but options can be more limited in smaller towns. Alcohol is socially acceptable in most professional settings, though not universal. If your host orders wine or raki (a traditional grape spirit), joining in can signal openness, but abstaining is also respected if done without comment.
+
+Business discussions usually begin after the meal is underway. Expect personal questions early on, such as about family or where you're from. These aren't diversions. They establish whether you're someone worth working with. Responding openly, and asking similar questions in return, moves the relationship forward in ways that a polished presentation alone will not.

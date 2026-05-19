@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+New Zealand workplaces lean casual, reflecting a culture that values practicality and egalitarianism over hierarchy or formality. In tech, education, and creative sectors especially, you might see jeans and collared shirts in the same meeting room where decisions worth millions are being made. This informality reflects both the outdoor, weather-conscious lifestyle and a cultural skepticism toward unnecessary display. A colleague from a culture where senior figures signal authority through dress might initially question whether a meeting is significant when participants arrive in everyday clothing, while New Zealanders may read overly polished or accessorized attire as distancing or insincere.
+
+That said, formality lifts in certain settings. Boardrooms, courts, some government offices, and client-facing roles in finance or law still expect business dress, though even here the standard tends toward understated rather than showy. The practical test runs through most contexts: you may move between office, site visit, and harbor in a single day, and dressing appropriately for all three matters more than looking impressive in one. Asking your host what people usually wear is both acceptable and wise. Arriving slightly more formal than the local norm is safer than misjudging downward, but layers and sensible shoes will often serve you better than a polished suit.
+
+On marae or at civic events grounded in Māori protocol, expectations shift toward modesty and respect. Dress is tidy, shoulders and knees usually covered, and key figures may wear cloaks or other taonga. If you're unsure about tikanga around dress for a particular gathering, ask the organizer directly. The question itself demonstrates respect.

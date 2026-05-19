@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional dress in Bosnia and Herzegovina reflects courtesy toward the people you meet and the setting you enter. Business attire leans formal, especially in government offices, banking, and state-owned enterprises. Men typically wear suits with conservative ties, while women wear business suits, tailored dresses, or blouses paired with skirts or trousers. The expectation is to look polished and intentional. This reflects a broader cultural emphasis on presenting yourself well as a sign of seriousness and respect for others, particularly in early stages of a working relationship.
+
+Formality varies noticeably by sector and setting. Younger industries like tech and media tend toward smart business casual, though even here the approach feels deliberate rather than relaxed. People dress with thought, and appearance remains part of how credibility is conveyed. A colleague from a culture where casual dress is the norm in professional settings may initially read the formality as stiff or hierarchical, while someone from Bosnia and Herzegovina working abroad may find a very casual office environment difficult to read in terms of who holds authority or how seriously a meeting should be taken.
+
+Regional and religious context also shapes expectations. In more traditional or rural areas, and in settings with religious significance such as mosques or Orthodox churches, modesty becomes more pronounced. Women should cover shoulders and knees, and men should avoid shorts. When attending dinners, cultural events, or evenings out with colleagues, the bar lifts further. Hosts will arrive well-dressed, and matching that effort shows you understand the occasion. Appearance here is relational, signaling that the moment and the people in it matter to you.

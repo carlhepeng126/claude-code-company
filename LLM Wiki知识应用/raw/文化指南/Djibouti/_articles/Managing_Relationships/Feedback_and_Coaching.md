@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Giving feedback in Djibouti requires care with dignity and awareness of social connectedness. Direct criticism, particularly in front of others, risks causing embarrassment that can damage relationships and erode trust. Managers typically frame developmental conversations with indirectness and warmth, choosing private settings and language that acknowledges effort before addressing gaps. A supervisor might say, "I see you've worked hard on this, and with a small adjustment here it could be even stronger," rather than naming what went wrong. This approach preserves respect while still guiding improvement.
+
+Coaching rarely stays between manager and employee. Decisions about how to respond to feedback often involve family members, especially for younger professionals or when the change affects household expectations. A team member may need time to discuss a new responsibility with relatives before accepting it, particularly if it requires relocation or shifts in availability. What might read as hesitation to a colleague from a culture where career decisions are made individually reflects a broader consultation process rooted in collective responsibility.
+
+Praise is most effective when given sincerely and shared across the group, reinforcing cohesion without singling anyone out in a way that could feel uncomfortable. Written performance systems can feel impersonal and rigid, lacking the relational warmth that underpins effective communication in Djibouti. Face-to-face conversations, framed with tact and delivered with genuine regard, create the conditions for feedback to be heard and acted upon.

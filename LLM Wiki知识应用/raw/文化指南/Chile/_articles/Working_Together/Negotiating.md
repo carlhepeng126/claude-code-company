@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Chilean negotiators often keep their reactions closely held. Body language stays controlled, emotions stay muted, and you may get little visible feedback even when you make a significant concession or introduce a risk. The preference is to avoid showing your hand too early. This means you need to pay close attention to what is said and what is asked for, rather than reading approval or concern from faces or gestures. When a Chilean counterpart goes quiet on a particular point, or when they return to it later with more detail, that tells you more than a nodding head or a raised eyebrow.
+
+This guarded style has roots in commercial history. Chile has long experience of foreign companies extracting value while local suppliers, workers, and communities absorb the costs. From mining to retail, the narrative of external winners and internal losers shapes how generous offers are received. Frame your proposal in terms of visible, shared benefit for Chilean stakeholders, not just return on investment for your side. If a deal looks one-sided, it will struggle to gain traction, even if the numbers are defensible.
+
+Contracts are taken seriously, and compliance with labor law, tax rules, and formal agreements is expected. At the same time, there is an understanding that external shocks happen. Earthquakes, strikes, and social upheaval are part of the operating environment. Chilean partners often expect some room for renegotiation when circumstances shift sharply. Build in clear review and adjustment mechanisms from the start. That makes it easier for risk-conscious counterparts to say yes, knowing the agreement can flex if conditions change.

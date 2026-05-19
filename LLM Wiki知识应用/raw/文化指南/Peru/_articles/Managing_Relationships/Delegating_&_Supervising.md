@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Peru's workplace hierarchy has deep roots in Spanish colonial rule and the *encomienda* system, which created one of the most rigidly stratified societies in the Americas. Independence changed the political structure but not the social one, and authority remained concentrated in a small elite. As a result, clear lines of command still feel natural, and managers are expected to give explicit direction. Employees will not usually act outside their defined scope or consult upward without being asked. If you want initiative or input, say so directly. Assume otherwise that people will wait for instruction.
+
+The paternalistic manager, who combines clear authority with genuine care, is the respected model. Relationship building goes beyond professional courtesy. *Personalismo* (a preference for personal connection) means trust is always personal before it is institutional, and the bond between manager and team is built on loyalty and mutual obligation. Employees value long-term relationships and respond to managers who show genuine interest in their wellbeing. Tasks may be delegated, but handing over responsibility can be difficult for some managers, who associate power with control. Information does not always flow downward as freely as the task itself, which can leave junior employees uncertain about how to proceed. They are more likely to turn to colleagues than to ask the manager directly, as doing so might suggest they did not understand the original instruction.
+
+*Dignidad* (dignity) governs all interaction. Every person, regardless of rank, is entitled to respect, and a manager who criticises someone in public breaches this value in a way that can be difficult to recover from. Correct privately, and frame feedback with care.

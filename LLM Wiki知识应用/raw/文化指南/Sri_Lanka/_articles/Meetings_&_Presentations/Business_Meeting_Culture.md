@@ -1,0 +1,11 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Business meetings in Sri Lanka are shaped by what many call face-safety: a social intelligence rooted in protecting dignity and keeping relationships intact. In a society where reputation still travels through families, schools, and community networks, direct confrontation or public disagreement can damage more than the moment. This explains why disagreement often arrives as a question, why decision-making may need time outside the room, and why pushing someone into a corner rarely produces the clarity you expect. Careful phrasing is a form of respect, not vagueness. If you bring a proposal that meets resistance, look for softened language, deferral to seniors, or a need to consult others. These are real responses that preserve dignity while the group finds its way forward.
+
+Meetings can bring together people shaped by different religious and language worlds. Sinhala, Tamil, and English may all be present, and language choice can feel like belonging rather than convenience. The state's language framework and the memory of civil conflict make categorization sensitive. Avoid placing people too quickly by region, community, or background, and let participants signal what they choose to share. Discretion here is a sign of cultural skill, especially in mixed or urban professional settings.
+
+Greetings and tone matter at the opening. Allow the room to settle before moving into agenda items. Hierarchy is visible, so seniority should shape who speaks first and how decisions are framed. A rushed or overly structured meeting can feel transactional in a context where relationships still underpin outcomes. More than one meeting is usually required before decisions solidify, and verbal agreement may stay flexible until commitment becomes concrete.
+
+Since the *aragalaya* period, fairness and accountability have entered everyday professional discourse in many circles. Clarifying roles, decision pathways, and next steps supports dignity in mixed groups and shows that process is taken seriously. If disagreement arises, frame it through options or calm inquiry rather than direct challenge. This keeps the conversation open and allows people to respond without losing face.

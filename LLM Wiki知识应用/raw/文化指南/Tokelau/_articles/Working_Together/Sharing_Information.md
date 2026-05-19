@@ -1,0 +1,11 @@
+# Sharing Information
+
+## Working Together
+
+Information in Tokelau flows through relationships, and those relationships are rooted in family and village ties. The three atolls each function as their own tight-knit community, and people grow up knowing who they are connected to and who has a stake in what gets said. In professional settings, this means that information is rarely treated as neutral or freely shareable. It belongs to people, and sharing it means considering who will be affected, what obligations it might create, and whether the relationship with the recipient has been established enough to warrant it.
+
+A colleague from a culture where transparency is expected early in a working relationship may find this approach cautious or even guarded. From Tokelau, the reverse can feel just as uncomfortable: sharing details before trust has been built can seem careless, even disrespectful. Information given too quickly may raise questions about judgment or loyalty. Building that trust takes time and consistent presence, and it often happens informally, outside formal meetings, where people can assess your reliability and discretion.
+
+Decisions in Tokelau are made collectively, and information tends to move through the same channels. What one person shares is likely to be discussed within the family or village group before it becomes common knowledge. This does not mean things are withheld deliberately. It reflects a communal structure where individuals rarely act alone, and where knowledge is tied to collective responsibility. If you need to know something, establishing a relationship with the right person in the network will open access far more effectively than requesting information directly through formal channels.
+
+Younger Tokelauans working in international or diaspora contexts may adapt to more open communication styles, but even then, the instinct to protect relationships and avoid exposing others remains strong. Patience and repeated contact build credibility. Once trust is in place, information flows naturally, often with generosity.

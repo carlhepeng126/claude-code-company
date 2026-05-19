@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in the Netherlands tends to be modest and brief. Meals are simple rather than lavish, and the setting is more often a restaurant than a private home. This reflects a broader cultural preference for keeping business and personal life separate, and for hospitality that is warm but restrained. Leisure time is valued and carefully protected, so invitations are typically planned well in advance and scheduled to respect people's boundaries. A colleague from a culture where business relationships are built through long, elaborate dinners may find Dutch entertaining understated or even reserved. From a Dutch perspective, extravagance can seem unnecessary or even uncomfortable, and a simple lunch or after-work drink often serves the same purpose more efficiently.
+
+Lunch meetings are common but usually short, lasting 30 to 45 minutes. A sandwich or light working lunch is typical, and business can be discussed without hesitation. Business breakfasts are less common. If you are invited for drinks after work at a specific time, for example 5.30, and dinner has not been mentioned, you should plan to leave by 7pm. An invitation for 8pm likely means you have missed the meal and are expected for coffee or drinks only. These distinctions are taken seriously, and misreading the timing can feel awkward on both sides.
+
+Punctuality is expected for both social and business occasions. If you are running late, call ahead with a clear explanation. Alcohol is usually consumed in moderation, and the atmosphere remains low-key. Dropping in unannounced is unwelcome. Even among friends, social plans are typically arranged well in advance, and spontaneity is not a feature of Dutch social life. Respecting these rhythms shows that you understand how personal time is organized and valued.

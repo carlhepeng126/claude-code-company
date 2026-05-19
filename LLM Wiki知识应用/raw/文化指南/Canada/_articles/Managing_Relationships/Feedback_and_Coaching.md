@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Canadians generally prefer feedback that balances honesty with care. Public criticism, even mild, can create discomfort, so most developmental conversations happen privately. This approach reflects a broader cultural sensitivity to preserving dignity and avoiding confrontation, rooted partly in Indigenous mentorship traditions that favored stories and gentle correction over direct challenge. In practice, this means a manager might open with what's working well before addressing what needs to shift, or frame a concern as something to explore together rather than a flaw to correct. Colleagues from cultures where critique is delivered more bluntly may find this style vague or circuitous, while Canadians working in such environments may interpret directness as unnecessarily harsh.
+
+Specificity helps. Rather than general statements like "your communication needs work," a Canadian manager is more likely to offer a recent example and suggest a concrete next step. Collaborative problem-solving often follows, inviting the person receiving feedback to reflect and propose their own solutions. This emphasis on self-reflection aligns with a culture that values autonomy and continuous development, particularly among younger professionals who increasingly expect regular coaching and psychological safety.
+
+Canada's cultural diversity means expectations around feedback can vary. Some colleagues, depending on background, may anticipate more direct guidance or interpret moderated language as unclear. Most Canadian workplaces, however, lean toward a respectful, constructive delivery that avoids bluntness. When giving feedback, aim for balance, clarity, and privacy. When receiving it, listen for the specific concern beneath the courteous framing.

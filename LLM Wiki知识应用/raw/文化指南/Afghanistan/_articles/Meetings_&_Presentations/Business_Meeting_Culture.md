@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Afghanistan are shaped by a strong expectation of personal relationship before professional progress. The first meeting is rarely about decisions. It exists to establish trust, assess character, and determine whether a longer-term relationship is worth building. This means the agenda may move slowly, and much of the conversation will focus on your background, your intentions, and the people you know in common. A colleague from a culture where decisions are made quickly may read this as evasive or inefficient, while an Afghan counterpart may view a push for immediate outcomes as disrespectful or transactional.
+
+Seniority directs the flow of discussion. The most senior person present will typically open the meeting, set the tone, and guide key topics. Junior members may attend but will defer to their seniors, especially in the presence of outsiders. Speaking over or directing questions to someone lower in the hierarchy can cause discomfort and undermine your position. If you need clarity on a technical point, frame the question generally and let the senior figure decide who responds.
+
+Expect indirectness when concerns arise. Disagreement or refusal is rarely stated outright. Instead, you may hear phrases like "this will take time" or "we will need to consult further." These are not delay tactics but signals that something is unresolved, often related to authority, risk, or relational trust. Pressing for a definitive answer in the moment will not speed things up. Instead, follow up privately with your main contact after the meeting to understand what the reservation actually involves.

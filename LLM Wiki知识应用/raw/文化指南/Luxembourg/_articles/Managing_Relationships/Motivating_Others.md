@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+Belonging in Luxembourg is something you earn through participation, not bloodline. The same civic rituals that bind the country together at events like Schueberfouer, the annual fairground celebration, or the Oktav pilgrimage rooted in a 1624 protective vow, offer a template for workplace motivation. People respond when they feel part of a shared "we" built on showing up and contributing, not on who they already are. A manager who invites someone to join a visible project, or who thanks the team in the moment after a difficult stretch, is doing more than praising effort. They are signaling membership in something ongoing and collective.
+
+Recognition works best when it is specific, timely, and understated. Luxembourgers value status and appreciate being noticed for problem-solving or creativity, but overt displays around money or performance rankings feel uncomfortable. Share options, pension contributions, and company cars at senior levels motivate more quietly than cash bonuses announced in front of everyone. Self-motivation is expected, and acknowledging it reinforces it.
+
+Pride also comes from building systems that help others move forward. Luxembourg's role as the birthplace of the Schengen Agreement is a national touchstone precisely because it positions the country as a connector, not a gatekeeper. Framing a team goal as creating something useful that others can rely on, a process, a tool, a structure, tends to land well. A colleague from a culture where individual achievement is celebrated loudly might read this preference for collective contribution as modest or indirect. Someone from Luxembourg, in turn, might see that colleague's public self-promotion as unnecessary or tone-deaf to the group.

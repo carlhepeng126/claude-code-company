@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+South Africa's forms of address reflect a multilingual society still negotiating colonial and apartheid legacies. Many communities express respect through kinship honorifics rather than formal titles alone. Terms like *Tata* (father in Xhosa) or *Tannie* (aunt in Afrikaans) are used for elders who are not blood relatives. These are dignity markers that acknowledge personhood and social harmony, particularly in settings where age and seniority shape who greets whom first. In workplace contexts, this means starting more formally than you might expect in other English-speaking environments, using titles and surnames until invited to do otherwise, and recognizing that warmth and respect are expressed differently across language communities.
+
+Pronunciation matters. African-language names are often anglicized or shortened by colleagues unfamiliar with the sounds, and this registers as carelessness with identity. Ask once how a name is said, repeat it back, and get it right. The same applies to surnames with Afrikaans prefixes like *van der*, which require attention to both spelling and pronunciation. Names in South Africa are layered with cultural and political meaning, and care with them reads as care with the person.
+
+Because the country has multiple politeness systems operating side by side, the same English greeting can be read differently depending on the listener's home language and community norms. One colleague may expect directness, another indirectness; one may read first-name use as friendly, another as presumptuous. Rather than guessing based on background or role, ask what someone prefers to be called. If you are working in a context where others use kinship honorifics for senior colleagues, mirror that practice, but keep it natural rather than performative.

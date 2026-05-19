@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+The Faroe Islands operate on a flexible but dependable sense of time, shaped by weather, small-scale interdependence, and economic practicality. Schedules exist and are generally respected, but they bend when weather disrupts transport, when an urgent community need arises, or when someone's presence is required elsewhere. This flexibility reflects island logic: life here is still closely tied to fishing seasons, unpredictable seas, and a working culture where people often hold multiple roles. A colleague may be a manager by day and a volunteer firefighter by evening, or step away to help with a sheep roundup. Time adjusts to lived reality, and this is understood.
+
+In professional settings, especially those connected to international trade or export industries like seafood, punctuality is taken seriously. Meetings start on time, deadlines are met, and schedules are coordinated with care, particularly when dealing with clients in Denmark, the UK, or elsewhere in Europe. Faroese businesses understand that reliability builds trust in a globalized economy, and they deliver accordingly.
+
+The flexibility shows up more in informal settings or when the social fabric requires it. A meeting might be rescheduled without fanfare if a family obligation or weather event intervenes, and this is rarely seen as unprofessional. It reflects the belief that the relationship will hold, and that the other person will understand the context. A colleague from a culture where timing is seen as a measure of respect might read this as casual or inconsistent. From the Faroese side, rigid adherence to a schedule when circumstances have shifted can feel disconnected from the realities of island life.

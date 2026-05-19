@@ -1,0 +1,12313 @@
+﻿
+---
+
+## 12月上海一年一度邀您赴约CHW2025中国企业健康管理论坛
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQeRkIs5qHtJGl51RR6JSHIbLpliaBmic2giagCzNFUl4pjI38dhRUJSFOQ5YKicuibNnCudTic4mrcyPvg/0?wx_fmt=jpeg)
+
+#  12月上海，一年一度邀您赴约：CHW 2025-中国企业健康管理论坛
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年11月17日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+随着中国经济的快速发展和产业结构的持续升级，企业健康管理已成为提升组织效能、增强员工幸福感的重要战略。在  ** “健康中国 2030”  **
+战略的推动下，越来越多的企业开始关注员工身心健康与可持续发展，积极探索科学化、系统化的健康管理新模式。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMXuSS0tVHFYCb6ftsunZu5IebKUZ6Bg68GY0FGJT20f8L9DHXnqlZHw/640?wx_fmt=png&from=appmsg)
+
+  
+
+在此背景下，国家卫生健康委员会主任雷海潮在 2025 年全国两会期间宣布实施  ** “体重管理年”  ** 三年行动，明确提出到 2026
+年实现全民体重管理意识和技能显著提升，并将肥胖率年均增幅降低 10%
+的目标，进一步为企业的健康管理工作指明了方向。作为企业健康管理领域的重要推动者，人力资源智享会（HREC）自 2020 年发起“CHW
+健康工作场所”认证项目，并连续五年举办  ** “CHW-中国企业健康管理论坛”  ** ，始终秉持  ** “健康工作，持续经营（Healthy
+Workplace, Sustainable Growth）”  ** 的使命，助力企业构建更健康、更具活力的工作环境。我们诚挚邀请您出席  ** 2025
+年 12 月 16 日  ** 于上海举办的  ** “中国企业健康管理论坛暨CHW 2026-2027健康工作场所认证企业颁奖典礼”  **
+，希望您能从现场的分享交流中获得新的灵感和体验。
+
+** 只要您是企业HR或负责企业健康管理工作，即可识别下方二维码报名锁定免费席位！详情如下：  **
+
+** 中国企业健康管理论坛  **
+
+打造可持续的企业健康生态
+
+2025 Chinese Enterprise Health Management Forum
+
+** 2025年12月16日 ，上海  **
+
+** 报名方式：  ** ** 只要您是企业HR或负责企业健康管理工作  ** ，请长按识别右边二维码进行报名，  ** 锁定免费席位  ** ！
+
+* 谢绝人力资源服务商企业报名 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMLyr4teicH8ktT5vJrtoLlbAsicCo7Vc96tvqN0Y6ia7ATMKGI7VVfcvqQ/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 热点话题  **
+
+✦ 搭建员工健康管理体系，推动企业可持续发展
+
+✦ 建设企业健康文化氛围，让健康融入职场日常
+
+✦ 提升心理健康，增强组织韧性
+
+✦ 做好企业慢性病防控工作，维护职工职业健康
+
+✦ 构建高感知、低成本员工健康福利，让关怀直抵人心
+
+✦  聚焦员工多元健康需求，打造个性化健康服务
+
+✦  数字化引领智能健康管理，共筑企业健康新未来
+
+** 嘉宾及话题分享抢先知  （  排名不分先后  ）  **
+
+** 构筑员工健康新生态：一汽- 大众健康管  ** ** 理体系的建立与实践  **
+
+健康与餐饮管理经理 | 一汽- 大众汽车有  限公司 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMrzq9ynU0hyytvFEdFTc2qQU1jfqbAr6nEX9rCic8T1NftGDAyorzPjA/640?wx_fmt=jpeg&from=appmsg)
+
+** 从“健康福利”到“战略韧性”：AI时代  ** ** 的企业Total Wellbeing 重构  **
+
+创新业务及市场总监 | 汉深科技 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMv60zu9wGC5IH51MdJTmY8pkosKMaAqLLibUhDC2WNaDb1CVO1GVMCvA/640?wx_fmt=jpeg&from=appmsg)
+
+** 多元健身服务赋能健康促进  **
+
+中国区商务总监 | classpass万馆达 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMDwOicPACc0CdBNAhyTW9u1HfZRK11QvR97t3tibsvjllRicyuy5wFgnhw/640?wx_fmt=jpeg&from=appmsg)
+
+** ABB健康管理实践  **
+
+职业健康安全环保经理 | ABB 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMGF5TSXiayrwLvIklTksE8x1xMc9C5gaTHicaQPqWYwSOTghkibxvx5lGA/640?wx_fmt=jpeg&from=appmsg)
+
+** 从污名化到战略化的核心转变：职场心理  ** ** 健康管理  **
+
+亚太区医疗总监 | 陶氏公司 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgM8gw747GYDJtDLibPhvRdvejOicEMk0xF67a1hvrEiaSFrPEsK2icudrAbg/640?wx_fmt=jpeg&from=appmsg)
+
+** 职场健康管理体系建设，打造健康文化氛  围  **
+
+华东区域行政经理 | 同程旅行 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMicaOxO4tticBNcUia7Q7qtz0icOIXMFGU6eFgqJh7ZEkpeXiaDmUYntTOcQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 全方位打造健康职场：企业可持续发展实  践赋能员工全健康管理体系打造  **
+
+中国区人事行政高级总监 | 爱德万测  试中国 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMle5yW8DS5wtVhJEiaic2Ft7QXhalCT3JyehDwFzUibrB9VP2JeybY86Fg/640?wx_fmt=jpeg&from=appmsg)
+
+** 维美德-政企医携同·共筑360°职工健康  环  **
+
+职业健康管理负责人 | 维美德（中国）有限公司 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgM8YOCSMccqrF8iaic4iaXXMj6ut0VsGe2C7eMibPcqS6bIsOpoiaeKatP2iaA/640?wx_fmt=jpeg&from=appmsg)
+
+** 建设企业健康文化氛围，让健康融入职场  日常  **
+
+连锁HRBP高级经理 | 来伊份 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMoTLWTEx3NmgkTS7GIeKbkHwnibbE3D7Ywk0pt1PSiawPnLhALSYTYKjw/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+✦  \+
+
+\+
+
+** 特别鸣谢  **
+
+（排名不分先后）
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMDAGJ4gYezX2x0FhFuzgzVRLojSqSW8eSibQWApr2Uaqf9dsa9ia4xOHA/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMZ0LSYNYLQMtBjD2wrAljhx2V2QQZppyHDhuQachCRx3ZCURbNGkiasQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMlEVY7pKjYx7SXK9j0cZ7zU49Bo7TPyQW558qxWHwtM73V8n8EibbdHg/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMeNrO7mjtO36pibsicX26G1ph5dyc5I5ibwYIWiaphTrq9KIjGgLTaavOPQ/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMLyr4teicH8ktT5vJrtoLlbAsicCo7Vc96tvqN0Y6ia7ATMKGI7VVfcvqQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 即刻锁定报名席位！  **
+
+** CHW 2025  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMGaibbv8lLa6lecrBWTdiaFaFZ1FweWZw65rf8DyBwkuZ27GIwO3holkw/640?wx_fmt=png&from=appmsg)
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+---
+
+## 2026出海开局丨以战略性人才规划锚定全球化增长
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BkXtsNq6F7EIwfjXndlDXlDfib3gvVdLTzSztwWc0w51Nd9fhXwzPwicA/0?wx_fmt=jpeg)
+
+#  2026出海开局丨以战略性人才规划，锚定全球化增长
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月15日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+以下文章来源于SG舒仕福  ，作者Safeguard Global
+
+![](http://wx.qlogo.cn/mmhead/47CicbLQOxtU76WlZF4y45Qw80Eauspyq1knxw3zA8eKkhPoFaudpOrtiajticvtXCqGJqfS64OwoU/0)
+**SG舒仕福** .  Safeguard Global是一家全球知名的致力于帮助企业加速全球扩张并提供全方位咨询及解决方案的行业领导者。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BibdUXK94VUkyZ5OHmL75iceQ0uTjL8nsic72Wbb8WoTY0gIaNibpg3toZA/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+  
+
+  
+
+  
+
+  
+
+  
+
+  
+
+对于出海企业人力资源负责人而言，以下挑战想必并不陌生：
+
+✅ 全球经济波动，预算收紧，却需招募更核心人才；  
+✅ 各国合规政策多变，薪酬核算复杂易错；  
+✅ 技能需求快速迭代，核心岗位难补、优秀人才难留；  
+✅ 跨部门协同不畅，人才规划跟不上全球扩张步伐……
+
+** *文末领取《2026 年战略性人才规划》手册  **
+
+  
+
+  
+
+  
+
+  
+
+  
+
+** 01  **
+
+** 战略性人才规划  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6B5thaXapMelyaE4F9maovHnTVlTZKWHwdvHic8jnAV9Ed3yrujcOYz7Q/640?wx_fmt=jpeg&from=appmsg)
+
+2026年的全球人才市场，已远超传统“招聘与薪酬发放”的基础管理范畴。经济不确定性加剧、市场环境动态演进、合规压力持续攀升及人才短缺问题常态化，正共同重塑出海企业人才战略的核心逻辑。
+
+对于计划在全球多个国家和地区布局的企业来说，  ** 战略性人才规划，已经从“加分项”变成了“生存必备项”。  **
+
+对此，Safeguard Global结合多年服务出海企业的实践经验，精心编撰  ** 《2026 年战略性人才规划：复杂全球劳动力市场增长实战手册》
+** ，聚焦出海企业人力资源管理核心需求，融合深度行业洞察与可落地的实战框架，助力企业在复杂市场环境中明晰人才战略方向，为全球化增长筑牢人才根基。
+
+  
+
+** 02  **
+
+** 2026开局关键：  ** ** 人才规划为何是  ** ****
+
+** 全球化增长的核心抓手？  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BtxeSUfvWtoTaoFXhhpVpc3vh3uZuUtNDiaHBfBSibAhdr9picnibyKI9Ug/640?wx_fmt=jpeg&from=appmsg)
+
+当前全球人才市场格局已发生深刻变革。随着全球互联程度提升，市场不确定性显著增加；企业业务全球化扩张进程加快，合规管理难度同步攀升。
+
+** Safeguard Global服务众多出海企业，发现一个清晰规律：那些能做好可视化管理、合规运营、敏捷组织的企业，才是全球化增长的赢家。  **
+
+当前，四大核心驱动力正深度重塑人才规划体系：
+
+✅ 技术迭代与自动化渗透重构岗位需求；  
+✅ 人才预算趋紧，促使企业实现团队精简与效能提升双重目标；  
+✅ 全球合规政策持续更新，考验企业应变能力；  
+✅ 地缘政治与市场动荡带来冲击。
+
+2026年人才战略的成败，关键在于企业能否在应对上述挑战的同时，实现人才发展与业务增长的协同推进。《2026
+年战略性人才规划》手册将为企业提供战略指引，助力平衡发展与增长的核心诉求。
+
+  
+
+** 03  **
+
+** 手册核心价值：  **
+
+** 赋能HR高效落地战略人才规划  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BICeGLTrFuS81XpOeu7IBIYY1YFVVLnicJRez2LAlhiconHhhJJbvTh3g/640?wx_fmt=jpeg&from=appmsg)
+
+手册凝聚Safeguard
+Global多年服务出海企业的实践经验与专业积淀，摒弃空泛理论，聚焦实战应用，系统呈现可落地的战略工具与实施路径。其核心内容涵盖：
+
+** 1、2026人才现状全景图：  ** 洞悉全球劳动力市场趋势，提前做好变革准备；
+
+** 2、未来核心技能清单：  ** 识别技能缺口，掌握优秀人才的吸引与留存技巧；
+
+** 3、人才规划避坑指南：  ** 避开入职流程不统一、薪资核算碎片化、合规管理混乱等隐形陷阱；
+
+** 4、优秀企业实战案例：  ** 学习如何通过数据集中管理和部门协同，提升组织敏捷性；
+
+** 5、2026战略框架搭建方法：  ** 打通HR、财务、业务部门壁垒，让决策更明智；
+
+** 6、合规转优势秘籍：  ** 学会用完善的合规体系，赋能企业更快增长；
+
+** 7、CHRO 2026行动清单：  ** 用实用评估清单，明确工作优先级，快速自查企业准备情况。
+
+  
+
+** 04  **
+
+** 合规不是“负担”，而是竞争优势  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6B638npOcYTV5Y4twmC2eCzzeQXbAARhjtc0aSXacIzzuvyF3ScfHy1w/640?wx_fmt=jpeg&from=appmsg)
+
+在传统人力资源管理认知中，合规常被视为“程序性任务”。但进入2026年，合规管理将成为驱动企业全球化敏捷运营、提升商业信心的核心引擎。
+
+主动做好合规管理，不仅能帮企业更快开拓新市场、夯实品牌声誉，更能在全球范围内吸引优秀人才——毕竟，规范的薪酬福利、合规的合同流程，是人才选择企业的重要考量。
+
+正如CloudWay公司CEO斯塔尔·汉森所言：  ** _ “我们无需费心研究各国的法律法规与政策条款，有了Safeguard
+Global，每位员工都能按时足额获得薪酬，养老金等福利也完全符合当地标准。”  _ **
+
+这正是合规管理的核心价值——将合规转化为企业信心，以信心驱动全球化增长。手册将深入拆解合规体系构建路径，助力企业实现合规与增长的协同赋能。
+
+  
+
+** 05  **
+
+** Safeguard Global  **
+
+** 你的出海人才战略伙伴  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BexNkvZ7khIiblqZHHcozzicsKv6pib6T2S2SCIUXOYXtDv2gLSD0yKrFw/640?wx_fmt=jpeg&from=appmsg)
+
+高效落地2026年战略人才规划，既需科学策略，也需专业支持。  ** Safeguard
+Global不止是人才技术服务提供商，更是企业全球化扩张进程中的战略伙伴。  **
+
+Safeguard
+Global构建的一体化人力资源生态系统，全面整合招聘、薪资、福利、合规等核心职能，依托400余名深谙当地法律、语言与文化的属地专家团队，为企业提供全流程专业支撑。
+
+从无需设立本地实体即可开展招聘的名义雇主（EOR）解决方案，到独立顾问薪酬发放、全球薪资标准化管理、实体设立专业指导等服务，助力企业高效落地全球化人才布局，降低运营风险，聚焦核心业务增长。
+
+  
+
+  
+
+** 结语  **
+
+企业当前的人才战略决策，将决定未来数年的全球化竞争格局。在充满不确定性的市场环境中，主动布局、精准规划，是企业把握增长机遇的关键。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6Bfp9j63YgWXJG2RKashqvHElB7nC8yibKnG2R8eSItzSZN8IzMicy5InQ/640?wx_fmt=jpeg&from=appmsg)
+
+长按识别二维码或点击文末阅读原文
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BwwKpDicDEe4L84kLHJrkpLqaWD9dbVaZ84uGYzswbBdFBuIEYJlkB7A/640?wx_fmt=png&from=appmsg)
+
+即刻获取《2026 年战略性人才规划》手册
+
+将市场不确定性转化为增长机遇
+
+为企业全球化人才战略筑牢根基！
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BIXeyhlib6UvbBs76y4dTwTSxsnssHT8njfMnwXMibf8ibqGGGpomKWnnA/640?wx_fmt=png&from=appmsg)  
+
+  
+
+  
+  
+
+十多年来，  ** Safeguard Global  **
+已经帮助世界各地数千家企业招聘，雇佣工作人员和付薪。我们行业领先的名义雇主服务(EOR)可帮助出海企业迅速实现向近190个国际市场的拓展。如今，我们遍布世界各地的400多名本地人力资源专家，服务着超过3000家客户，利用更智能、更高效的薪资、入职、工时考勤和费用管理等手段，帮助希望全球扩张的企业走向成功。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BANHq2jRo2xbPnGZ80fyBQIc1CSm5Qhy6xGLvGXrc354WUs3PLu2dEQ/640?wx_fmt=png&from=appmsg)
+
+** 扫码联系我们或发  ** ** 送邮件至  **
+
+** chinasales@safeguardglobal.co  ** ** m  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BXUt5Br0ibP7XnmcB8O45iaviaybGedglomwpr6DR5WrlomkSQGcUycQDw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6Bp7c7HhZXs7PthgVRjTKibmIDEzriaQr0miarFLAmrCwNcXAia9JYxZM9mA/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BwD4a2vJKm5qyHhNoEPjmsP4tOAa1EEE1MyaVFklxy29FbR2eMibGH5Q/640?wx_fmt=gif&from=appmsg)  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 4月深圳中国薪酬福利年会amp出海与国际化人力资源管理论坛2大会场20热点话题
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtAObbJzf7DfyE4puPpX9JV9pKqAPicfY1SOJDscWmjEOUCn6eHdGRH182ZgAoYuYn8yfaUr4ia8ja76nEkBfKOTSIROmBCiaf19iaw/0?wx_fmt=jpeg)
+
+#  4月深圳，中国薪酬福利年会&出海与国际化人力资源管理论坛！ 2大会场，20+热点话题！
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年03月23日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+** 活动背景  **
+
+出海征途，如何运筹帷幄？人效困局，何以精准破冰？本次  ** Rewards 2026-中国薪酬与福利年会&Go-Global
+2026-出海与国际化人力资源管理论坛-深圳场  **
+，2天实战干货深度聚焦，近20位来自协鑫、中兴通讯、玛氏、佳能、伟创力等标杆企业的实战派领袖，将与300余位HR同仁一道，共同解锁全球化人才管理与数智化薪酬激励的前沿密码。
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAjwSvYniaCbFCXekBlzBNtbYNqbt68QwaB8I4P7xsZT72Gkc42PvUKAoSOia54Z3ASiaZncGzBZJFn3Nmkia2u0FBkV8KmOt1UtaY/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCnG6CjrpM3AmE4Lh66Vg0vLRngDiblpictKmyBTWy2P6WajC5gCeaoLOBGGrEafibfgIfViaJoabQ4cQ5TFoAsicqeRIzIKsR084iao/640?wx_fmt=jpeg&from=appmsg)
+
+** 活动费用：免费  
+**
+
+** 活动地点：深圳  **
+
+** 活动时间：4月23日  **
+
+识别二维码报名，谢绝人力资源服务商性质企业HR参与  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtDJZqU2xyBwbZn4NmormCLibdI3ZtK4sH8c3asbuSZLr0tbSlXh2PQNZKvTXG5BnCKtV6EpssRM3Ns2LTBR3Or9wpTo5MWFllWY/640?wx_fmt=png&from=appmsg)
+
+** 嘉宾及话题分享抢先知  （  排名不分先后  ）  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCQhBRfrY0ZoOrIDPe9z3nVrUcLKKlkmpOT5jzRM7FTks1MecxmuAWhibhbzH8BBQ4H724tBVNylZib6duSRZU5TqruDNx5Sb6w4/640?wx_fmt=jpeg&from=appmsg)
+
+** 跳出人力资源看人效：链接战略与财务的精细化管理  **
+
+** 人力资源总监 | 中信环境技术有限公司  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBtYgEOm6NXCT4Kto0TTI1wVXKvX6UW3I1icabugQdicdb2g6icribD8XarrgmEcAfFy0wmwaoSKUYegsqECmVhj6uKmvb9OxV6FZc/640?wx_fmt=jpeg&from=appmsg)
+
+** ADP在社保数字化过程中的探索  **
+
+** 解决方案顾问 | ADP  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtDMzyrqH77ymLjkicCwibgNO0lfHXtpmOZDlzDrFwc9s4cicsRp0pPBZeRTu8lPnVOKfPlqjaVBn5pthBzWEefgFWflNkozMibWYYA/640?wx_fmt=jpeg&from=appmsg)
+
+** 出海HR必听：全球化人才培养痛点破解——可落地的一站式解决方案分享  **
+
+** CEO | 岱恩教育  **
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtDawhIgKmzYRVzEhFdB5JiczomKwkuP6kCW9T62ic8OQEbgcZXPq2127oriaQQjaAicO13F9k9fbXKQticIGpq8rlnOjp2zV3Kib684Y/640?wx_fmt=jpeg&from=appmsg)
+
+** 出海大势之下，企业用工合规解码与破局  ** ****
+
+** 海外人资合规研究主管 | BIPO  **
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtDuU98fPNCS0cNQsDIloW1ib20PeAvA0JaNK8VFJq9icu1jD8ncoAq6NXHCLic8WUHhibvvzCZhloPCdbracZWia9YOFttF1PKuoj90/640?wx_fmt=jpeg&from=appmsg)
+
+** 蓝领员工薪酬与激励体系创新实践  ** ****
+
+** 华南区整体薪酬部总监 | 伟创力  **
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtBfwcodlHEDfV8CfbnnTFamuJMjyicVzH80ymUpicCXA0wa3es7pkMQxoMTOZGvlHibltpgfPribSQ9Yr01SMBvKiaXljPM0ibT1bZibM/640?wx_fmt=jpeg&from=appmsg)
+
+** 韧性即竞争力：员工心理韧性与企业、发展白皮书  ** ****
+
+** 华南区市场经理 | 安赞咨询  **
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtCr2hNt7SAcwDBaVwiazZd8ea0U7QnQsVYv6DKRpeQBjbiasEB8L2mMGiaMSkIY3UByVgYEd2GggfP6raBib1kc7ske6T7BjtDf174/640?wx_fmt=jpeg&from=appmsg)
+
+** 社公数智化服务与AI驱动：赋能集团企业HR管理智能升级  ** ****
+
+** 人资解决方案专家、高复杂度行业薪税方案工程师 | 亿企薪福  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtDOYN59guGXMbnvr43HoIBicTZjGZW2y2sakzZAYc7ZkGMMyJc15B5OW3mibqhqicOoXnEW65fHD7nPw2htiatj8oJaoyTpuNrMpLk/640?wx_fmt=jpeg&from=appmsg)
+
+** 中高管人才长期激励与保留  **
+
+** 人力资源总监|百丽时尚集团  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBYZmkX2pCz2OCGLAcMmH9OX2CBHicZqicNM971WpDxqaC4qy8cMYWJefAoHyM3auOoomsQo3EAeICInUiaP63jZ6a3rnkHGIzDhU/640?wx_fmt=jpeg&from=appmsg)
+
+** 薪酬福利数智化升级赋能企业人效提升  **
+
+** 人力资源经理|芬尼科技  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBJiaVpKc4qJjzUSqBicfvsTqQ8tMWEJcJ9icib3tAwCwK4QOlAIlqsnjdBnN3Sicc7PBfReAjRxe98IycIp2UYaVKsIGNUtg70YDIQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 降本增效背景下的福利项目实践  **
+
+** 华南行政管理部 总经理 | 佳能（中国）有限公司广州分公司  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCCyz2nyuib7SAFjMicTfmZyVM10DNSutKxiaKd6cztiaDYBiaWhFmMaEO68XruyTYGciaOgRjLb2GOk1dZwfnmI0Z8rymmR7d2IULCI/640?wx_fmt=jpeg&from=appmsg)
+
+** 光伏出海企业的人力资源体系构建与实战  **
+
+** 人力资源高级总监 | 协鑫集团  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBb2vGAkiaicjL5eibQwtFcPK1BRQLc0vIWspYTZG5H3kNQOcRqaKLkIyvLLiaMgdx5yvFibDfhEqeDXSNn38K26iaicciauItdhLicKfibY/640?wx_fmt=jpeg&from=appmsg)
+
+** 从出海溢价到虚拟加薪：语言福利的杠杆效应  **
+
+** 亚太区B2B市场专家 | Cambly  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBnQAROjnry5ovSdBH6874z48sVw6xHKXdpVyKc006icWWBcqyJdiaYUwdJuEx58u1YpLu3NRbGgGCQRlDWJDmufvqajJ7jYiaWHs/640?wx_fmt=jpeg&from=appmsg)
+
+** 洞悉全球福利趋势，赋能出海风控实践  **
+
+** 福利咨询及“走出去”业务负责人 | Aon-COFCO  **
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtC0tmVH8qwgoGxF8TV302GQXibwr2SNibya5A3ib36H6xu5fpZR6lpHKhJTaKOjCHib812GbRnJaQsNDicVibkWnb9Ipfwv4ziaibKicW9s/640?wx_fmt=jpeg&from=appmsg)
+
+** 合规出海的人力解码——全球用工下的人力风险防控与实践路径  **
+
+** 华南区业务负责人 | Remote People  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtApPbjHTMlBoQBZb9sC6jvZIj0gt0cdLhfPwxyuGkfCaADeRicZBfdaybibDHSw9j89d5m1Sb2ICYTaAsqiaPZnvp4iaKgLbtVgx3U/640?wx_fmt=jpeg&from=appmsg)
+
+** 海外人才的团队搭建  **
+
+** 全球HRSSC总监 | 希音  **
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtDPkdPYibzrrIdJicJ6f3iavupdRIxlh4f2BOOVnPgQTGPYDDkY1ibmtCW19UZEvQ8ouYU0PYibKBJ1sMnvI7HFT93lM5icImvlW6ibaA/640?wx_fmt=jpeg&from=appmsg)
+
+** 来自Deel的分享  **
+
+** 大中华区业务负责人 | Deel  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBVNPjQSwjhVtJMcBiaI9uk3q1nWibljloiaallFufyia18Dzamtxiby8pYEAa2Iibz6FKk6QqMIY0pqC8oHbtDZBcv47KsoalT0eHIc/640?wx_fmt=jpeg&from=appmsg)
+
+** 来自G-P的分享  **
+
+** 华南区销售总监 | G-P  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCuXgl6bGPb4yexVr95lKwuGdwqmBTy6FHlzDyQCyVGuGqt0c6SNFwGpVzVWSLJOxv0RuKuyHnt0WGqQ7RVuzEBJ6YAo0EjnW0/640?wx_fmt=jpeg&from=appmsg)
+
+** 中兴通讯全球化发展实践与经验分享  **
+
+** 中兴领导力首席专家讲师&组织发展专家 | 中兴通讯  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCsiaB0ibafOKmH1ic1IoTibmdiahKPcnH5KFDaNffrP08r1floz7Nq6ndqiaRj2c0kyvlfnXJUuBj3lDrVnfwRZhHgfcVI8m2icznwuM/640?wx_fmt=jpeg&from=appmsg)
+
+** 玛氏皇家宠物食品新加坡团队招聘项目分享  **
+
+** 招聘经理 | 玛氏中国  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCic717fvDEYmvnPJibKbmb9yB1jwhh2Hop4UdznC70xvYxHWSKjC1TteLC4UfInw9wvYP2zw3Hg4GedxVmqmw4ian5ibH7nzJCibiaM/640?wx_fmt=jpeg&from=appmsg)
+
+** Beyond Borders: 从出海到全球共建-员工关系管理实践分享  **
+
+** 员工关系经理 | 迈瑞  **
+
+** 特别鸣谢  （  排名不分先后  ）  **
+
+** 联席赞助  **
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtDe3UZIGSx3Z0mzRe2gZj5ogUtrkp7PNox2okFo2wog6M66VYsfIJUcgIKICmjib7pgXOMUMHX5U9f74kC3zAR41BvUO1WpnTgA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtDlwOfpukLFxIUt3wHrFXLAQOsmrLibdDeeHwTxTLvTMFf9HDtmV03OiaZ3BAoJ1k0SjNwjLLaETP9lib6nOA2tQ0fGVt6IC46oFk/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtC2HXKX0hlYeRanbYznhdo2LEzedQuLecL48oPVic3107lbYT6oMJZZia9oepdS6vQYR35D2QJx2qeRQctX7h4g3RnfBHArBHeYU/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtB10XeVcmyYeyzZ5kIgdjAA90K5mR90Tia1DCZZrOPewkI4wXIPyic7ZbN2lsyfC7FvUZxGjD7ibRyv2MzZMiaReDMpgUr0xtPG2Yg/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCApb4rw6WfaBtXCDdic1a3nhoibge5b3OXTQb1se4UmEILORE5DstwLMH1UicyibgQyd6e7rOIYc58AXglI7m8xWga0RSjvK7CQbk/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtBE5vqZibiaLNtDDCC877C8z0uVyib78icDOJyJUdm1xo6Oa3SyEasjGicpeicE4688MicOZTCdD12D9SiaGicKZ8RNVt5tnMicHhQxgmWb0/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCCkngocHcsqB8Lb4I2J11WyAZGvAPP0QicfmLr7rQSuzfoskR9PbWngiahoxK23R5FjMXCI9hGrIylVicVy4Lgib9N99f5Jj5YefA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBrA67ic1SyhygAJqp2icqX8mUGVWly2hvLWbB6aFVvBAZomC45v31UDpLRem5FK5gf7hVcvLRLyP37Q5sdgfsK4cqWv9A5Db3Ls/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtC5BSQjicHwUvP5KVKf3zaopwqjfeA2wmI7sia4P9UHq0WYN6LdicA2bekvdNfG2oxaZVKteN1fxgmVYCjwTWAdC8f9mmCiaklplRo/640?wx_fmt=png&from=appmsg)
+
+  
+
+** 演讲赞助  **
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtDLHwWSBbib8KVpowlaYH16ltOqoib5HGe0RcVcOX8V9ruwibSTsae6KZ0tsUAyYhziaC6icSzX02NlWSLjWprUfRgsxeMfWCpMIaas/640?wx_fmt=png&from=appmsg)
+
+  
+
+** 展台赞助  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAJUCEgiaCOSfNjW8j0yY4AicdgA9KfOPD6juTZE8K9C9P7dRIDWLHNPeOIFIA1gxSj9ChSf4EEGyQ1ibMuBV7H08sn9TgPqRs9cA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBkJab3chHMNkBV3faFa4Jg6xyoWBc6ZPcb2ibg9ODqJiatdTtQ7hiccEg7TyvaTTaloBsiaq9PxnlKOPPTfyZ1nCx7qkrXH3kGic24/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCpvcPk1SnrUvKnkxKJeFL86hMaLw9ZnZty8HVhIBSHMh6C1vnO4Sia4PHGH8kOTOZAcLMp6gSAcGU2Q1mZQL0tRWMSnqu5jTS4/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAFiaN9MhCbsSsWj2cUrA7iblXttd0q5tqib1ZqJHpiaicq9RrtOoOjVOP3PryOvicib0diaVgRVjgEgahRpl36tbTwrPTrOlicWupzpibQ0/640?wx_fmt=png&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAkicyibHRdcs59yiaQ6KkbTBgHUg4pgap8knNFYnSY6Z1lcW4dibQtTH5k3xDQXgVqlM5BnhXTbKPDTJ3wLvhlTib5z8ZG5qXf4Jzs/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAAx8opnAVQpiayea7YzLHLLcAI3XQk6q2Sib5yGszcNAUrUl2BrgleyhMCIJ7k3bDBOhTG17YqicqeNRFNTfl1MwemUQVHKQaRuU/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCwroWFcxzvqLUaBZKFNyqH7tggpUdUA2J0KgvFTJH887LGIjGhvX4cgvbxlFqVCXd3ZPfN0NxNHHwjdAgrMwmJMnmLv9UrRlA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtBqHXHkAgVefYKJvMDGBLQiaCyqtmO9bRKBH5RmVDP515xvfUEmzz9totAAXebskccRHHsJPag4mib33kgJ1ykfsvy8burelNb5s/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCP7LYicMFLIY3HNXlPicxlgIokIPlDvn5vGETMVAIDARTLkwq13SDibWKY4ial6ozDsjxk7uH3ibZB1JOyOu137G1g81NUz7wnAWQU/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtBfM8bUWk83DgaxfibLyqMDbp66PK4W8O9gyib4T8WlQsG0fhbjhrtps11bUH3eiaiaMnHYYuk5ytaDT8VKGpRiaf8DQcLabxIM65o4/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAzJjvoewt2obPKdlcQmwtDw8NDgoNKAiarLOZh4vXHyicLM4TkEibHrTCrndUWKVerLjJlrfyDw9w1j8FbkcjDyRqG5utPtXlb9s/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtANRQ7Js0o7D9yGCfBc3s4dVich6DYqASkVzOyIrgAVfej09UraYj350XNmc1hnZJcDU8sUAAMqt31LBic6GV8PwaPbswd5PzRBY/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtBnWWricUjFO5aUJTShpjlB92KZptl98qobKRFukGGRiaolIglYqtXvWibiblegok1s4hq2XH8Kbt8E8AuI0EstPA29wRsIBJZBHTo/640?wx_fmt=jpeg&from=appmsg)
+
+** 即刻锁定报名席位！  **
+
+** 2026  
+**
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBwa3eOAZOUNvldvOxVPtdtLiaeo00L3LdIg9ES3Kib3I6U7BDBgEZTvFibyVy0cXJ4ibcy2Y4L7mqbvRHJLZZL5yPJlz8ZoMTnw5A/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## AI浪潮下北京发那科如何用团队教练赋能组织与业务发展
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRbBdv1DeFoulFM11zIfehHk9fLjxPsYPF0nFEYSA1kGfqmE1S6XkiakicXlzvsmP0q5hofxfXfbLhA/0?wx_fmt=jpeg)
+
+#  AI浪潮下，北京发那科如何用团队教练赋能组织与业务发展
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月11日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：李瑾 | 人力资源总监 | 北京发那科机电有限公司 
+
+  
+
+在智能制造浪潮席卷全球产业变革的新时代，北京发那科作为中国数控技术领域的领军企业，组织与业务已进入了创新发展期。新环境、新时期、新阶段对组织管理升级提出了更高诉求，同时也带来更大挑战。在组织变革、业务变革的关键节点，尝试教练技术的引入，并与引导方法的深度融合，为组织与业务发展开辟了新的赋能之路，这一探索实践正在为企业的长期持续发展注入新动能。
+
+  
+
+  
+
+** 公司背景与教练技术早期实践：从技术管理困境中寻找新路径  **
+
+  
+
+北京发那科深耕智能制造领域，作为中国数控及工厂自动化领域的专业品牌，见证并深度参与了中国制造业蓬勃发展的30年，始终致力于FANUC全球领先的数控系统及工厂自动化产品及技术在中国的推广应用。产品与服务覆盖了汽车、通讯、电子、新能源、智能制造等先进制造各领域，服务于机床厂商、新能源及传统汽车厂等终端客户。公司员工以工程师、技术型销售人员为主，管理者大多数由技术岗位转型而来。在传统管理模式下，技术出身的管理者在员工绩效反馈、员工发展沟通时，常陷入“有理说不清”的困境，传统的说教式管理不仅难以激发员工潜力，甚至可能引发抵触情绪，成为组织发展的隐性阻碍。
+
+  
+
+2019年左右，公司在推进关键人才IDP（个人发展计划）时，管理沟通缺乏有效技巧的问题开始暴露。为此，公司为担任关键人才导师的管理者引入了教练式辅导培训，将GROW模型融入员工辅导实践。这一转变让管理者放下“权威姿态”，化身“思维向导”。通过开放式提问与深度倾听，管理者从探寻被辅导对象面临的问题出发，引导员工主动思考，从“我告诉你怎么做”转变为“我们一起找答案”。这种牵引式的沟通方式，成功帮助员工突破思维局限，在角色转型与挑战性任务中实现自我驱动。
+
+  
+
+** 团队教练的应用与发展：在变革浪潮中破局突围  **
+
+疫情前后，制造业竞争加剧，整个行业面临价格战、结构性转型、贸易战等多重挑战。北京发那科在应对产业竞争时，孵化了许多新组织和新业务，这些新团队面临着业务转型、组织融合等复杂问题。2021年前后，HR团队的两名主管学习了团队教练技术，并开始在公司内部几个业务团队进行试点。
+
+  
+
+第一个典型案例是某业务转型时，陷入“努力却无效”的怪圈。2022年初该团队面临方向不清晰、目标模糊的问题，每个人都很努力但找不到重点，导致业绩不佳、士气低落。通过团队教练工作坊，帮助团队成员共同审视新的组织目标，共识成功时的样子，将过往未曾明确表达的困惑与卡点摆上桌面，相互看见团队内部和跨团队的问题，共同探索解决路径，最终形成了共识的成功图景，并且制定了具体的工作推进工作法，以及交付产出标准，对工作开展的目标、打法、动作和结果达成了希望取得什么样的“有质量的赢”的闭环。曾经的迷茫团队，在2024年获得了公司优秀团队奖，团队教练技术在业务转型的关键时期，通过引导大家群策群力，接纳当时的不完美状态，重新确立共同目标，成为了转型助力的有效工具。
+
+  
+
+2022年，组织经历战略文化升级的关键阶段，而文化价值观重塑是重要的一环。因此需要组织高管团队重新定义核心价值观，明确在新的业务环境下应该采用什么样的行为方式。公司特邀外部顾问运用高管教练和团队教练技术，引导高管团队回溯发展历程，剖析价值观演变脉络，在基于业务场景的情景化讨论中，高管团队逐渐明晰在新业务环境下应秉持的行为准则和协同方式，最终形成从历史中萃取，在未来处发现，于行动中传承的全新文化价值观诠释，为公司使命愿景的达成奠定了价值观基石。
+
+  
+
+另一个重要应用场景是在高管层战略执行优化方面。2023年，北京发那科在快速变化的环境中，面临战略制定与执行一致性的挑战，需要提升各层级主管对要事的判断能力，形成核心管理团队的统一工作方式。为此，公司采用引导+教练的双轮驱动模式，通过层层递进的提问，引导核心管理者围绕具体业务场景深度研讨，激发管理者主动思考战略落地路径，共同打磨出一套贴合公司实际的战略执行方法论。
+
+  
+
+** 教练技术的价值与特点：激发组织内生动力的“催化剂”  **
+
+  
+
+教练技术在北京发那科的实践中展现出了独特的价值。首先，它打破了自上而下传递的决策模式，转向鼓励团队涌现共同探索解决方案，而不是强加外部答案。其次，教练技术帮助团队从系统性角度解决问题，而不是局限于单点突破。通过教练式提问，能够穿透表面问题，引导团队从多维视角思考，深挖背后的深层次难点。同时，对于以理性思维为主的技术型团队，教练技术通过情绪层面的触动促进思考，为组织注入了更多人文温度。
+
+  
+
+公司始终坚持“问题导向”，将教练技术视为解决实际问题的有力工具。北京发那科将教练技术与具体业务场景相结合，公司更关注是否真正解决了问题，而不是使用了什么技巧。教练技术在实践中更多地扮演着催化剂和镜子的角色：作为催化剂，在团队面临转型或业务瓶颈时，促进突破和变化；作为镜子，帮助个人和团队进行自我反思，跳出日常惯性思维。
+
+  
+
+实践经验表明，教练技术不应该脱离具体业务场景独立存在，而应该与实际管理需求紧密结合，在适当的时机运用合适的方式，真正发挥其促进组织发展和问题解决的作用。通过近几年的实践，北京发那科发现教练技术特别适合在业务转型期的方向探索、新组织的团队融合、战略执行的一致性提升、企业文化的重塑升级等场景中应用。
+
+  
+
+** 教练技术在公司内部的定位转变：从“试试看”的探索到“确实有用”的认可  **
+
+  
+
+最初引入教练技术时，公司抱着试验的心态，将教练技术作为传统管理方式的补充，试图解决特定场景下的沟通难题。随着企业面临的课题越来越复杂，很多业务发展已经不再是线性的，这就要求我们解决问题的方式需要更加全面和系统。
+
+  
+
+引入团队教练后决策与沟通一致性显著提高：参与团队教练的管理层，在做公司决策和跨部门沟通时，一致性大大提升，这得益于大家在教练后，站的高度更接近了。
+
+  
+
+团队教练激发大家“自驱力”和“合力”：教练的过程中全程高度互动，寻找答案，而且最后达成的结果，大家是非常一致的。最大的变化是大家概念上的转变——从“我”到“我们”。以前经常是“我怎么样”、“你们部门怎么样”。现在大家会说，“我们”要解决这个问题，“我们”应该怎么样。这不是公司或教练强加的，是所有参与者碰撞出来的。
+
+  
+
+教练技术在北京发那科的定位已经比较明确：不管是管理者还是HR角色，都可以通过运用教练技术更好地帮助业务、帮助组织持续成长。特别是HR在公司中往往扮演着辅助和帮助高管成长的角色，教练技术已然成了HR推动组织发展的必备工具。目前，也已经有业务管理者开始自主报名去学习教练技术了。经过几年的实践，教练技术已经从试用阶段进入到了“有用且如何更好发挥作用”的阶段。
+
+  
+
+** 教练技术价值的独特性评估：1+1＞2的协同效应  **
+
+  
+
+在北京发那科的实践中，教练技术很少“单打独斗”，通常与引导技术等其他工具方法叠加使用，形成教练技术协同效应。团队教练实施过程中，通常需要双教练分工协作：一位专注引导讨论，另一位负责观察场域，敏锐捕捉大家可能看不见或希望回避的问题，这种组合让团队问题无所遁形。
+
+  
+
+相比传统的管理方式，教练技术带来的效果是一种“虚实相生”的化学反应。传统管理追求“就事论事、由实到实”的直接处理，而教练技术则通过看似“不着边际”的提问激发团队深层思考，教练技术有时看似是“虚”的，但这个“虚”的问题却具有强大的力量，能够反哺和促进“实”的问题解决。
+
+  
+
+这种方式产生的效果是化学反应式的叠加，而不是简单的物理叠加。教练技术真正形成的是流动的对话场域，让事情以更自然的方式发生，产生大家意想不到的成果，实现从量变到质变的转化，这种独特的价值在北京发那科的实践中展现得相当显著，为组织带来了传统管理方式难以实现的突破和创新。
+
+  
+
+** 教练技术成为HR从人力资源管理跃升为战略伙伴的转型“利器”  **
+
+北京发那科人力资源团队正在经历一场深刻的角色转型。从传统“选育用留”的HR工作者，到“组织的好帮手、业务的好伙伴、员工的好朋友”的战略伙伴，HR的价值定位全面升级，支撑公司实现业务成功、组织高效、人才集结的成功状态。
+
+  
+
+基于这一愿景，北京发那科人力资源团队明确了四个核心身份：组织变革的助推者、组织能力的驱动者、组织人才的提升者，温度职场的建设者。这四个身份不仅体现了HR工作的专业化发展方向，更反映出在当前商业环境下，战略与业务驱动、组织形态驱使价值型HR向战略伙伴关系的转型。
+
+  
+
+在履行组织变革助推者和组织能力驱动者的角色职责过程中，教练技术成为HR团队的“利器”。很多时候，业务团队和个人都面临着一个共同的挑战——不够了解自己的真正需求。面对业务团队“不识庐山真面目”的盲区，HR运用教练技术引导团队自我剖析组织现状，定位未来发展方向，从而帮助业务团队更清晰地认识自身状况和真实需求，找到现状到理想状态之间存在需要跨越的鸿沟，再为业务发展提供有针对性的解决方案。
+
+  
+
+教练技术的运用使HR不再是旁观者，而成为了升维变化的催化者，通过诊断洞察——需求聚焦——方案共创——落地改善——复盘迭代的闭环陪伴，实现精准洞察、靶向赋能，从人力资源管理执行者蜕变成为业务部门并肩作战的伙伴。
+
+  
+
+** 团队教练与个人教练的场景应用：分层施策，精准发力  **
+
+教练技术在实际应用中呈现“上下联动”的特点。团队教练聚焦系统性问题，通过团队教练的方式进行问题识别与团队共创，帮助业务单元或业务条线实现整体系统化提升；而个人教练则针对中高管及关键人才，帮助他们实现认知突破与能力进阶，对于高层管理者，外部高管教练或内部教练技术成为其拓宽视野、提升领导力的重要助力；对于关键人才，中高层导师与HR团队化身“教练使者”，通过搭建对话桥梁，助力员工实现职业成长。
+
+  
+
+** 对AI教练的理性思考：拥抱技术，坚守人性温度  **
+
+面对AI教练技术的兴起，北京发那科始终保持理性态度。尽管AI在基础问题解决上展现出高效优势，通过填充语料库和案例模型就能提供解决方案，但教练工作的核心——人性洞察与情感链接，却是AI短时间难以企及的领域。
+
+  
+
+教练工作与咨询顾问工作有着本质区别。咨询顾问主要通过提问探询和提供解决方案来解决问题，而教练的核心价值在于调动被教练者的内在潜能。特别是在面对复杂业务场景、面对高层管理者时，信任的建立、情绪的疏导、价值观的共鸣，这些“人味”十足的元素变得极为重要。教练工作不仅涉及纯理性的问题解决，这些微妙而复杂的因素往往是问题的根源所在。AI或许能达到“及格线”，但人类教练更能通过高阶感知力实现从“解决问题”到“激发潜能”的跨越，守护组织发展的人文温度。
+
+  
+
+来源：  智享会&ERICKSON《2025组织教练研究：价值重构与创新突破》
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSplQD6ibc2h6YXUaeicN51fAsnfR71UqUZTIpxNeugahvE7l5MADEAicPYv0521qSrzPetNDRicLaWJQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSplQD6ibc2h6YXUaeicN51fAdr3h4bw7ozGWodolSEmLLcYBxnNvYEJP7Z5XicD7OHibexbghCEnHkIQ/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSplQD6ibc2h6YXUaeicN51fAoviccr5J4qT24EicIEB0wbC4zf6sKibs3L0NTjnWhJ3NSibWN38Fa625fw/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TS4l5S6s3rWrY9OAJ4dGnrFdTa2g5DxaX1xjlXrIvicLXqqjIqVY52RG9umsCWMp49dNg8HZypxepg/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## HR圈大佬都在领2025年人力资源行业热门研究报告
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQwcT3IibR71TwLCW1IJN8xt1USnteibOdJYxsfuF59JPsRVMG1LqjrfCEeON5XBO43regKuENp65Qg/0?wx_fmt=jpeg)
+
+#  HR圈大佬都在领！2025年人力资源行业热门研究报告
+
+原创  人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年02月02日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZK7nZ91HmjBTs6NhHQuxxfnTD2BubBgUEPZqPm0cQU1qU4ZSjrA3x4CA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKsS7uZlX4VHeXShVAV3DjYSjwLBHiaKufHdC8rn4bzhrBuzxrrKTfI3g/640?wx_fmt=png&from=appmsg)
+
+** 研究报告合集  **
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKROJWNZaEwn9Z5suTAiajVDgLShmObstUnalnhFTIIvnfSbx7HMtx4xQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKKicnqnSQyibDZImzT4qu0oGqcibhVibiaN69or3B4I0dj7VdsG0jIRbthjQ/640?wx_fmt=png&from=appmsg)
+
+** 智享会人力资源实践研究院  **
+
+智享会人力资源实践研究院深耕HR领域热点，全年产出12份全模块研究报告，输出核心市场洞察、前沿趋势及优质实践，赋能HR专业人士科学决策。
+
+  
+
+针对不同人力资源热点问题，采用数据对标、实践地图、行动蓝图、趋势探索、深度话题等多种研究方法并产出不同类型的报告，多维度满足HR专业需求。
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_svg/ciaIftfPzwlpTQjJ2EPAmicUlAVbtINzbqfeUOfibCKXRj4RSfPfcmC6gRU0l90rkmDBkHsvJkFBl9TgmKdU9qgQ0vQiaaibsnoF3/640?wx_fmt=svg&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKo69peEiamsjDsIktOUQ1hbWBuh04JGdb59IGMJsw8zscQTnFEshYTSQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKpWKaTETGT6OQ5ezGYEGiciaticlmS2YMiaAGqw9ACgJSOosW0w0tLvFDRQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKbfOX46hFmQ6UNhPX8ukZYIY5icwp5w4LMJYpxykEtIPfBoV1bcpSzuQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZK8JKZ99icLMmwpuhgvzrrP4ibrFsnibPdTUHqv39FQkfSVLnib44I0iaoXvA/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKNRH5nDhXelqXfjZSpYwcXCibEDQtvvll6P27zkYCFWcWOUqlracvHqw/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+智享会年终重磅回馈！
+
+2025年HR热门调研报告免费大奉送！
+
+限时免费领取调研报告  ** 五  ** ** 份  ** ！！！
+
+  
+
+聚焦年度人力核心热点，
+
+浓缩前沿趋势、优秀实践与落地指南
+
+助力HR科学决策、年终复盘提效！
+
+数量有限！先到先得！
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKJ5Q27rurlGtDQ2mYicLg6xSk3uRQOEhDqliaqUMCjtBarY5ua1ktbkLg/640?wx_fmt=jpeg&from=appmsg)
+
+** 《智享会研究报告合集》  **
+
+** 开启限时免费领取！  ** ****
+
+2026年2月2日至2月16日期间
+
+扫码填写，即刻领取
+
+  
+
+** 01  **
+
+** 出海用工的合规困局与破局之道  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKROJWNZaEwn9Z5suTAiajVDgLShmObstUnalnhFTIIvnfSbx7HMtx4xQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKo69peEiamsjDsIktOUQ1hbWBuh04JGdb59IGMJsw8zscQTnFEshYTSQ/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 研究背景  **
+
+  
+
+  
+
+  
+
+在全球政治经济格局深度重构的背景下，企业管理模式正面临前所未有的挑战。根据世界经济展望在全球经济一体化的浪潮中，中国企业出海的步伐愈发坚定且迅速。近年来，随着国内市场竞争的日益激烈以及国内产业结构的不断升级，越来越多的中国企业将目光投向了广阔的海外市场，积极寻求新的发展空间与增长机遇。从早期的制造业企业“走出去”拓展全球业务版图，到如今各行业企业纷纷布局海外，出海已成为推动中国企业实现高质量发展、提升国际竞争力的关键战略举措。
+
+  
+
+然而，当前全球经贸环境正经历着前所未有的深刻变革，为出海企业带来了诸多新的挑战与机遇。一方面，地缘政治冲突不断加剧，区域供应链面临重构，各国之间的贸易保护主义抬头，“友岸外包”等政策使得企业不得不重新审视自身的出海布局战略，从依赖单一市场转向多区域均衡布局，以分散风险、增强业务的稳定性和韧性。另一方面，技术壁垒的升级、国际法规的日益严格，如德国《供应链法》、法国劳动法的修订等，都对企业的海外运营合规性提出了更高的要求，企业面临着更为复杂的法律、税务、劳动用工等合规风险，稍有不慎就可能遭受重大的经济损失和声誉损害。
+
+  
+
+在这样的大背景下，企业的海外用工管理成为了影响其出海成败的关键因素之一。如何在不同国家和地区的法律框架内，高效、灵活地配置人力资源，构建稳定且富有竞争力的海外团队，同时有效控制用工成本与风险，是每一个出海企业亟待解决的重要课题。名义雇主（EOR）服务作为一种新兴的海外用工模式，因其在合规保障、业务灵活性等方面的独特优势，受到了众多出海企业的关注和青睐。然而，EOR
+市场本身也存在着资质参差不齐、服务质量差异大等问题，企业在选择和使用EOR服务时面临着许多困惑和挑战。
+
+  
+
+** 02  **
+
+** 2025企业薪税社保管理调研报告  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKROJWNZaEwn9Z5suTAiajVDgLShmObstUnalnhFTIIvnfSbx7HMtx4xQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKpWKaTETGT6OQ5ezGYEGiciaticlmS2YMiaAGqw9ACgJSOosW0w0tLvFDRQ/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 研究背景  **
+
+  
+
+  
+
+  
+
+在社保合规要求强化、跨区域制度优化、个税管理精细化等政策环境持续变革的背景下，以及企业跨地域经营、多元化用工日益普遍的现实情况下，薪税社保管理已成为企业风险控制、成本效益与战略发展的核心议题。
+
+  
+
+本报告并非传统意义上的标准化研究报告，而是一份基于调研数据的实用性管理现状分析。为系统呈现当前企业的管理现状、挑战与应对实践，本报告构建了“政策驱动→现状诊断→功能分析”的三阶段分析框架：
+
+  
+
+● 政策驱动： 分析国家政策环境变化如何驱动企业薪税社保管理升级的必要性，并评估企业实施管理优化的基础条件（如跨地域架构、数字化基础、人力配置、用工结构）。
+
+  
+
+● 现状调研：
+调研企业薪税社保数字化管理的实际实现程度、系统建设模式（来源、部署）、面临的核心挑战（成本平衡、多主体管理、跨区域系统差异），以及一体化建设进程。
+
+  
+
+● 功能分析：
+剖析已实现数字化企业的系统功能覆盖情况，包括核心业务功能（薪酬、个税、社保）的实现层次与发展阶段、员工自助服务的建设现状、AI赋能的应用场景，以及应对挑战的解决方案。
+
+  
+
+** 03  **
+
+** 打造成长型心智组织文化研究报告  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKROJWNZaEwn9Z5suTAiajVDgLShmObstUnalnhFTIIvnfSbx7HMtx4xQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKbfOX46hFmQ6UNhPX8ukZYIY5icwp5w4LMJYpxykEtIPfBoV1bcpSzuQ/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 研究背景  **
+
+  
+
+  
+
+  
+
+在一个充满前所未有复杂性与不确定性的时代，企业正被迫以更快速度作出改变。宏观经济下行、技术迭代加速、市场需求骤变、全球竞争加剧……这些因素叠加在一起，使“保持稳定增长”成为所有企业共同的挑战。
+
+  
+
+在这样的环境下，组织的适应力、韧性与创新力比以往任何时候都更加关键。正因如此，“成长型心智”（Growth
+Mindset）这一关注个体与组织如何看待挑战、学习与成长的底层信念体系，正成为企业穿越周期的关键支点。
+
+  
+
+** 04  **
+
+** AI赋能人力资源管理  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKROJWNZaEwn9Z5suTAiajVDgLShmObstUnalnhFTIIvnfSbx7HMtx4xQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZK8JKZ99icLMmwpuhgvzrrP4ibrFsnibPdTUHqv39FQkfSVLnib44I0iaoXvA/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 研究背景  **
+
+  
+
+  
+
+  
+
+人工智能技术正以前所未有的速度和广度重塑全球产业格局。2024-2025年，随着生成式AI多模态融合的深化、智能代理的规模化普及以及国产大模型的崛起，AI技术正从"科技图腾"加速蜕变为支撑各行业发展的"数字基础设施"。这一变革浪潮为人力资源领域带来了前所未有的机遇——通过深度整合AI技术，不仅能够重构传统工作流程、大幅提升运营效率，更能推动人力资源从业者从基础事务执行者向战略决策赋能者的角色跃迁。
+
+  
+
+然而，理想与现实之间仍存在显著差距。我们的调研揭示了一个耐人寻味的现象：尽管企业对AI应用展现出强烈的意愿，但实践成熟度却普遍偏低，呈现出“高期望、低落地”的割裂状态。
+
+  
+
+这种矛盾现状促使我们思考：如何突破AI在人力资源领域应用的瓶颈？基于对市场现状的深入分析和过往研究成果的系统梳理，本次研究旨在为这一关键问题提供切实可行的解决方案。
+
+  
+
+基于以上背景，智享会与外企德科FESCO
+Adecco联合发布的《AI赋能人力资源管理：找到企业内第一块AI“试验田”》调研报告，基于314家企业实践数据，为您提供切实可行的解决方案。
+
+  
+
+** 05  **
+
+** B2B销售培训与绩效改进调研报告  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKROJWNZaEwn9Z5suTAiajVDgLShmObstUnalnhFTIIvnfSbx7HMtx4xQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKNRH5nDhXelqXfjZSpYwcXCibEDQtvvll6P27zkYCFWcWOUqlracvHqw/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 研究背景  **
+
+  
+
+  
+
+  
+
+▋ 多重不确定性重塑中国市场竞争格局，销售组织面临前所未有的业务压力
+
+▋ 传统销售赋能机制难以匹配敏捷业务需求，培训体系亟需战略升级
+
+▋ 本报告整合全球视野与中国实证，为企业提供可落地的销售能力发展框架
+
+▋ 融合定量调研数据与定性专家访谈，覆盖多行业头部企业最佳实践
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKJ5Q27rurlGtDQ2mYicLg6xSk3uRQOEhDqliaqUMCjtBarY5ua1ktbkLg/640?wx_fmt=jpeg&from=appmsg)
+
+** 《智享会研究报告合集》  **
+
+** 开启限时免费领取！  ** ****
+
+2026年2月2日至2月16日期间
+
+扫码填写，即刻领取
+
+  
+
+如有调研报告合作需求，可添加企微咨询
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKH2icCGLyVPqf4h3vAL4DeDAO1el8oUb7oh7V4eRrmTfK7HVqjaeGoNw/640?wx_fmt=png&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZKQsNJ8BegdibNb2PApjhic0DfkiagSDARnlYTvlrRzGaLP2rLVv0Tgbncg/640?wx_fmt=gif&from=appmsg)
+
+** 智享会人力资源实践研究院  **  
+
+  
+
+** 研究院介绍与定位  **
+
+智享会人力资源实践研究院关注人力资源热点话题，每年为智享会会员呈现12份研究报告。努力为人力资源专业人士提供市场洞察分析、前沿趋势以及优秀实践分享，帮助人力资源从业者做出科学决策。
+
+  
+
+** 数量  ** ：  全年12份研究报告，涵盖人力资源各模块的热点话题
+
+** 类型  ** ：  针对不同人力资源热点问题，采用不同的研究方法并产出不同类型的报告
+
+  
+
+● Benchmarking（数据对标）：针对市场的热点问题，以数据对标为主的调研研究
+
+● Practice Mapping（实践地图）：梳理、总结和归纳人力资源某一特定领域最佳实践的研究报告
+
+● Blue Print （行动蓝图）：针对某一人力资源实践领域，提供模型、体系及步骤性指导的调研研究
+
+● Trends Exploration (趋势探索)：聚焦人力资源行业趋势性话题，提供趋势解析与洞察以及行动指南的调研研究
+
+● Deep Topic（深度话题）：深度话题研究，主要针对更为聚焦和精专的话题
+
+  
+
+** 定位  ** ：  客观、前沿、落地、专业
+
+** 人员  ** ：  10+位全职专业资深顾问，多年致力于人力资源行业性研究
+
+  
+
+** 广受行业赞誉的旗舰报告  **
+
+** 招聘  **  
+
+●招聘技术路线与效能提升研究报告
+
+●企业校园招聘实践调研报告
+
+●企业入职管理与培训管理实践调研报告
+
+●社交媒体与人才招聘调研研究
+
+…..
+
+** 人才发展与培训  **
+
+●企业移动学习项目调研报告
+
+●企业内部讲师团队搭建与培养调研研究
+
+●中国企业国际化人才发展与培养实践研究
+
+…..
+
+** 薪酬福利  **
+
+● 企业员工健康福利与健康管理调研报告
+
+●企业高管福利管理与实践调研研究
+
+●企业弹性福利管理与实践调研研究
+
+…..
+
+** 信息技术  **
+
+●人力资源共享服务中心研究报告
+
+●AI技术在人力资源领域的发展与应用研究
+
+●离职风险管理与流动预测研究报告
+
+●人力资源数字化转型调研研究
+
+●People Analytics的发展与应用研究
+
+●人力资源信息化管理调研研究
+
+…..
+
+** 其他  **
+
+●弹性工作制与灵活用工研究报告
+
+● HRBP能力发展提升研究
+
+●变革沟通管理实践调研研究
+
+●企业绩效管理改善与优化调研报告
+
+●企业工厂蓝领员工管理状况调研报告
+
+…..
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRuZcJFT54ThDCkcLMXsHZK87xmGzVUrC53krLIVdtyJN4T0x3brHYzg81ib5ibEzRQEsg6KFn4PsTw/640?wx_fmt=gif&from=appmsg)
+
+预览时标签不可点
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## RST1535降低员工流失率的秘诀给员工成长而非只是加薪
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRPYKIoNicz5MFbJ84wdUFqJfkO3USRgVnL9ml2KQYsyPOyiagDBmU0yY2akyHSnJoWkp4ahHIH9iaKA/0?wx_fmt=jpeg)
+
+#  RST | 15%→3.5%！降低员工流失率的秘诀：给员工“成长”，而非只是加薪 
+
+原创  人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月07日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+** 作者：Matt Wallaert  **
+
+  
+
+在 Oceans，我们通过关注一个单一的工作场所需求，将员工流失率从15%降低到了3%。而这个需求并非薪资。
+
+  
+
+2014
+年，我在TEDx上做过一个关于工作动机从金钱转向意义的演讲。我们分析2008年金融危机后的就业市场数据发现：大学毕业生在评估offer时，薪资是首要考量。然而，仅仅工作一年后，“工作意义”就取代薪资，成为他们去留的关键因素。
+
+  
+
+在接下来的十年里，我们看到围绕“有意义的工作”的文化能量大爆发。没有哪个特征能像千禧一代坚持认为工作必须对更广阔的世界产生影响那样如此定义其身份；这与80年代的物质主义相比，简直是180度的大转弯。
+
+  
+
+但雇主们在创造员工现在所要求的“有意义的工作”方面却举步维艰。在构建了一个旨在最大化盈利的完整体系之后，突然将工作重新定位为“为世界服务”常常显得极其虚伪。而事实上，对薪资的不满如今再次上升；“如果你不能让它有意义，那么你就得付我更多钱”的钟摆正全面摆动。
+
+  
+
+但还有第三种常被忽视的工作动机，有可能打破这种拉锯战：  ** 成长  ** 。
+
+  
+
+个人成长介于个人主义（如薪资，它直接使员工受益）和反物质主义（如意义，它在社会上令人向往）之间，是一个愉快的折衷。然而，它并不会蚕食任何一种动机：你可以是“高薪且成长中”或“做有意义的工作且成长中”，而这很难与“高薪且做着有意义的工作”并存。
+
+  
+
+尽管有大量证据表明蓬勃发展的感觉很重要，但它却是公司最不擅于管理的激励因素。在通胀使薪酬问题变得尤为突出的 2024
+年，只有一个问题作为工作不满意的根源排名更高  ：  ** 缺乏成长机会  ** 。
+
+**  
+**
+
+在
+Oceans，我们亲身体验了这一点。我们的薪酬一直处于市场领先水平，并且随着市场上涨，我们持续提高薪酬，以向其他公司施压，要求它们分享更多通常被顶层囤积的财富。
+
+  
+
+然而到了2024年，我们的流失率仍高达15%。究其原因，尽管我们怀有良好意愿，却未能建立起强大且系统化的机制，确保每位成员切实获得成长体验。当你招聘的是最具积极性、高技能的员工时，缺乏成长机制就变得至关重要，因为你最好的员工恰恰是那些最渴望成长的人——这也正是他们如此优秀的原因。
+
+  
+
+截至上个月，我们的流失率已降至 3.5%
+且持续下降，而我们的招聘流程没有任何改变。我们的薪酬依然领先市场，我们的工作依然有意义。改变的是，我们在全公司范围内强烈强调确保每个人都能蓬勃发展。
+
+  
+
+在我分享我们如何做到这一点之前，请允许我明确一点：我不认为成长计划可以简单地照搬照套。每个工作场所都有独特的人员构成和压力，需要以量身定制的方式去理解和解决。我分享
+Oceans 有效经验的目的，是为了展示可能性，而非断言它适用于其他地方。
+
+  
+
+对我们而言，第一步是认识到个体差异。Oceans
+创立之初，我们的“潜水员”（Divers，如此命名是因为他们完全嵌入客户环境并深度合作）仅被简单地聘为“EA+”——一个表示他们具备跨职能工作能力的通用类别。
+
+  
+
+但这个宽泛的类别，虽然便于销售，却抹杀了每个人固有的独特性；渴望成长的人，没人愿意被告知自己是通用的。通过重组为市场营销运营、业务运营等角色，我们为人们设定明确、与角色一致的成长目标奠定了基础。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRPYKIoNicz5MFbJ84wdUFqJlHK0dsHNSgaybOicoTq5G35dRIF49k8dUkxJLYCuYudgVrCujYpL0Qw/640?wx_fmt=gif&from=appmsg)
+
+** 成长匹配（growth matching）  **
+
+”
+
+设定方向性的成长目标可能是员工在 Oceans 所做的最重要的事情。我们现在认可四种类型的目标：纵向、横向、内部和外部。
+
+  
+
+** 纵向目标  **
+
+帮助个人在其专业领域内进阶。如果一个主要拥有付费营销经验的营销人员想要增加自然营销技能，这就是一个纵向成长目标。
+
+  
+
+** 横向目标  **
+
+相反，是关于交叉培训到另一个专业领域，但没有换团队的意图。如果一个业务运营专员想在留在业务运营团队的同时，了解更多关于付费营销的知识，这就是一个横向成长目标。
+
+  
+
+** 内部目标  **
+
+核心是在公司内部彻底改变主要专业领域。如果财务运营部门的某个人不仅想了解营销，还想实际加入市场营销团队，那就是一个内部目标。
+
+  
+
+** 外部目标  **
+
+是关于离开公司发展的。如果有人想最终离职并开始自己的事业，那就是一个外部目标。
+
+这些明确的个性化目标解锁了我们称之为  ** 成长匹配（growth matching）  **
+的机制：将“潜水员”派往那些可能拥有合适机会帮助他们蓬勃发展的客户。我们不再仅仅依赖客户的需求，而是现在可以同时考虑“潜水员”的需求，这大大提高了客户满意度和留存率；毫不奇怪，感受到自身成长的积极“潜水员”更有可能在工作中付出超越期望的努力。
+
+  
+
+个性化的成长目标也伴随着对组建社群的强调。“潜水员”不再是一个单一的 EA+
+团队，而是根据角色组织成小组（pods），由该职能领域的专家担任小组组长（Pod Leader）进行指导。在
+Oceans，我们一直说“没有人独自潜水”，但这需要有相应的结构支持，确保拥有合适专业知识的人能够提供帮助。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRPYKIoNicz5MFbJ84wdUFqJlHK0dsHNSgaybOicoTq5G35dRIF49k8dUkxJLYCuYudgVrCujYpL0Qw/640?wx_fmt=gif&from=appmsg)
+
+** 成长规划（growth planning）  **
+
+”
+
+具体的成长目标与小组组长制的结合，解锁了成长规划（growth
+planning）：每两周，每位“潜水员”都会与他们的组长会面，回顾他们一直在进行的一项成长活动，并为未来两周设定一个新的目标。这确保了成长不仅仅是被动的，而是被积极感受和管理的；通过将其设定为每个人的期望，它在日常工作中得到认可、规划和参考。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRPYKIoNicz5MFbJ84wdUFqJlHK0dsHNSgaybOicoTq5G35dRIF49k8dUkxJLYCuYudgVrCujYpL0Qw/640?wx_fmt=gif&from=appmsg)
+
+** 成长调动（growth transfers）  **
+
+”
+
+有时，这些双周会议会揭示成长受阻的情况：客户工作的性质意味着“潜水员”不再有机会承担对于蓬勃发展至关重要的新挑战。因此，我们最新的计划是成长调动（growth
+transfers）。只要一位“潜水员”在某个客户处工作满两年，表现良好且无绩效问题，他就有资格申请调动到与其最新成长目标相符的新客户那里。但我们只有在首先与其当前客户沟通，确认是否存在内部调动的可能性之后，才会这样做；理想情况下，他们可以在同一个嵌入环境中继续成长。就像成长匹配一样，这也提高了客户满意度；许多客户很乐意帮助其嵌入的“潜水员”发展。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRPYKIoNicz5MFbJ84wdUFqJlHK0dsHNSgaybOicoTq5G35dRIF49k8dUkxJLYCuYudgVrCujYpL0Qw/640?wx_fmt=gif&from=appmsg)
+
+** 双向导师制（bidirectional mentorship）  **
+
+”
+
+我们下一个将在今年秋季推出的计划是双向导师制（bidirectional
+mentorship）。利用成长目标，每位“潜水员”都将有一位导师和一位学员，他们每月会面。因此，一个拥有横向成长目标的市场营销运营专员可能会与一位业务运营专员结对作为导师，帮助他们学习新技能，同时自己又作为导师指导一位拥有纵向成长目标的初级市场营销运营专员。教学与学习都以不同的方式促进成长，并且在系统化管理下更有可能发生。
+
+正如每一个新计划都解锁了下一个计划一样，我相信这个计划也会引向另一个。内部导师制可能会催生一个外部导师计划，帮助识别和支持未来以成长为导向的人才。或者引向我们尚未看到的其他地方。因为正如我们所有人都在成长一样，组织也在成长：关注个体发展支持着我们公司的发展。
+
+  
+
+因为如果这些计划不能创造支持其存在的经济价值，它们都无法存在。小组组长是一项额外成本。成长调动带来了客户流失的可能性。一个强大的导师项目需要组织者。
+
+  
+
+这些计划中的每一个都通过降低员工流失率和提高客户满意度，实现了远超其成本的回报。通过消除意义与金钱之间的竞争，成长通过协调各方利益，为公司、员工和客户创造了丰盛；它是“行善者诸事顺”的终极形式。而在Oceans，这是一个我们将继续坚持的赌注，尤其是当竞争对手使用无成长的剥削手段来压低工资并打成本战时。我们宁愿以更高的薪酬实现更高的绩效——对我们来说，这才是终极的成长战略！
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRPYKIoNicz5MFbJ84wdUFqJ8iabrkbnFv2ibIUnmGFeoJiaLibmiaVicL4jTfTJPgeX0n1ictqziat9xpeLxg/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRPYKIoNicz5MFbJ84wdUFqJlHK0dsHNSgaybOicoTq5G35dRIF49k8dUkxJLYCuYudgVrCujYpL0Qw/640?wx_fmt=gif&from=appmsg)
+
+** Matt Wallaert  **
+
+** BeSci.io（组织行为科学咨询机构）创始人  **
+
+Matt
+Wallaert在过去近20年里，始终致力于将行为科学应用于现实问题的解决。离开学术界后，他的职业生涯横跨初创企业（如Thrive、Churnless）与财富500强企业（如微软、凯捷），最终回归初心创立了BeSci.io（组织行为科学咨询机构）。如今，他与全球经验最丰富的行为科学领袖们携手，帮助企业构建内部应用行为科学的能力体系。
+
+  
+
+目前，他担任Oceans公司首席体验官（CXO），致力于为国际市场创造高质量就业机会，让全球人才无需背井离乡即可实现职业成长。
+
+  
+
+在其著作《以终为始》（Start At The
+End）及其他文稿中，以及从联合国到西南偏南（SXSW）大会的数百场演讲里，Wallaert详细阐述了行为策略、洞察、设计与评估的闭环如何助力打造改变行为的产品与服务。他构建的易用框架适用于从保洁员到CEO的各个岗位，无需博士学位即可将行为科学融入日常工作。
+
+  
+
+Wallaert的副业始终聚焦社会公平：他创办的GetRaised平台已帮助薪资低于市场水平的女性争取到超36亿美元的加薪；其撰写的《平庸白男》（MediocreWhiteMen）等研究报告则以幽默笔触结合科学分析推动社会变革。你总能看到他脚蹬牛仔靴，手势夸张地侃侃而谈。
+
+  
+
+  
+
+** 点击下方文字了解详情  **
+
+  
+
+  
+
+[ 【RST论坛】 | ALL IN 2025人力资源服务展-上海站会场揭秘！ ](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649459996&idx=1&sn=ca2ad6311c830dfa81f12d6ae778e621&scene=21#wechat_redirect)
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRPYKIoNicz5MFbJ84wdUFqJgkwsZTKUnhGUBibRH6YstotmajeccydyMPZtjfOicqbnbkBqSkRxS75w/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRPYKIoNicz5MFbJ84wdUFqJyDxUTeZUb6loQXfrqa6TFOAl4XP0cLoG33QoDibqlqVcmicVXmDzib65A/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TR4ASHcUl0iaYVZlHWttkCUEnNq9v03qIFCwfOq4Lgv4EE8WxDibu9pu7yTkSB5Y1no9mP4ehxOYdRQ/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH87ZDcedLhhpKFMm5bqY0nibp4IiaVtQFave6fp4e9vRWALuSQZGBUYUYA/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## TCL实业扶上马送一程国际化人才培养全攻略
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSAOCRZtt8jgyArPG4icgp6BEXMtrA2EMe9fMOzgE8IZSRhGYeyGSQUYEA72IEu0dsH4061DGyKP1w/0?wx_fmt=jpeg)
+
+#  TCL实业 | “扶上马+送一程”，国际化人才培养全攻略 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月07日 17:26_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：雒建斌 | 时任人力资源数字化与运营总监 | TCL实业 
+
+  
+
+** 导语  **
+
+  
+
+  
+
+TCL是一家起源于惠州的家电制造企业，前身为TTK家庭电器有限公司，最初生产磁带等音频产品。经过40多年发展，已成长为全球化科技企业，在全球拥有13万员工、43个研发中心和30多个制造基地，业务覆盖160多个国家。在公司的经营过程中，逐渐沉淀出了“当责、创新、卓越、变革”的企业文化，使命是“领先科技，和合共生”，愿景是“成为全球领先的智能科技公司，追求为消费者创造价值后的市场地位和商业盈利全面领先”。
+
+  
+
+TCL实业拥有20多年的出海背景，如今已成功走向世界，海外市场贡献了约70%的营收。在这一全球化进程中，海外本地人才建设是TCL实业员工培养的重要部分。2017年，TCL实业正式启动“战鹰”计划，旨在打造一支兼具文化认同与实战能力的国际化销售精英团队，为全球业务拓展提供人才保障。
+
+  
+
+** 01  **
+
+  
+
+** TCL实业人才培养体系  **
+
+  
+
+TCL的人才培养体系基于“一干两翼”框架，核心逻辑源自拉姆·查兰的《高管梯队》理论，聚焦员工在不同职业发展阶段的关键能力提升。
+
+** 上任前（应知应会）  **
+
+在晋升前，培养管理人员应知应会的技能、工具、方法论（如“雏鹰”“飞鹰”“精鹰”项目）。
+
+** 上任后（角色认知）  **
+
+上岗后，基于岗位角色认知开展新任岗位的培训，帮助员工适应新角色，快速胜任。
+
+  
+
+该体系强调“扶上马+送一程”，确保人才在职业跃迁时平稳过渡，支撑企业持续发展。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDE9bjhmd4WtHwI0bx6YqmcOENREL9lpsEq5MbfFgzJhYzsn6Q8Kbfg2icnjUYvDpwWNCW8a0YHsA/640?wx_fmt=png&from=appmsg)
+
+图1 TCL实业人才培养体系“一干两翼”
+
+  
+
+TCL的战略规划每三年根据业务规划和需求进行调整一次。
+
+  
+
+** 01  **
+
+** 海外属地人才培养  **
+
+随着全球化业务扩张，传统基于岗位晋升路径的“应知应会+角色认知”培养模式已无法满足需求，需补充全球化领导力和文化认同专项培养。
+
+  
+
+** 文化共识  **
+：将组织层面对员工的诉求理清并落到学习发展中，它会形成一个内容主干。首先，针对外籍员工设计系统性文化培训，让他们对公司文化认同、接受、有荣誉感，并解决认知偏差。其次通过内部交流建立员工之间和总部之间的链接。然后通过内外部参访行业标杆，扩展行业视野。最后通过高管宣讲促进上下同欲，达成战略共识。
+
+  
+
+** 战略对齐  ** ：通过定位项目战役人员，强化海外分支机构负责人（覆盖核心经理级及以上人群）对集团战略的理解，减少信息传递衰减。
+
+  
+
+** 02  **
+
+** 中方外派人才培养  **
+
+聚焦海外分总、海外财总、供应链、市场、HR等关键岗位，通过标准化的能力评估与训战结合，培养具备全球化胜任力的中方外派人才，打造一批随时出征的预备军。
+
+  
+
+** 03  **
+
+** 底层支撑  **
+
+在人才标准方面，建立健全全球任职资格体系，统一全球任职资格认证管理机制和流程；在发展路径方面，分层分级开发学习地图，建立员工职业发展成长路径，提升员工能力发展效率。此外，还提供了全球讲师、课程、线上平台T学堂的学习资源。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDE9bjhmd4WtHwI0bx6YqmVsKBGc7kcGpfYkmZ1TPZicYx8vkO8jrCrezRSh3MnkeHxQEIKKOHfFg/640?wx_fmt=png&from=appmsg)
+
+图2 TCL实业人才培养体系全景图
+
+  
+
+** 02  **
+
+  
+
+** 差异化培养方式  **
+
+  
+
+** 01  **
+
+** “战鹰”培养项目  **
+
+“战鹰”计划的目标人群为海外各区域的全品类销售负责人（高级经理级），其核心诉求聚焦三点：
+
+♦ 文化感知薄弱：多数外籍员工未到访中国，对TCL的全球化实力缺乏认知。
+
+♦ 战略传导衰减：总部战略在海外分支机构执行中信息失真。
+
+♦ 实战经验断层：国内沉淀的营销方法论未系统传递至海外团队。
+
+** 培训内容  **
+
+文化感知（30%）：通过企业文化、仪式典礼、会务体验提升，以文化落地九步法设计一系列活动。
+
+  
+
+人际学习（20%）：通过内外部标杆作为学习和参考，进行门店、电商参访、团队拓展和跨职能交流，获取最佳实践。
+
+  
+
+技能培训（50%）：提供战略解读、经营沙盘、营销训战、数字化营销、情境领导等培训内容。
+
+  
+
+其中，针对不同人群分班进行课程培训（见下图）。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDE9bjhmd4WtHwI0bx6YqmOdqC1d9XqeKiaPXcaz9CpU8LT4agibR7VLtYruatqpXRoUclreUUyJqw/640?wx_fmt=png&from=appmsg)
+
+图3 培训日程
+
+** 两个项目抓手  **
+
+** ▋建立对TCL的认同以及团队的归属感和荣耀感  **
+
+围绕四个维度建立海外员工的文化认同。
+
+  
+
+** ☞ 团队融合，破冰凝聚  **
+
+例如，组织跨文化乐队创作表演、城市生存闯关任务、管理冰壶活动等，激发外籍员工参与感，强化文化认同。
+
+  
+
+** ☞ 文化培训，价值认同  **
+
+通过培训+任务模式，要求学员完成内部文化传播（至少2次），以输出驱动深度学习，并设立“文化大使”授聘仪式。
+
+  
+
+** ☞ 晚宴典礼，互敬共情  **
+
+安排高管晚宴、结营典礼等非正式交流场景，促进文化渗透。
+
+  
+
+** ☞ 游学参访，品牌认知  **
+
+组织产品体验、TCL博物馆参访、华星光电参访，促进企业文化的认知。
+
+  
+
+** ▋分业务类型的作战手册赋能，助推海外落地转训  **
+
+将业务骨干经验提炼为课件/案例库（如营销、供应链等），形成可复用的知识资产，提升海外业务管理综合能力，完善营销作战标准化要求及动作。
+
+** 项目结果  **
+
+项目通过系统化设计取得了显著成效。在知识传递方面，采用前测-
+后测机制确保学习效果，在战略课程、文化课程、专业课程的测试中，学员平均分数均大幅度提升，有效实现了战略共识与信息拉通。
+
+  
+
+项目设计紧密结合外籍员工特点，运用世界咖啡工作坊等互动形式增强参与感，并巧妙融入中国元素（如包饺子、写书法等）深化文化认知。
+
+  
+
+在运营层面，借鉴市场营销经验进行全流程包装，通过宣传视频、每日打卡文案等创新形式提升项目影响力，甚至引发海外员工主动申请参与后续项目。
+
+** 02  **
+
+** “海外精鹰”培养项目  **
+
+“海外精鹰”项目的项目目标是搭建海外分总/国家经理等战略人才的梯队，开展定制化培养，提升外派关键岗位的人才准备度，从而夯实组织保障能力，助力TCL实业战略目标达成。针对外派至海外分总、国家经理等关键岗位的中方员工，“海外精鹰”项目开展了为期7个月的“集训+影子计划”，加速人才准备。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDE9bjhmd4WtHwI0bx6YqmJte259ICwh2ezCJwz4TCywmTG9FmzicRAibqoLichxEdpYdqbC39HVdvA/640?wx_fmt=gif&from=appmsg)
+
+** 全维度课程  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDE9bjhmd4WtHwI0bx6YqmJte259ICwh2ezCJwz4TCywmTG9FmzicRAibqoLichxEdpYdqbC39HVdvA/640?wx_fmt=gif&from=appmsg)
+
+覆盖经营管理（如《战略制定之道》）、通用能力（如《国际商务礼仪》）、专业能力（如供应链专业能力营）三大类70门课程。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDE9bjhmd4WtHwI0bx6YqmJte259ICwh2ezCJwz4TCywmTG9FmzicRAibqoLichxEdpYdqbC39HVdvA/640?wx_fmt=gif&from=appmsg)
+
+** 业务训战  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDE9bjhmd4WtHwI0bx6YqmJte259ICwh2ezCJwz4TCywmTG9FmzicRAibqoLichxEdpYdqbC39HVdvA/640?wx_fmt=gif&from=appmsg)
+
+通过实战项目萃取案例，组织工厂参访游学，并安排1.5-2个月的影子学习，让学员以助理身份派驻目标岗位，由现任管理者直接指导，深度体验海外真实业务场景。
+
+  
+
+这种训战结合的模式成效显著，63%的参训学员在1.5年内成功外派，极大缓解了海外岗位的人才缺口。
+
+  
+
+考虑到传统集中培训的高成本，采取“一干两翼”的内容主线线上化的方式，TCL同步推进数字化转型，耗时2个月完成海外新员工线上课程体系开发，实现文化培训的标准化和规模化交付。
+
+  
+
+更前瞻的是，TCL正在探索AI智能体应用，通过训练业务骨干的经验模型，让员工可直接与“数字专家”互动解决问题，这将显著提升知识管理效率并降低培训成本。
+
+  
+
+** 结语  **
+
+  
+
+  
+
+TCL实业的国际化人才培养实践表明，成功的全球化不仅需要产品出海，更需人才出海。通过“战鹰”“精鹰”等项目，TCL以文化为纽带、以实战为基石，构建了“选拔-
+培养-任用”的闭环体系。
+
+  
+
+  
+
+注：文章整理于2025年8月  ▋
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDE9bjhmd4WtHwI0bx6YqmF8okLU3THSS36PqNIvibIFPibiaOARIkehqJk0w9tRqDretQFibGkAiapwg/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDE9bjhmd4WtHwI0bx6YqmTDQ74LWwLjHPiarfTlV69HDWb8A5iaqENxwnPa1sicqJxYmU6g8TZPmQA/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TR4ASHcUl0iaYVZlHWttkCUEnNq9v03qIFCwfOq4Lgv4EE8WxDibu9pu7yTkSB5Y1no9mP4ehxOYdRQ/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TS4l5S6s3rWrY9OAJ4dGnrFuTaP92HeFMevtm8X8ibhPDicQ43PO9duo3ia02jQIduu84IrjhzyGZiaAg/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 东软集团人才高地构筑战略启航
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtC2oyR6rxmricltR67icr40hVXa2tF82xPgslfrZkF8rIE3kWKbgNTJKapSB5ib2lkLjvzicBaZB7hYXJItOZ9ZYV3RdjOkksadFo8/0?wx_fmt=jpeg)
+
+#  东软集团 | 人才高地构筑战略启航 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年02月24日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：张悦 | 全球招聘与配置总监 | 东软集团 
+
+  
+
+人才作为创新的第一资源，是企业变革的重要力量，也是推动企业高质量发展的关键支撑。而高端人才更是成为企业战略突围的“引路人”，企业发展的“合伙人”，在人才部署中尤为重要。“人才高地”概念的火热正体现出企业对构建人才供应链、人才发展体系的重视，如何理解人才高地？企业如何构筑人才高地？东软集团的实践或许能为读者带来启发和思考。
+
+  
+
+东软集团成立于1991年，是中国第一家上市的软件公司，客户和业务遍布全球110多个国家和地区。东软是行业领先的全球化信息技术、产品和解决方案公司，是中国软件产业发展的推动者，国家信息基础设施的建设者，国际化软件与服务的先行者和软件商业模式创新的探索者。东软始终洞察时代发展趋势，探索软件技术的创新与应用，赋能全球数万家大中型客户实现信息化、数字化、智能化发展，在智慧城市、医疗健康、数据价值化、智能汽车互联、企业数字化转型、数字服务、国际软件服务等众多领域处于领先地位。
+
+  
+
+近年来，东软集团提出构建人才高地，持续提升人才竞争力和组织力，推动实现集团高质量发展。
+
+  
+
+** 01  **
+
+** 为什么构建人才高地  **
+
+什么是人才高地？“高地”不是一个地理概念，指的是新生态的引力场，包括领域、资源、密度、结构、能力、文化等。“人才高地”是指在特定区域或领域内，通过政策引导、资源集聚、环境优化等措施，形成的人才密度高、人才结构合理、创新能力强、竞争能力强、辐射带动作用显著的人才集聚区域或战略平台。
+
+  
+
+人才高地这一概念的兴起，与企业的实际发展需求密切相关。尽管每个企业的业务属性或所处发展阶段存在差异，但人才高地始终是一个重要的战略要素，会始终围绕企业最核心的愿景、使命和价值观，为企业推进其战略要务、变革成果提供强有效的支撑。
+
+  
+
+尽管企业对高端人才的需求强烈，但人才市场现状和招聘数据并不乐观。从市场现状来看，传统的招聘模式在高端人才招聘上表现出局限性。一方面从数据显示，高端人才自身的“隐形率”非常大（约占70%），企业需要通过自建生态才能招聘到高端人才。招聘数据同样也表明了这一点，企业发出的橄榄枝实际接受率低于40%。另一方面，关键岗位招聘周期长，有的岗位决策评估时间甚至超过了半年。
+
+  
+
+当前，人才链路存在着供需错位、人才画像模糊、复合型人才紧缺等痛点，但由于高端人才的获取成本（包括显性成本和隐形成本）较普通员工更高，风险更大，因此企业在推进高端人才招聘时不得不采取更加谨慎的态度。在此背景下，企业的“人才高地”建设也更具现实挑战性。
+
+  
+
+那么，企业如何实现人才高地构筑？总体上可以分为三步：需求管理——价值评估——人才供应链构建。
+
+  
+
+** 02  **
+
+** 如何面对业务战略发展及挑战下的人才需求管理  **
+
+构建人才高地的第一步也是最重要的一步即需求管理。以下三个问题有助于理清思路：
+
+** 第一， 为什么管？  **
+
+面对老板提出的招聘需求，首先要做的是识别其背后的原因，也就是“为什么招”。有的招聘需求需要在内部解决，外部促进，也有的需求需要外部解决，内部促进。帮老板和业务负责人算清楚招人“这笔帐”，明确“招”和“不招”实质上解决的是客户价值、业务价值、HR价值这三个价值问题。招聘需求要清晰思考后再执行贯彻，需要在需求管理阶段进行充分沟通，实现三个价值的融合。
+
+** 第二， 管理什么？  **
+
+“管什么”的核心是将业务和人力资源二者的需求进行有机结合，有效转换。例如业务的诉求是市场竞争力、盈利能力、人效的提升等，对应的人力资源招聘承载是有效需求按期满足、人才质量、招聘效能等。而关键的链接传输则是对焦精准的人才画像。
+
+** 第三， 怎么管理？  **
+
+首先要前置了解需求的“前世今生”；其次要提前进行双方的预期管理；最后是及时有效的需求跟进。每一个环节看似简单的逻辑方法背后是招聘伙伴真正用心的思考和设计。招聘伙伴需要武装自身，以找到“最对的人”为目标，不断修炼内功。
+
+  
+
+** 03  **
+
+** 如何实现人才高地价值评估  **
+
+厘清需求后，下一步是价值评估。招聘团队通过“  ** 战略解码-业务解耦-职位解构-逐层解析”  ** ** 四维一体  ** ** 的诊断  ** **
+分析  ** 进行人才高地的价值化评估。
+
+  
+
+首先要做的是  ** 战略解码  **
+，锚定方向，把握核心需求。战略解码需要做到内外结合，一方面，要评估内部，深入了解组织的准备度，开展内部研讨，识别关键人才；另一方面，也要做好外部评估，识别最关键的人才缺口、岗位缺口以及能力缺口。
+
+  
+
+战略解码之后，进行  ** 业务解耦  **
+，识别关键要素，包括最小业务单元的绩效、关键角色、关键能力等，从而找到高贡献高价值人员的能力以及有待持续提升的领域。
+
+  
+
+在业务解耦的基础上，进行  ** 职位解构  **
+，建立细化、可度量的标准，不仅包括显性能力还包括高潜能力。有了可度量的标准后，运用工具（报表、数据跟踪）做定量、定性分析，结合不同的激励方式和培养方式，跟进四维一体价值评估，用数据佐证构建人才高地能够带来的价值效果。
+
+  
+
+** 04  **
+
+** 如何构建战略高地人才供应链  **
+
+人才高地的构建不是一次简单的任务，覆盖了从人才吸引、获取、甄选，到培养、考核、激励，再到保留、成长以及价值释放的人才全生命周期。基于此，如何打造人才供应链成为核心要素。招聘团队认为，理念、机制、流程、组织，缺一不可。其中，理念是灵魂，相关机制是骨架，流程为血液，在这些不同网络编织的整体图像中，人才供应链交互才得以实现。
+
+  
+
+招聘团队需要设计标准，明确人才吸引路径，真正融入从人才战略解码到最后的人才价值释放和实现全过程，使之全面落地。过程中，必须坚守两个重要要素：
+
+** 第一是原则  **
+
+不仅指红线原则，还包括与企业人才理念深度融合的牵引性原则。
+
+** 第二是组织  **
+
+招聘不只是招聘团队自己的事，整个人才供应链中的高管、人才、培养、领导力、SSC、法律、行政、财务等等部门都应协同一致。高端人才的招聘以及人才高地的建设需要进行横向和纵向的支撑。因此，对招聘团队来说，一方面要重视团队搭建，另一方面则要下真功夫，夯实自身，进行多维度的积累，真正打通组织中的人才供应链。
+
+  
+
+人才高地不是终点，而是持续进化的起点。人才高地的构筑是一项系统性工程，需要理念的牵引，制度的创新，更离不开技术赋能和生态协同。当下，人力资源招聘领域从业者应保持向外看，不断学习，将人才价值转化为可持续的竞争力，助力企业长期高质量发展，实现业务战略启航。
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAZkddibankt7QG5nglOlzhbOf0q9icFYiaHTRhlBdBUYLLe6gIm0PiazFfHd0VoxJreInDR7tHoMTZXQ1jdaia0eumiadRE0R6TD7ts/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCRh23pjbr2WWt1CA1KHbq9ohia5DjPElicvOddkd5bs7OTibqfqLUrw4XiawDE7ac9hRCico80E8DahwOLibiakfyQsDlpibAor2iaUhibE/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtCSCJN42tu35libgdbJBB9rtBHtbsdicu9I75v7Kbo4YibzORib3oiaW9KoTaw0gc8icwkic0vCM6XUHIybAhPrhc5xUjHruchogafXpA/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAtZK3V3azSrAjJgapCoYZcWCHHCRYDPI9KI5ql3a3ErWxAauxJgIzDLL2WHtMxILdYTIEBZccHcfArOrQfKm9YnP7VwvjvEkc/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 东风汽车人力资源预算管理的敏捷转型
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBB9gfJNHms9wicx7qJuY3icicMYvn9aUl8XicBMQibuj2poarUTMejP8WcHCAkvhhbXULPhtawnlibFwoaB5JBSnvhN5nxAI5zeXmOE/0?wx_fmt=jpeg)
+
+#  东风汽车 | 人力资源预算管理的敏捷转型 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年04月08日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：李彦 | 人力资源部高级专家 | 东风汽车集团有限公司 
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtB1IgYmMnw6Kdu2sb2gwKHtibLyk5ujzmQicDZbibibLmpKMP5ptHPU8V7UkqGCY46w8mAiaomlgicOKdUMHU5MXg3av53gMorVSZEhw/640?wx_fmt=gif&from=appmsg)
+
+** 导语  **
+
+东风汽车是中国汽车行业三家中央企业之一，经营规模稳居行业前列。公司具备完整的产业链布局，业务涵盖商用车、乘用车和军车，并向上游延伸至装备制造、零部件生产、整车制造，向下游覆盖汽车经销、出行服务等领域，实现了全品类、全链条的产业覆盖。
+
+  
+
+2018年汽车行业从高速增长转为负增长，国内汽车市场竞争加剧、企业盈利能力下降，同时传统车企面临新能源汽车蚕食市场份额的威胁。行业形势变化带来了新的竞争态势，要求企业提升包括人工成本在内的整体成本竞争力。作为中国汽车行业的骨干企业，东风汽车率先重构人力资源预算管理体系，将“从分到总”业务需求驱动模式升级为“从总到分”经营效益驱动模式，实现新旧发展动能切换。这一转型不仅深度适配了汽车行业市场与技术的快速演变，也成为国内企业人力资源管理创新的标杆案例。
+
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtDSX6tA8t6nWZ5Qu8JWu8QSAhoyru9mAyttvcWTgtKbzjPoMaqs3Od9qks9bs18YjHkOC6ngb44185UQ07hias7M8lfHyVsEAH8/640?wx_fmt=gif&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtCMJGk9UCV9pggicxwMP2OlWPKAXl598SjdVBFwnzXbdbmCtqI09msu3KibDSS8I0Jx2mDjfgAjRQlzZGt8GYYAibgYYzicdb1bhpk/640?wx_fmt=gif&from=appmsg)
+
+** 人事预算管理体系重构  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/KNlRbic3WUtDWvbiaZ2tFZ49yVl2Rx5F6l5wAJiaQjbONwQ9w1TmEFs2Y5wgL1OWhYibTDZLLniccz4ibmWZrWgia4nZjumUYWXP1Cwb0Dtk19B1uE/640?wx_fmt=gif&from=appmsg)
+
+** 1  **
+
+** 预算方法  **
+
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtBicmicHFphcrvD4jkGITyibER9uuubGqPRB01rrHZHqHr4ZtaWZD0ACQUoH3Vwg8OH2Wn2BPK1xrYyDia2zBlnbl1IQ7rlXteZdl0/640?wx_fmt=gif&from=appmsg)
+
+** 人力预算管理有两个方向——成本导向和资本导向。  **
+成本导向核心强调投入产出平衡，以收定支。优势是财务稳健、成本可控、易量化考核，劣势是抑制人才储备与创新投入，导致核心人才流失。资本导向的核心是在一定时期内通过超前投入来换取长期的人才竞争优势，对于初创企业而言，好处是可以加速核心能力构建、吸引高潜人才，弊端是现金流压力大，易导致资金链断裂，同时管理复杂度高，需配套合理绩效评估机制。
+
+  
+
+** 2  **
+
+** 经济分析“三段论、五步法”  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/KNlRbic3WUtBqVfP3kgic0KulGDEhJ5XRz0925kUq4JcurlVUCHcJKVPSu6b2mJYp6BoZgvuGe8ticzCecezmE0Cst8BRsG50OYrRsJnEKxR30/640?wx_fmt=gif&from=appmsg)
+
+东风汽车运用了经济分析的“三段论、五步法”，提出重新构建人事预算管理体系。
+
+** → 假定前提  ** ** ：  ** 基于业务的人员需求为龙头的“从分到总”人事预算管理方法，是否需要进行调整？第一步  ** 做调查  **
+，市场从增量向存量转变、国资监管变化，薪酬与效益和效率挂钩、企业内部新能源等新兴产业投入持续加大。第二步  ** 讲故事  **
+，内外部环境变化强调产品/成本竞争力和盈利能力，原预算方法是需求导向，是做增量预算，迫切需要提高人工成本的管控能力。
+
+** → 逻辑推理：  ** 基于工效联动的人事预算管理方法，能否适应未来业务发展？第三步  ** 建模型  **
+，确立“增人不增资、减人不减资”原则，使人工成本预算不再简单基于人员需求，而是在内部业务变化时，给予单位一定的存量人员优化空间；工资总额增长基于经营效益增长，员工收入增长基于劳动生产率提升。第四步
+** 做检验  ** ，以2015-2017年历史数据测算，同时满足集团整体管控要求、下属单位业务需求；以十三五规划数据模拟，能支撑人事效率规划提升目标。
+
+** → 得出结论  ** ：基于工效联动的人事预算管理方法，能满足当前和未来一段时期的业务发展需要。第五步  ** 提建议  **
+，从预算方法入手，结合KPI管理、过程管理等，重新构建人事预算管理体系。
+
+因此，将“从分到总”业务需求驱动模式升级为“从总到分”经营效益驱动模式。
+
+  
+
+** 3  **
+
+** 管理原则  **
+
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtAL9nOpIQcUMCNOsnTIn6wQobvtDa6kmQRmR3KQzjAAhia4icC8TGzk88zXC9O9scOoeyJLXsqf5sDqFmpj1GPtkFwibATM3dzOf4/640?wx_fmt=gif&from=appmsg)
+
+新体系的核心可概括为“两匹配、两优化、两提升”。
+
+  
+
+** ◎ 两匹配  ** ：工资总额增长与经营效益匹配，员工收入增长与劳动生产率匹配；
+
+** ◎ 两优化  ** ：全员劳动生产率持续优化，人工成本利润率持续提升；
+
+** ◎ 两提升  ** ：人均工资与人工成本利润率的行业对标水平提升，员工满意度提升。
+
+  
+
+** 4  **
+
+** 具体案例  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/KNlRbic3WUtDJejTbDoYPNhP6T1c9OZJknfpWsUlvNflic7TY32bR9AmFfcVcT6R8B08M8Tkt1Ykic4baHQptWIbIs2wypTicNfwZaKvuoppUI8/640?wx_fmt=gif&from=appmsg)
+
+** 案例一：工效联动  **
+
+以前的预算方式是“从分到总”业务驱动型，每年做增量预算，很少有单位做减量预算，这导致公司面临“大而不强”的管理挑战。尽管规模持续扩张，但人事效率提升的要求难以落地，由业务需求决定人员需求，由经营效益决定人均工资，传统预算管理模式已无法适应高质量发展的需要。
+
+  
+
+2018年，预算方式调整为“从总到分”工效联动型，最终的目标是控制工资总额，提升人均工资。经营效率决定了第二年的工资总额的增长幅度，将工资总额视为一个天平，一端是用工规模，另一端是人均工资。工资总额由经营效益决定，单位要在总额内自主平衡用工人数与薪酬水平，从而推动组织主动优化人效。
+
+  
+
+针对研发、自主品牌等中长期投入，设立跨周期管理机制。相关工资总额经核定后可不纳入年度工效联动，但视为集团对单位的人力资本投资，未来需通过项目收益回收，形成成熟业务反哺新兴业务的良性循环。
+
+  
+
+** 案例二：KPI管理  **
+
+传统KPI管理存在“本位倾向”，预算与KPI“两张皮”情况突出：①KPI指标与企业经营规模相关（如人均销售收入），强调做大、做优、做强，经营质量重要性不高；②KPI设置缺乏规则，依赖谈判博弈；③KPI评价唯结果论，对于预实偏差较大的单位，其过程中的的改进和阶段性成果难以被看见，因缺乏过程管理，易出现“一年跌倒，三年吃饱”的情况。
+
+  
+
+新体系强调“自我驱动”，鼓励单位挑战更高目标：①KPI指标转向利润、经济增加值等质量维度，强调做优、做强、做大；②KPI设置遵循“两个层次、两个维度”，即预算达成情况与效率提升水平、纵向自我比较与横向行业对标；③KPI评价结合过程与结果，充分考虑业务实际，鼓励挑战高目标。
+
+  
+
+** 5  **
+
+** 实施效果  **
+
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtByPswtyES7Sf2caPrE7JhicZQG57LaUEB9G9Os8blXsX00ic8tu0mrWjWFygicFgkvsgTQaqL5fVWaNqpcpib93ibibvCibNWOgfdicdk/640?wx_fmt=gif&from=appmsg)
+
+自2018年实施新体系以来，东风汽车实现了显著的管理成效：
+
+一降：工资总额高速增长态势得到遏制，三年累计少增约50亿元；
+
+一升：人工成本利润率自2019年起反超行业平均水平，竞争力稳步提升。
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/KNlRbic3WUtDJAVtYHFG7BF4JicCK3UXRPuiaImnOIWBvvILdqPicypGqglNkicQfC32DWQsHNibMYwIYPvd7NP1nJ16auJ5IBOOYD92wgJjZPSpI/640?wx_fmt=gif&from=appmsg)
+
+** 下属单位实践  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/KNlRbic3WUtA8mMJygQFEyEQm3ASgUCjicMVaX6xCneqEjjpbURqY5QOzoYLR2SjicIVbYand0Qxm7P4PeoFF6EP2oZcIHgHibnDUII0q4UMC9Y/640?wx_fmt=gif&from=appmsg)
+
+** 经营单位：预实差异的闭环管控  **
+
+某单位2022年经营未达预期，集团要求其控制成本、保持盈利。项目组和该单位共同构建了“六步管控路径”。
+
+  
+
+♦  调整预算边界：重新评估研发、营销、制造、职能等板块的投入；
+
+♦  提升组织效率：精简组织机构、退出低效负责人；
+
+♦  提升劳动生产率：优化营销网点人员配置、提升工厂产能利用率和其他业务部门工作饱和度；
+
+♦  优化人员调配：通过应届生顶岗、网点重组、共享员工等方式调剂内部需求；
+
+♦  薪酬管控策略：调节人员结构、绩效工资、年终奖、销量提成与加班费用；
+
+♦  用足政策工具：援企稳岗、社保降费、津贴返还等政策支持。
+
+** 研发单位：“挣工资”机制激发活力  **
+
+2021年，某研发中心被要求从成本中心向类利润中心转型，主动开拓内外部项目。项目组协助其设计“挣工资”模式，解决钱从哪来、分配给谁、怎么分配的问题。
+
+  
+
+** → 钱从哪来  ** ：该单位的收入来源主要是研发收入、集团科研项目拨款、内部开发和外部开发费用，因此基于不同业务线带来的研发收入核定相应的工资总额。
+
+  
+
+** → 怎么分配  **
+：总额分为“基本薪酬”（与当期研发收入挂钩）和“中长期激励”（与车型研发项目或专项技术研发的项目成果挂钩的中长期激励，根据车型研发上市后的市场表现做增量激励，还与技术转化收益挂钩），核心从超额利润分享和科技成果转化两方面实现让研发单位从“等拨款”转向“挣工资，主动“找活干”。
+
+  
+
+实施后，该单位承接的项目数量与员工工作饱和度显著提升，并积极对接外部企业，实现研发能力的外部输出。
+
+** 转型单位：中长期激励引导人才转移  **
+
+某检测中心从传统燃油车检测向新能源和智能驾驶检测转型。为引导人员向新业务流动，项目组引入科技型企业岗位分红激励。
+
+** 激励来源  **
+
+采用“存量+增量、增量为主”的提取方式，重点从利润增量中分配，绑定业务增长；
+
+** 对象倾斜  **
+
+提高新能源、智能驾驶部门的岗位权重，确保其激励力度不低于传统业务；
+
+** 分配一致  **
+
+依据部门、岗位、个人价值进行递进式分配，确保激励导向与战略一致。
+
+2019-2021年，该中心利润累计增长32%，检测质量连续三年位列行业第一，多名员工成长为业务骨干，实现了业务发展、质量提升与人才发展的多赢。
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtBP4WGkzCHuibTvbg759NuqNrDmCd9Qlk6I0QqzHywPXPbtNox4BbBicoPpImG07L9ZHic49t4vaKkdhHuWLZFBnWaqCARUKTUjEg/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtB76ZvRlRMWu3ry9oxVqMmnCicYUq3v2eOR9wGWEAEqdBmfxnibj9ia53mZ2ibkeSMN7SMR2ricfYMpJD6XD6SGGTXUEbv3ww5zF7pI/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtBNSMvn5wLibicyvA7tqfQYCX9ANniaejhGtaGp7tAQsc6SbvzWFQ1picA7mJ13loD4n2dm3XG7YA9iaqt9YftR1HxVOnyiardicibPibhs/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAHIZOIibiateIaE2tJm6toppSjwSpn72ofMibdTtdPDwhichxmb2INVRvDLFydrTIU8fRRkaDTvA6evVpBdQBwBKqiarnFdSkeXT2I/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 亚信科技人才吸引与数据管理实践
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRFcmBvKcd3emgLBO8KP5adMlF6BaS17bD5wrgoAEgnfwaPSdTL47T20FqOr2PvBibFD0L4OAagVzw/0?wx_fmt=jpeg)
+
+#  亚信科技 | 人才吸引与数据管理实践 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月29日 17:27_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：仲小玲 | 时任人力资源中心招聘部总监 | 亚信科技控股有限公司 
+
+  
+
+** 01  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaHYRV3lmCJYewwg8LRUr9Bev0XuAvpQsLuoqiao4ef3jJrsiagl0cRWdw/640?wx_fmt=png&from=appmsg)
+
+** 新业务发展带来的变化  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiajTicTAKocPYGpr4pw7iaKHjiaFEH0FxpnibfN1eICaBSibvRp50xhAficV8Q/640?wx_fmt=png&from=appmsg)
+
+** ▋  公司简介与业务变化  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaqUU7W9I1jOYcGhxmib3RDDPjchBaLLbDDPQicrIsxIQWWcBCiaUrFtxvQ/640?wx_fmt=png&from=appmsg)
+
+** 公司简介  **** **
+
+亚信科技控股有限公司始于1993年，是领先的信息技术产品及服务提供商，也是领先的数智化全栈能力提供商。亚信科技综合运用咨询规划、产品研发、实施交付、系统集成、数据运营、智能决策、客户服务等数智化全栈能力，为百行千业提供端到端、全链路数智化服务。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaqUU7W9I1jOYcGhxmib3RDDPjchBaLLbDDPQicrIsxIQWWcBCiaUrFtxvQ/640?wx_fmt=png&from=appmsg)
+
+** 业务调整  **
+
+近年来，亚信科技持续向垂直行业数字化市场推进，通过不断优化“标准产品+解决方案”的发展模式，并加大对能源、交通、政务等关键领域的拓展力度。截至2024年底，亚信科技5G专网业务已累计交付核心网50套，基站超2.1万台。公司通过提供定制化的5G专网产品和行业解决方案，打造差异化竞争优势，力争成为行业领军企业。
+
+另外，亚信科技在大模型交付业务领域起步早、落地快。2024年上半年，亚信科技发布了“渊思”行业大模型产品系列。并与国内头部云计算和大模型厂商建立长期战略合作关系。公司通过200余个项目积累，打造了具备核心竞争力的交付工具集合，并拥有经验丰富的专业团队，形成“一套方法论+一组工具集+一支专业团队”的亚信科技特色大模型交付体系，致力于成为国内大模型交付的头部企业。
+
+  
+
+** ▋  招聘团队能力变化  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaqUU7W9I1jOYcGhxmib3RDDPjchBaLLbDDPQicrIsxIQWWcBCiaUrFtxvQ/640?wx_fmt=png&from=appmsg)
+
+** 对招聘人员定向挖掘能力的要求  **
+
+在新业务筹备、组建与快速发展阶段，原有的人才储备难以完全满足需求。主要是因为：
+
+  
+
+♦ 公司对新行业的人才资源储备匮乏；
+
+♦ 用人部门对新业务需求尚处于摸索阶段，招聘团队需与其紧密配合探索合适的人才画像；
+
+♦ 关键岗位对新业务领域的专家及行业领军人才的需求迫切。
+
+  
+
+这样的背景决定了招聘团队需要具备更强的人才获取能力，以引领新业务与新技术的快速发展。于是，亚信科技将定向挖掘能力作为今年对招聘团队能力要求的核心。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaqUU7W9I1jOYcGhxmib3RDDPjchBaLLbDDPQicrIsxIQWWcBCiaUrFtxvQ/640?wx_fmt=png&from=appmsg)
+
+** 公司赋能举措  **
+
+** 内部学习与团队建设  **
+
+** ✔ 多元化知识获取  **
+
+亚信科技招聘团队通过以下几个方面对内部学习资源进行了整合：
+
+♦ 深入开展内部案例分析，汲取过往成功与失败经验教训；
+
+♦ 积极邀请行业外招聘同行专家共同交流，带来不同视角与先进理念；
+
+♦ 全面研究行业报告，洞察行业趋势与人才动态；
+
+♦ 加强与招聘供应商的紧密合作与沟通，获取外部专业支持与市场信息。
+
+  
+
+** ✔ 跨部门协同学习  **
+
+对内部学习而言，招聘部门与业务部门（或技术部门）的资源协同也是必不可少的，例如：
+
+  
+
+♦ 与业务部门及技术部门建立高频沟通机制，对关键岗位定期复盘；
+
+♦
+借助公司的内部培训平台，参与新业务技术研究、内部分享及产品认证培训，深入了解业务知识与技术要求，与用人部门在人才招聘目标上达成高度共识，提高招聘工作的针对性与有效性。
+
+  
+
+** 外部交流与经验积累  **
+
+招聘团队将  ** 与候选人的每一次沟通交流  **
+都视为重要学习机会。通过与候选人深入互动，能够逐步梳理出专业知识体系与行业关键要点，不仅提升了自身专业素养，还为后续招聘工作积累了宝贵的经验与行业洞察，能够更精准地筛选与定位符合新业务需求的人才。
+
+  
+
+** ▋  人才吸引策略变化：多维度协同发力  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaqUU7W9I1jOYcGhxmib3RDDPjchBaLLbDDPQicrIsxIQWWcBCiaUrFtxvQ/640?wx_fmt=png&from=appmsg)
+
+** 以业务战略为中心的局部吸引  **
+
+梳理“卖点”，让信息有效传递。
+
+  
+
+在新业务人才吸引初期，亚信科技提倡，使招聘团队与业务部门联合总结“卖点”，以卖点的形式将业务优势、战略规划传达给候选人。用人部门对业务规划清晰，所以，双方协作提炼吸引候选人的核心要点，能够从业务详情到自身优势，精准传递价值。
+
+  
+
+需要注意的是，在这个阶段，注重传递公司战略方向、新业务内容及技术能力等关键信息，而非仅仅依赖薪酬竞争力。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaqUU7W9I1jOYcGhxmib3RDDPjchBaLLbDDPQicrIsxIQWWcBCiaUrFtxvQ/640?wx_fmt=png&from=appmsg)
+
+** 以公司为中心的整体吸引  **
+
+在新媒体平台塑造并更新公司对外形象。
+
+  
+
+在公司层面，招聘团队需要与品牌部协同，借助雇主品牌及各类人力、招聘会议与研讨活动，多维度塑造并推广公司新形象。并且，由招聘团队提供主要的岗位介绍素材，用新媒体上的曝光增强人才吸引力。
+
+** 02  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaHYRV3lmCJYewwg8LRUr9Bev0XuAvpQsLuoqiao4ef3jJrsiagl0cRWdw/640?wx_fmt=png&from=appmsg)
+
+** 新媒体矩阵招聘：多元平台精准运营  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiajTicTAKocPYGpr4pw7iaKHjiaFEH0FxpnibfN1eICaBSibvRp50xhAficV8Q/640?wx_fmt=png&from=appmsg)
+
+亚信科技作为典型的ToB企业，其业务形态具有较高的专业性与复杂性。与面向消费者的ToC企业不同，其产品和解决方案并非直观可见，对于行业外的候选人或应届毕业生而言，理解难度较大。这使得在人才吸引与传播过程中，难以快速有效地向目标群体传递企业价值与业务内容。对此，亚信科技进行了一系列对多元化平台的探索。
+
+** 01  **
+
+** 微信公众号  **
+
+▋  ** 平台定位：综合服务与便捷转化  **
+
+亚信科技的招聘公众号依托多年候选人积累及校招新鲜血液注入，粉丝群体基础良好。账号内容会根据校园招聘与社会招聘等不同的场景进行针对性运营。
+
+  
+
+** 校招  **
+
+除招聘与雇主品牌信息外，校招季还会发布就业指导相关内容，分享如何拿到心仪的offer、如何规划自己的职业。另外，会录制内部实习生与应届生就职体验，用真实感受视频加深同学们对亚信科技工作环境的了解。
+
+  
+
+** 社招  **
+
+定期发布核心关键及急招岗位信息，吸引并粘合求职群体。同时，兼顾转载公司重大新闻、荣誉奖项及行业动态，促进多公众号协同引流。微信配合教育部项目引流。
+
+  
+
+** ▋ 转化路径  **
+
+在公众号的投递功能上，设置了便捷的简历投递及内推入口。简历投递入口端口浅，且投递便捷，只需要填写关键信息，甚至支持无简历内部推荐。
+
+  
+
+实际上，这样的设置致力于将操作流程极致简化，例如，当同事或候选人想要进行内推或投递时，无需像以往那样在手机文件中费力查找简历，或是在微信中繁琐地下载简历，更不必因这些操作而退出公众号界面，从而避免了流程中断所带来的不便与困扰。同时，信息填写页面也历经持续优化，不断精简步骤、简化内容，使用户能够更加高效、便捷地完成信息录入。
+
+  
+
+** ▋ 公众号矩阵  **
+
+** ☞ 三大公众号粉丝画像与引流方式总结  **
+
+  
+
+除了招聘公众号之外，亚信科技另设有公司官方公众号与企业文化公众号，三大公众号形成广覆盖的矩阵式定位：
+
+  
+
+** 公司官方公众号  **
+
+从更宏观的行业与企业层面出发，展示公司的综合实力、业务布局、重大新闻、荣誉奖项等信息，塑造公司的整体品牌形象，加强与各利益相关方的联系与沟通。粉丝人群为：
+
+◆ 内部员工，官方公众号是其获取公司整体信息、了解公司战略与业务发展动态的重要渠道
+
+◆ 公司的合作伙伴、客户群体
+
+◆ 行业内专家，或关注行业发展的人群
+
+** 招聘公众号  **
+
+面向外部，是对外展示招聘信息、雇主品牌形象的重要窗口。粉丝人群为：
+
+  
+
+◆ 关注行业动态的人群、长期跟进或潜在的候选人
+
+◆ 大量校招活动中产生的学生粉丝群体
+
+◆ 同行招聘从业者以及供应商合作伙伴
+
+  
+
+** 企业文化公众号  **
+
+专注于内部文化建设与传播，通过分享公司内部的文化活动、员工故事、价值观践行案例等内容，增强员工对企业文化的认同感与归属感。同时也为已离职员工保留一份对公司文化的记忆与情感纽带，促进企业文化的延续与传承。
+
+  
+
+◆ 粉丝人群主要是内部员工，包括在职员工以及已经离职的亚信员工，是凝聚员工情感、传承企业文化的核心平台。
+
+  
+
+** ☞ 发挥公众号矩阵的协同效应  **
+
+亚信科技的三大公众号虽各有侧重，但并不是完全各自为政，在重点项目与年初规划时会协同合作，相互之间进行引流，以实现资源整合与信息共享。亚信科技的三大公众号之间的引流方式主要有以下几种：
+
+  
+
+** 内容共享  **
+
+三个公众号会共享一些优质的内容资源。例如，公司公众号和企业文化公众号会选取招聘公众号中关于公司人才招聘、吸引等方面的内容进行发布。
+
+  
+
+** 互相提及引导  **
+
+在各自的公众号推文中，会适时地提及其他两个公众号，并引导读者关注。比如招聘公众号在发布校招信息时，会提及公司公众号上有关于公司整体业务发展和战略规划的详细介绍，鼓励校招的学生粉丝群体关注公司公众号以深入了解公司全貌，为未来的职业发展提供更广阔的视角。
+
+  
+
+** 主题活动合作  **
+
+共同策划和举办一些主题活动，如公司的周年庆活动、大型的行业研讨会等。在活动筹备和宣传阶段，三个公众号协同发力，从不同角度进行推广。
+
+  
+
+** 排期规划与整体布局  **
+
+在年初规划或重要项目推进时，对三个公众号的发布排期进行整体规划和布局。如在公司的招聘季，合理安排招聘公众号、公司公众号和企业文化公众号的发布时间和内容主题，形成有序的传播矩阵：
+
+  
+
+◆ 公司公众号先发布公司整体的招聘计划和岗位需求，吸引广泛关注；
+
+◆ 招聘公众号接着详细介绍各个岗位的职责、要求和福利待遇，引导候选人投递简历；
+
+◆ 企业文化公众号则在此时推出一系列关于公司文化、员工福利、团队氛围等方面的内容，提高候选人对公司的认同感和加入意愿。
+
+  
+
+** 02  **
+
+** 微博  **
+
+▋  ** 平台定位：信息同步与活动拓展  **
+
+微博主要承担信息转载功能，同步公司新闻、行业动态及每周招聘信息，作为雇主品牌与招聘宣传的补充出口。校招季时，邀请校招大咖参与活动提升影响力，为招聘活动拓展声量与关注度。
+
+▋  ** 转化路径  **
+
+简历收取方面，遵循平台规则，在内容后面留取统一邮箱，或合规情况下的微信投递窗口或链接。
+
+  
+
+** 03  **
+
+** B站  **
+
+▋  ** 平台定位：针对校园招聘的内容输出与口碑营造  **
+
+B站专注在校园招聘场景，致力于内容输出，如校招宣传片、实习生工作生活体验分享等视频内容。不直接放置招聘信息，有的内容结尾处会提供招聘官网链接或邮箱，引导感兴趣的候选人进一步了解并投递简历。
+
+  
+
+** B端企业新思路  **
+
+◆ “求职决策链终端”的口碑营销关键阵地
+
+◆ 不必过度追求短期流量的爆发式增长
+
+◆ 重视真实、客观的用户反馈以及普通素人所发布的帖子
+
+然而，值得注意的是，与消费品公司不同，作为To
+B的企业，在平台上用爆文思维来吸粉是更加有难度的。相较之下，亚信科技更适宜采取另一种策略，即在B站等深受年轻群体喜爱的平台上，将其定位为“求职决策链终端”的口碑营销关键阵地。在这些平台上，不必过度追求短期流量的爆发式增长，而是要重视真实、客观的用户反馈以及普通素人所发布的帖子。这些来自于真实用户的声音，虽然可能不会像爆文那样瞬间吸引海量关注，但却能够在潜移默化中影响潜在求职者或合作伙伴的决策过程。它们犹如涓涓细流，汇聚成河，逐渐塑造起企业在受众心中可靠、专业且值得信赖的形象，为企业在长期的市场竞争中奠定坚实的口碑基础。
+
+  
+
+** 04  **
+
+** 跨部门协作  **
+
+▋  ** 日常发布，构建高效流程  **
+
+日常的信息转载及发布工作构成了公司信息传播的常态化事务。针对此类工作，可以构建一套行之有效的跨部门协作流程，每个部门均安排专门的工作人员承担起沟通与规划的职责。
+
+▋  ** 重点项目，组建项目小组  **
+
+当面临公司级别的重点项目时，需要展现出高度的组织协同性与资源整合能力。以公司的ESG报告编制与发布项目为例，在重点项目启动之际，公司会迅速组建跨部门的项目团队。团队成员来自不同的专业部门，他们凭借各自的专业优势与丰富经验，在项目执行过程中紧密协作，确保项目能够按照预定计划有序推进。
+
+** 03  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaHYRV3lmCJYewwg8LRUr9Bev0XuAvpQsLuoqiao4ef3jJrsiagl0cRWdw/640?wx_fmt=png&from=appmsg)
+
+** 人才库建设与管理：动态分类与优化  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiajTicTAKocPYGpr4pw7iaKHjiaFEH0FxpnibfN1eICaBSibvRp50xhAficV8Q/640?wx_fmt=png&from=appmsg)
+
+** 简历整合  **
+
+各渠道接收的简历，通过内部RPA工具高效归集，确保简历高效整合与管理。
+
+  
+
+** 标签分类与应用  **
+
+人才库标签分类采用自动与手动相结合方式。
+
+** 自动数据归类  **
+
+自动数据归类聚焦基础数据梳理，如教育经历、是否来自目标公司、专业技能与认证证书等信息，入库时自动解析录入，员工入职后若有新信息补充，可通过后台员工档案系统修订完善。
+
+** 手动数据归类  **
+
+手动数据归类则依据业务需求，针对招聘人才库进行行业、岗位分类，对于有定制化人才储备需求的事业部，可建立项目分类，便于精准搜索与人才定位。
+
+  
+
+注：文章整理于2025年1月  ▋
+
+来源：  智享会《企业人才吸引与获取研究报告》
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiafAEPwMZPpkng313WhYtj8vqIdbeDnjL5y9KA0Ht5BHG2PfQIx0eIUQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiageGEYEWJlesI5bc6Slu8K2j4VR5ykInZFL5xia0sJwhmYR6ibJcuzFkg/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaSbfvE9zb2qVcKfFmV32odibrH48Z2vmard8WZiceLxDqD1ibqJs0EOl4w/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRFcmBvKcd3emgLBO8KP5adw84ApGAdJK6TR6Qou6KIELDAicCiaXS8UFvgK1oEtnCHAz9ib7xSghXBg/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 企业社保公积金管理数字化进程加快您的企业跟上步伐了吗
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMUviciaibhGEnOpsTfvCqWYFfNIxMPqtwaD3g42OCQjvpQm8KeHWplrR4g/0?wx_fmt=jpeg)
+
+#  企业社保公积金管理数字化进程加快，您的企业跟上步伐了吗？
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年11月10日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+  
+
+  
+
+最新发布的《中国企业社保白皮书2024》显示，  ** 跨地域用工已成为企业常态  **
+，51.7%的受访企业跨省经营，超千人规模企业中跨地域雇佣比例达21.5%。面对分散在各地的员工，社保公积金的属地化政策差异让企业合规管理难度陡增。
+
+  
+
+●  ** 数字化管理已成主流，但企业水平参差不齐  **
+
+调研发现，  ** 73%的企业已使用协同平台作为人力资源数字化底座  **
+，40.6%的企业采购或自研了专业系统。然而，数字化程度分化明显：约三成企业仍以人工操作为主，而部分领先企业已进入“AI智能体”驱动阶段，实现自动算薪、风险预警和智能咨询。
+
+  
+
+** ● 合规压力与成本优化成核心挑战  **
+
+** 基数合规性仍是普遍痛点  **
+，仅28.4%的企业实现完全合规。政策更新频繁（如2025年长期护理险全国推广、公积金异地贷款全覆盖）进一步加剧了合规难度。同时，企业需在合规与成本间寻求平衡——数字化工具可通过动态政策引擎帮助企业合理优化支出，部分系统甚至可降低4.2%-7.8%的用工成本。
+
+  
+
+** ● 员工体验成数字化新焦点  **
+
+** 81.8%的企业对线上经办服务表示满意  **
+，政策查询、电子工资单、线上申诉等功能成为员工自助服务的标配。但部分企业仍面临系统操作复杂、员工使用意愿低等问题，简化流程与提升界面友好性成为优化重点。
+
+  
+
+** ● 未来路径：从“流程自动化”到“决策智能化”  **
+
+领先企业已开始探索AI深度应用，例如云生集团推出的“社保医保公积金智能体”能以极低成本处理跨城市业务，并提供预测性合规建议。未来，打通数据孤岛、构建全国政策知识库、引入智能风控系统将是企业提升管理效能的关键方向。
+
+  
+
+** 数字化转型已不是“选择题”  ** ** ，而是“必答题”。  ** 您的企业处于哪个阶段？欢迎参与本次调研，共同探索社保公积金管理的优化路径！
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_svg/ciaIftfPzwlqgg8JmYt9iclHaVOKxN4Knc8HsN3mXPS9aUUGJBfN82puEIg1Xicr4wKWTKjb24AKCnJAla5tSJkqfEWhgKqY6Tg/640?wx_fmt=svg&from=appmsg)
+
+** 参调福利  **
+
+![](https://mmbiz.qpic.cn/mmbiz_svg/ciaIftfPzwlqgg8JmYt9iclHaVOKxN4KncFd7p26LpmWfYwIVxvBGEvFmKeMTsC7J0DZkknT29nSbWQ8SvS1v9zaDfvkeGxbTB/640?wx_fmt=svg&from=appmsg)
+
+  
+
+填写完成，即可通过百度网盘免费下载两份相关的电子调研报告：
+
+◇  ** 《AI in Recruiting-解锁智能招聘实践指南》  **
+
+◇  ** 《智慧人力，引领未来--2024生成式AI赋能人力资源管理研究报告》  **
+
+（获取方式：提交问卷后，跳转链接中）
+
+  
+
+填写完整的参调者，将在本届报告完成后，获得全新的  ** 《企业数字化转型驱动下的社保公积金管理：合规、体验、智能的协同演进》  ** 电子版报告一份。
+（获取方式：报告完成后，发送到您调研问卷个人信息所留的邮箱地址中）
+
+  
+
+  
+
+** 想要洞悉更多市场现状？我们需要您的参与！快点击“阅读原文”参调吧  **
+
+** ↓↓↓  **
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+---
+
+## 会员尊享红宝书20252026HR年度采购指南暨智享会人力资源供应商价值大奖分类榜单
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSjsZHdME4DKL6iazCbGOl8IDHfbOgq3oSGJib7BEuHnp9kKF8wDNQYoVuU2LPlibb6uMAyt0gmZBlrA/0?wx_fmt=jpeg)
+
+#  会员尊享红宝书 | 2025-2026HR年度采购指南暨智享会人力资源供应商价值大奖分类榜单 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月27日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSjsZHdME4DKL6iazCbGOl8IfBO7oAaZkxCKKrbFXYNsSKuGcWct81IsQicG2LROB4ViaeAELJTL9ENA/640?wx_fmt=png&from=appmsg)
+
+  
+
+亲爱的会员朋友们，专属特权已就位！
+
+2025-2026《HR年度采购指南暨智享会人力资源供应商价值大奖分类榜单》—— 被大家亲切称为  ** “红宝书”  **
+的珍贵指南，今日闪亮登场！即日起，  ** 会员可免费申领纸质版  ** ，请您完成快递地址登记，我们将第一时间为您寄送。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSjsZHdME4DKL6iazCbGOl8IIRKwWB09qvDDeEGsJLholJNReAGNG8VEc1OCYBk0DdtoleDRsGibBFA/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+“红宝书”再次回归，承载着2025-2026最新上榜的人力资源供应商，与HR老友们重逢。希望能为有需求的企业通过“红宝书”找到匹配度更高的人力资源服务供应商，完成“双向奔赴”
+
+  
+
+相关调查表明，目前中国经济仍在筑底阶段，在总体预算不增加甚至削减的情况下，企业将更重视预算有效性、交付的质量和员工的体验。在这种情况下，HR在采购需求上通常陷入
+** “选择难”“沟通难”“实施难”  ** 的困境。  
+
+  
+
+因此，想要应对市场上人力资源供应商良莠不齐的现实情况，快速识别最合适的合作伙伴，拥有一套权威、便捷、全面的采购指南的需求就更加迫切。
+
+  
+
+智享会以帮助人力资源从业者找到最匹配的人力资源供应商为初心，推出了  ** 《HR年度采购指南暨智享会  人力资源供应商价值大奖分类榜单》（简称“TPG
+红宝书”）  ** 。自2022年首册问世以来，“红宝书”便广受好评，很多HR都通过“红宝书”轻松找到了适合自己企业的供应商并快速达成合作。
+
+  
+
+红宝书的  ** 价值  ** 在于，借助智享会公开公平公正的奖项评选结果，迅速锁定符合要求的供应商，快速建立与人力资源供应商的联系，为采购的  **
+速度、效率和质量  ** 按下  ** 快捷键  ** ** 。  **
+
+  
+
+红宝书共计  ** ** 216  ** ** 页  ** ，  ** 兼具了以下四大属性  ** ：  **
+
+  
+
+** 01  **
+
+** 客观透明  **
+
+  
+
+本书凝结  ** “2025-2026人力资源供应商价值大奖”  ** 榜单的所有获奖企业，评选秉承一贯的“  ** 公平、公正、公开  ** ”原则，以“
+** 汇聚优秀供应商，推广优质服务，引领人力资源行业发展  ** ”为目标，甄选出每个细分领域内的上榜企业，评选全程不收取任何费用。
+
+  
+
+** 02  **
+
+** 赏心悦目  ** ****
+
+  
+
+全书以“智享会红”为主色，设计精美，简约大气时尚。
+
+  
+
+** 03  **
+
+** 方便实用  ** ****
+
+  
+
+红宝书在反复研究甲方企业HR采购习惯与需求的基础上，通过专业问卷的设置，调查了HR对于人力资源服务供应商  ** 品牌知名度  ** 及  ** 用户推荐度
+** 。针对每一家上榜企业，我们汇总了  ** 公司简称、公司全称、公司英文名、公司简介、LOGO、官网、公众号  ** ，便于快速了解企业的概览。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSjsZHdME4DKL6iazCbGOl8IBTiaVKsZd5VCxsu43CkMRwwib3NZCBW1j5JCz2eibmumnbiaxJJibV7e6sA/640?wx_fmt=jpeg&from=appmsg)
+
+** 公司详情页  **
+
+  
+
+** 04  **
+
+** 检索便捷  ** ****
+
+  
+
+为了契合读者的阅读和使用需求，我们设置了  ** 两种检索方式  ** 。除了  ** 按照公司中文简称拼音首字母排序  ** ，我们还将榜单  **
+按照服务类别和场景  ** ，分为“  ** 学习发展、薪酬福利、人力资源技术  ** ** 和  ** ** 招聘任用  ** ”  ** 4  **
+大类及  ** 37  ** 个小类，方便快速检索到您感兴趣的企业。
+
+  
+
+** 学习发展  **
+
+领导力发展HR臻选服务机构、销售培训HR臻选服务机构、在线和移动学习技术和平台HR臻选供应商等9个类别
+
+** 薪酬福利  ** ****
+
+EAP HR臻选服务机构、健康保险HR臻选供应商、体检与健康管理HR臻选供应商等8个类别
+
+** 人力资源技术  **
+
+人工智能技术应用-学习与发展HR臻选供应商、人工智能技术应用-招聘与任用HR臻选供应商、HCM系统-本地部署HR臻选供应商、HCM系统-
+云服务HR臻选供应商等8个类别
+
+** 招聘任用  **
+
+招聘测评解决方案HR臻选供应商、招聘流程外包HR臻选服务机构、灵活用工-制造业蓝领岗位HR臻选服务机构等12个类别
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSjsZHdME4DKL6iazCbGOl8IpYcZ5ZyjGUlUdhcEYp5hkzMRqnoGGQnwKX1GlEJMz11ePibxFYQiaynw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSjsZHdME4DKL6iazCbGOl8ICaZXPJNodMyVMfNzUABX67t0lZFU6KelhCcn4CFKGLLHodabvyjTkg/640?wx_fmt=jpeg&from=appmsg)
+
+** 按照公司中文简称拼音首字母排序检索  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSjsZHdME4DKL6iazCbGOl8IgribELh7cK8oJooAloCTdjPcTvOV4oLMcGTTAicZdtO4yGrlys1nhiauQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 按照服务类别和场景检索  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSjsZHdME4DKL6iazCbGOl8Im6LibCw0sXicibvibaRuviaQaQQwkX6shZDEK7Ej7BeDvDA3boV1nmyRhWQ/640?wx_fmt=gif&from=appmsg)
+
+  
+
+还等什么？快来领取您的专属红宝书吧！让这本书成为您HR之路上的得力助手，助您在职场中更加游刃有余！
+
+  
+
+** 赶快点击阅读原文填写问卷免费领取吧  
+**
+
+** ↓↓↓  **
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 共筑人才生态绿洲内部成长与外部吸引的双重动力
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBuIe8r2JrSjwx0BJ4jAvza3tU3Z573n9mKukwsMwsu0nK9CjBzjg6PDaY5Mtdek4T9SCJGANLrl6sxHYseK73NqgHEwb9SK7Y/0?wx_fmt=jpeg)
+
+#  共筑人才生态绿洲，内部成长与外部吸引的双重动力
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年02月09日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：李琪 | 亚太区医疗业务人才招聘负责人 | 费森尤斯医疗 
+
+  
+
+费森尤斯医疗是世界领先的为肾脏病患者提供卓越产品和服务的跨国企业，在全球约有40个生产工厂，3700家透析中心，在全球67多个国家拥有约112,000员工。产品销往140多个国家，约占50%血液透析市场份额。
+
+  
+
+费森尤斯医疗全球有医疗服务和医疗业务两大业务板块：医疗服务板块，作为肾脏护理服务的提供者，为患者、医生和支付者提供选择，在疗法、数字化、价值医疗、居家透析及中心运营方面，处于市场领导地位；医疗业务板块，通过领先的肾脏治疗数字化产品组合和开创性的未来肾脏护理，对全球透析市场进行有益的塑造，以面向未来的产品和服务形成生态系统，同时拥有肾脏行业最具成本效益的生产制造体系。同时费森尤斯医疗全球办公室通过世界上最大的具有纵向临床数据的肾脏护理数据库推进临床科学的应用，为全球患者提供高质量的结果。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUptiabibwgEG8o5zOchRqpf6ibS8IUY8cG0Mx33BB0Jib7fLp6qdTDMMyUg/640?wx_fmt=png&from=appmsg)
+
+** PART.  ** ** 01  **
+
+** 人才战略  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUicw2On4ejwB5iaJZSNRbuHa72mV7kS8U3NjvPpr1glnARAe6sEqO5yZA/640?wx_fmt=png&from=appmsg)
+
+独特的运营模式和丰富多样的员工组成使费森尤斯医疗形成了非常具有特点的人才战略。企业的核心价值观是人才战略的基石，费森尤斯医疗中国以全球核心价值观“我们承诺，我们关爱，我们携手”践行人才发展理念，培养员工成长为成长型思维、敏捷性思维和数字化思维的人才。为赋能员工的发展和成长，公司聚焦员工体验、数字化以及包容、多元的文化，打造高敬业度的职场环境，提升员工的职业弹性；同时，基于马斯洛需求理论，打造IP，建设员工幸福度管理体系，让员工在费森尤斯医疗中国找到自己的价值，“成就非凡健康人生”。
+
+  
+
+费森尤斯医疗中国期望打造一个更加开放和互动的人才生态系统，通过数字化升级来提升雇主品牌，分为内部（员工）、外部（人才市场）两大部分：在组织内部，鼓励员工内推，提高内部推荐率。通过内推渠道招聘的员工，在能力匹配度、文化的匹配性、服务粘性、敬业度以及归属感上更高，也有利于成本控制。除了内部推荐之外，基于人才战略做好人才赋能，打造“
+** 森度幸福  ** ”和“  ** 森度学习  **
+”项目，传递公司雇主品牌对员工个人成长和福祉的重视，同时传播企业文化和核心价值观。对外面向候选人，则通过  ** 职场微站  **
+的焕新升级提升在人才市场上的吸引力。而对介于内外之间的离职员工，打造“毕业森”项目，欢迎他们重新加入。在雇主品牌运营上注重内外兼修，实现人才的吸引、保留以及发展，形成人才生态闭环。
+
+  
+
+** 员工认证积分制，让内推更有趣  **
+
+  
+
+为更好地鼓励员工参与内推，公司内推2.0全新启航，以“费”你莫属为新项目名称，优化员工认证积分制。成功推荐一个候选人入职且工作满试用期，即视作内推成功，内推成功的员工会得到一笔奖金，随工资发放；完成员工认证、转发职位被点击、推荐候选人……完成相应步骤后便可获取积分，积分可累加。每年年末会根据积分评选出“内部推荐官”和“内部推荐达人”，给予员工认可认证。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUMmSMdq4pUqsbibWsrV5ZmNFoXd72pQuibBXpTEL1gQFznPWoeFCcRsmQ/640?wx_fmt=png&from=appmsg)
+
+图1 “费”你莫属
+
+** PART.  ** ** 02  **
+
+** 职场微站  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUicw2On4ejwB5iaJZSNRbuHa72mV7kS8U3NjvPpr1glnARAe6sEqO5yZA/640?wx_fmt=png&from=appmsg)
+
+职场微站是费森尤斯医疗中国打造的招聘“一站式”平台。2024年，平台焕然升级。升级后的职场微站以微信招聘为出发点，汇集招聘功能平台、雇主品牌设计、雇主品牌传播功能。作为深度传播招聘平台，职场微站打通了公司内部职场与外部人才市场，实现开源人才获取。以雇主价值主张为核心的运营思路，使其对外能够展示费森尤斯医疗雇主文化，彰显成就员工非凡健康人生的价值主张，吸引更多外部人才的关注；对内，让内部同事产生对公司文化、核心价值观以及价值主张的深刻共鸣。
+
+  
+
+职场微站的升级体现在三大方面：①可视化：提供“专属职位卡片”；②便捷化：操作更加灵活便捷，电脑手机皆可使用；③数字化：招聘流程“线上”全搞定，极大地提升了候选人和面试官的体验，最大化生成报告的准确性，为人才库管理打下基础。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUl6FXyhK0iackBDriaHfcLJNzDYuAuvKPJ0InYjoNhVPMvIb8ibgrTUiabg/640?wx_fmt=png&from=appmsg)
+
+图2 职场微站
+
+** 传播雇主文化价值  **
+：发布微信推文，主题涵盖每月职位信息、公司内部活动、雇主品牌宣传等，向读者展示费森尤斯医疗中国以及全球动态，了解员工在费森尤斯医疗中国的成长故事。
+
+** “一站式”招聘  **
+：面向员工、候选人以及猎头的个人微信端，支持一键发布职位、朋友圈转发职位广告、员工认证、内推积分以及内推链路追踪；面向面试官的企业微信端，支持安排面试、填写面试反馈以及招聘数据分析。此外，职场微站与全球HR系统Workday进行对接，确保本地化和全球化衔接，实现全球总部的系统化管理。
+
+** PART.  ** ** 03  **
+
+** 森度幸福&森度学习  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUicw2On4ejwB5iaJZSNRbuHa72mV7kS8U3NjvPpr1glnARAe6sEqO5yZA/640?wx_fmt=png&from=appmsg)
+
+费森尤斯医疗中国践行  ** 全面健康  ** 的新概念，围绕“  ** 爱尤费凡·不止健康  **
+”的员工价值主张，打造“森度幸福”和“森度学习”项目，优化整合身体健康、心理健康、财务健康、社交健康、自我价值五大福祉模块，聚焦员工需求，提升员工幸福感和归属感。去年，项目已进入全面健康3.0阶段。
+
+** 森度幸福  **
+
+每年会组织开展“爱尤心生”项目；设立女性领导委员会，主席中包含男性主席，带来不同视角的女性关爱；“费森大使”，由愿意为组织献言献计的热心员工组成。除了搭建员工和管理团队的沟通桥梁之外，费森大使致力于提升员工体验，例如对接滴滴打车平台，为员工打车提供便利。此外，公司有自己的志愿者协会，开展走进社区活动，为员工发挥自我价值创造条件的同时展现企业的社会责任感。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUHqX4fR1jt9kwTNbicb80wdFa6ibZPEqm5DchgjAwdp4E0mEsSyGJRO5Q/640?wx_fmt=png&from=appmsg)
+
+图3 森度幸福
+
+** 森度学习  **
+
+开设“森夜学堂”鼓励员工持续学习，邀请员工在轻松的氛围中分享话题；创办电子杂志，邀请员工做主题分享；开展读书月活动，阅读热门书籍，分享感想；邀请销售分享成功要领。
+
+  
+
+每年公司都会举办Career
+Day职业发展日，邀请管理层以及嘉宾分享自己的成长经历。“森度幸福”和“森度学习”项目的开展为员工营造了积极正向、持续学习的职场环境，有助于员工敬业度的提升。
+
+** PART.  ** ** 04  **
+
+** 毕业森项目  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUicw2On4ejwB5iaJZSNRbuHa72mV7kS8U3NjvPpr1glnARAe6sEqO5yZA/640?wx_fmt=png&from=appmsg)
+
+在费森尤斯医疗中国，离职员工仍是宝贵的财富，被称为“毕业森”。2024年，公司打造了离职员工社群。社群中会分享公司的最新动态、岗位信息等等。通过社群互动，保持与离职员工的社交联系，持续传播、宣传雇主品牌。
+
+  
+
+离职员工社群的运营持续为公司的人才生态带来积极的影响。数据显示，2025年41%的新员工来自于内部推荐，并且有24%的“毕业森”选择回到费森尤斯医疗中国，实现员工与公司的“双向奔赴”。同时，职场微站的持续投入产生成效，自2020年费森尤斯医疗中国招聘公众号成立以来，粉丝稳步增长，现已达到9,000+。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUAfbibLc1NuIhTrGT8YEp7XdjiaX2hopNt0T3K71Fqvnae7Q0pX4F81OA/640?wx_fmt=png&from=appmsg)
+
+图4 招聘公众号粉丝
+
+  
+
+费森尤斯医疗中国期望通过雇主品牌运营的持续精进，提升雇主品牌声量，吸纳更多与公司文化以及核心价值观相匹配的人才；同时努力营造积极正向的职场环境，提升员工敬业度和留任率。外部吸引和内部成长齐发力，内外兼修筑成良好的人才生态，助推企业的长久发展。
+
+  
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUaYlp2mxGQ9wo4xQwZZ6GF6A9X2q4pA2RrXmxyfdMicsiblgG1mLRTetw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUkxjFouFeWl5JicBkocuIgrHeRicQvMfyU3QFJxsDSOBKq07EOX7CPuOg/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSy6RNtpI32ictNeyGlhrQBUvL7j1FpSGicZZYufJhltuWNZicmXOyzdQAvciaGJr9dEU8iaFFHgeBD9Nw/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCEqDTJzAON2EUzgyrO21NVVAXnkU3sM2VefASboL4WFc6M1yGxVtnX7zBEv3DapO1jaialib7Lj0XeFibKuCAo7LuU4RcGhf0FL4/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 劳动法苑休息日加班补休问题概述
+
+![cover_image](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtAMvh7fK17nxFDCqZy4ic6T7IVKHJPvTQW8noQFwDibXTSib17CQHtoeZpmalaQuLwyPzFZtX28WAudrEmCxNWAYf7icHNBzRFedC8/0?wx_fmt=jpeg)
+
+#  劳动法苑 | 休息日加班补休问题概述 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年04月19日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+以下文章来源于中联劳动法讲坛  ，作者夏利群 詹盛楠
+
+![](http://wx.qlogo.cn/mmhead/Q3auHgzwzM52MolibuzWC2A1mLcOCOTo8LSx3RE2gnjdrKCFoicOaDicg/0)
+**中联劳动法讲坛** .
+感谢您关注“中联劳动法讲坛”。本公众号将于每周五推送有关劳动法的案例分析、论文、观点阐述短文、劳动法资讯等，并会不时公布相关劳动法及中联律师事务所的相关法律论坛、研讨会和沙龙等信息。
+
+上海中联律师事务所 夏利群 詹盛楠
+
+  
+
+《劳动法》第四十四条规定，“休息日安排劳动者工作又不能安排补休的”，用人单位应当按照不低于工资的百分之二百的工资报酬的标准向劳动者支付休息日加班工资，原劳动部《关于职工工作时间有关问题的复函》第四条则进一步明确，“依据《劳动法》第四十四条规定，休息日安排劳动者加班工作的，应首先安排补休，不能补休时，则应支付不低于工资的百分之二百的工资报酬。补休时间应等同于加班时间”，不难看出，法律授权企业以安排补休的方式替代休息日加班工资支付的初衷，仍然是保障劳动者的休息权利，如无法1:1安排补休的，则需要企业支付额外的工资对价。
+
+  
+
+实操当中，由于法律并未就企业安排补休的时间上限等内容作出细化规定，多数企业会通过劳动合同或规章制度等书面约定形式设定加班补休的流程细则（即调休制度），亦有部分企业会无限延迟安排补休、等待劳动合同解除或终止时再统一安排补休或折算，但合规角度，此类做法可能伴随潜在的法律风险。
+
+  
+
+首先，虽然国家层面并未针对安排补休的期限作出明文要求，但仍有个别省市的地方性规定中明确有相关内容，如《江苏省工资支付条例》（2021年修正）第二十条就规定，“（二）在休息日劳动又不能在
+** 六个月之内安排同等时间补休  ** 的，按照不低于本人工资的百分之二百支付加班工资；…  ** 第二项的加班工资支付周期自加班当日起最长不得超过六个月
+** ** ，但劳动合同履行期限不足六个月的，应当在劳动合同剩余时间内支付完毕”  **
+；《江西省工资支付规定》第十八条也有类似表述，“用人单位依法安排劳动者在法定工作时间以外工作的，应当按照下列标准向劳动者支付加班工资:…（二）在休息日工作，又不能在一个工资支付周期之内安排补休的，按照不低于劳动者本人日或者小时工资的百分之二百支付”。因此，如果企业未按照当地政策要求的期限及时安排补休，又未在限期内支付对应加班工资的，可能被认定成立《劳动合同法》第三十八条第（二）项的“未及时足额支付劳动报酬”，届时劳动者有权单方解除劳动合同并要求企业支付经济补偿。
+
+  
+
+其次，即便是在未通过地方法规设置补休期限的城市，如果当地司法实践认定“未及时足额支付劳动报酬”时更注重事实层面的“未及时足额支付”而非主观意愿层面的“恶意拖欠”，那么在劳动者未书面同意不限期延迟补休的情况下，只要企业存在未安排补休也未支付加班工资的情形，即可能引发薪酬及经济补偿金纠纷并有败诉风险。以北京为例，北京的政策层面并未就补休期限及休息日加班工资的支付时限作出要求，但(2022)京02民终13418号判决中，周某2021年5月至9月期间存在休息日加班，经补休后仍剩余18天，周某于2021年9月27日向公司提交《被迫解除劳动合同通知书》，以公司未及时足额支付加班工资为由解除了劳动合同，公司认为休息日加班可安排补休，所以加班工资的支付义务应当自周某明示放弃补休并主张加班工资时才成立，抗辩劳动合同被解除时公司不构成“未及时足额支付劳动报酬”，但北京大兴区人民法院及北京市第二中级人民法院仍然基于公司应付未付休息日加班工资的事实，判决公司向周某支付了经济补偿。
+
+  
+
+最后，企业虽可通过增设劳动合同格式条款、制定和修订规章制度等方式，规范休息日加班补休的假期休取流程、申请时限、单次时长等内容，降低双方就补休和加班工资支付事项产生争议的概率，但若生效合同/制度中有涉及未补休加班时长逾期失效的表述，该等约定实际将因为违反法律的强制性规定而无效，企业并不能因此免除支付休息日加班工资的法定义务。
+
+  
+
+简而言之，关于休息日加班补休，首要原则是参照所在地区的特殊补休政策要求执行；若无特殊政策要求，则应合法建立补休制度并预先设立合理的补休期限，并在劳动者怠于申请补休时及时行使用工管理权利，主动安排劳动者补休，以规避“未及时足额支付劳动报酬”的违法风险，同时也可避免累计产生高额的休息日加班工资成本。
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtC5gaic5DLLIHH0NwQGYyzp1BY0Ps73YhSZan6V9x7oL7Z2DicAiaH6QpzSPd99r24TDdNAibyiaVntWRBc82Q18JkSqZpu3dU0QeeU/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtDTia7KgBAyS51mTK7nHPIMEEficQCDcciaSP87icdRVmIqgD8T8CE5E8FramDyXd9QtdZtnPFf6KGJGvHjzXkJiczXvnLlbbStA5Tg/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/KNlRbic3WUtBPvTGXpNeXPcuhIvbaq4QQsibgDbxTichuXibY9FZSnlKhGyJSbQV80cWOLMXTebMicqopV8G0xj3ta9NT8lleH3b0Ar3nKjw9icqg/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCndrIQVALNtc0mhg3xBibMP5ejNtT7dccibibEMQcaKgNwWuqeV2EabCWhZT8vcljSWf2rXvLtRbkMrKG05Meu1iav2ibsF0t6IGYc/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 劳动法苑员工已入职新单位能否阻却恢复劳动关系
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCcLOtQWNBV58oYrBqR1MCmoRr1KwhEibbuETwyPQFribXyj1mdwdCnibrCnVTYoNYgQVGmN6aQNKrI5IH6AIOfuBeOv88yj7JtRY/0?wx_fmt=jpeg)
+
+#  劳动法苑 | 员工已入职新单位，能否阻却恢复劳动关系 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年03月15日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+以下文章来源于中联劳动法讲坛  ，作者夏利群 钱雅茹
+
+![](http://wx.qlogo.cn/mmhead/Q3auHgzwzM52MolibuzWC2A1mLcOCOTo8LSx3RE2gnjdrKCFoicOaDicg/0)
+**中联劳动法讲坛** .
+感谢您关注“中联劳动法讲坛”。本公众号将于每周五推送有关劳动法的案例分析、论文、观点阐述短文、劳动法资讯等，并会不时公布相关劳动法及中联律师事务所的相关法律论坛、研讨会和沙龙等信息。
+
+上海中联律师事务所 夏利群 钱雅茹
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAPx2HGV06wdE8XM6raaTy3RfiaKhshhVexRvdm0p0YbOmsPsCzXT6Vc8MibOprsmBmWwSTIxMzUicR2AwE1ic5xb5VQ7RicrtubGV8/640?wx_fmt=png&from=appmsg)
+
+** 案件回顾  **
+
+2023年10月12日，陈某入职某公司，岗位为强电维修工。2024年9月12日，某公司向陈某送达《解除劳动合同通知书》。2024年8月19日，陈某向北京市东城区劳动人事争议仲裁委员会提起仲裁。后该委作出京东劳人仲字［2024］第XXX号裁决书，裁决：自2024年9月12日起恢复陈某与某公司的劳动关系，继续履行双方于2023年10月12日签订的劳动合同。
+
+  
+
+二审庭审后，某公司向二审法院邮寄调查取证申请，申请调取陈某的社保缴纳信息。经二审法院询问，陈某向二审法院提交相关社保缴纳信息以及劳动合同，显示陈某已于2024年10月24日与案外人某3公司签订劳动合同，约定劳动合同期限自2024年10月24日至2028年3月31日，且该公司自2024年10月起为陈某缴纳社会保险。经询，陈某认可已与该公司建立劳动关系，但称由于某公司不与其恢复劳动关系，出于生存需要被迫寻找新工作，且其目前已提出离职申请，故恳请二审法院判令恢复其与某公司的劳动关系。
+
+  
+
+二审法院认为，某公司的解除理由不成立，其公司构成违法解除，一审法院相应认定无误。但结合二审查明的事实，在某公司与陈某解除劳动合同之后，陈某已入职其他用人单位，故某公司与陈某的劳动合同已确实无法继续履行，双方的劳动关系不具备恢复条件，鉴于此，陈某要求恢复劳动关系之主张，二审法院不予支持；陈某可基于前述违法解除的认定另行主张权利。
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtA7SQyThQVFFoyAN3Y5cqIfnlgTP1vETPOt67z6p8Jx9zGibsR88VP5iaSFAsrAtmxagsZPXJXlNtAuSuF5yaffgns4pLibVKTGjg/640?wx_fmt=png&from=appmsg)
+
+** 争议焦点  **
+
+陈某与案外公司建立劳动关系后，是否会导致劳动合同无法继续履行，并阻却恢复劳动关系？
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAEibcg1DpbY1Dr614Sfbhf4kKvO886CXpHg1sxG09icbiaavX4QnEUE2xKe70qfLDqcHFedpNQGj6hibuc5ibP0MvkG1SrT2XAzKJA/640?wx_fmt=png&from=appmsg)
+
+** 法律分析  **
+
+《劳动合同法》第四十八条规定，用人单位违反本法规定解除或者终止劳动合同，劳动者要求继续履行劳动合同的，用人单位应当继续履行；劳动者不要求继续履行劳动合同或者劳动合同已经不能继续履行的，用人单位应当依照本法第八十七条规定支付赔偿金。
+
+  
+
+因此，劳动者在提起解除或终止劳动合同相关争议时，有权选择主张赔偿金或者主张继续履行劳动和同。然而，考虑到继续履行劳动合同具有一定人身属性，故法条中也明确了，“若劳动合同已经不能继续履行”，应当支付赔偿金，也即若劳动合同无法继续履行的，可以判决不予恢复劳动关系。
+
+  
+
+鉴于上述情况，在司法实践中，部分城市也出台了相关规定，用以指引和明确何种情形可以被认定为“劳动合同已经不能继续履行”。
+
+  
+
+如北京，《北京市高级人民法院、北京市劳动人事争议仲裁委员会关于审理劳动争议案件解答（一）》中第76条规定，用人单位违法解除或终止劳动合同后，劳动者要求继续履行劳动合同，哪些情形可以认定为“劳动合同确实无法继续履行”？
+
+  
+
+劳动合同确实无法继续履行主要有以下情形：
+
+（1）用人单位被依法宣告破产、吊销营业执照、责令关闭、撤销，或者用人单位决定提前解散的；
+
+（2）劳动者在仲裁或者诉讼过程中达到法定退休年龄的；
+
+（3）劳动合同在仲裁或者诉讼过程中到期终止且不存在《劳动合同法》第十四条规定应当订立无固定期限劳动合同情形的；
+
+（4）劳动者原岗位对用人单位的正常业务开展具有较强的不可替代性和唯一性（如总经理、财务负责人等），且劳动者原岗位已被他人替代，双方不能就新岗位达成一致意见的；
+
+（5）劳动者已入职新单位的；
+
+（6）仲裁或诉讼过程中，用人单位向劳动者送达复工通知，要求劳动者继续工作，但劳动者拒绝的；
+
+（7）其他明显不具备继续履行劳动合同条件的。
+
+  
+
+劳动者原岗位已被他人替代的，用人单位仅以此为由进行抗辩，不宜认定为“劳动合同确实无法继续履行的”情形。
+
+  
+
+本文所涉案例正是参照上述北京高院《北京市高级人民法院、北京市劳动人事争议仲裁委员会关于审理劳动争议案件解答（一）》第76条第（5）项规定进行的判决。
+
+  
+
+然而，需要特别指出的是，自2025年9月1日起生效的最高人民法院关于审理劳动争议案件适用法律问题的解释（二）（“司法解释二”）第十六条规定，用人单位违法解除或者终止劳动合同后，有下列情形之一的，人民法院可以认定为劳动合同法第四十八条规定的“劳动合同已经不能继续履行”：
+
+（一）劳动合同在仲裁或者诉讼过程中期满且不存在应当依法续订、续延劳动合同情形的；
+
+（二）劳动者开始依法享受基本养老保险待遇的；
+
+（三）用人单位被宣告破产的；
+
+（四）用人单位解散的，但因合并或者分立需要解散的除外；
+
+（五）劳动者已经与其他用人单位建立劳动关系，对完成用人单位的工作任务造成严重影响，或者经用人单位提出，不与其他用人单位解除劳动合同的；
+
+（六）存在劳动合同客观不能履行的其他情形的。
+
+  
+
+对比《北京市高级人民法院、北京市劳动人事争议仲裁委员会关于审理劳动争议案件解答（一）》第76条第（5）项与司法解释二第十六条可发现，司法解释二对于“员工入职新单位，构成劳动合同已经不能继续履行”的要求进行了提高。根据司法解释二之规定，并非劳动者入职新单位就必然构成不能恢复劳动关系，其进一步要求，该等入职新单位行为需“对完成用人单位的工作任务造成严重影响，或者经用人单位提出，不与其他用人单位解除劳动合同的”。
+
+  
+
+综上，笔者认为，虽然此前包括北京在内的大部分地区认为，员工入职新单位的，则构成“劳动合同无法继续履行”，也即可以阻却其恢复劳动关系。但是，随着司法解释二的正式生效，法院在审查员工入职新单位，是否不予支持恢复劳动关系时，很可能会进一步提高要求。因此，企业应当注意到该等变化，以免在用工管理时错误判断法律风险，从而造成不必要的违法后果。
+
+  
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAyBrLMTlFsVhjtguOjMeEMeX1oSxaSMAx5234viaAog7s1C3WhP0eq1UzO8jG8mEuqQleRefaVicnoWFXFAyOHoIiaVz9KWbvxHc/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCVr6dIddCbbvicQYa7lj69xjpt1UcjmwPUaFOnEahwzzjHtROs7Zo0FhPplib05vibBbneMRia6ibu7nBTUCdhGL8q4xyxl6fBGoI4/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/KNlRbic3WUtAbJ1dTx0w264mNCM5iaCbTmIHmJUbic3CFUFZM26icIrVu71G78vruOmxLicSXUnEZcyTwyEVMFYI5W4yr8yOFW7QLFqxbOr29npw/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBxA1AxhBMiaQYZLwL63WI2wQPShqPSWsT6LXJxB5HoniadPcnUic8XR23sFw0JibHGC5NqcfPex8iaOAptahRh5ds02YRbafW3uiaB8/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 劳动法苑通过劳动者因下属虚假报销被违法解除案看违纪行为之严重性及解除行为之合理性应
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQOcJicuFosTkAbVict1QuoXxyt43W5ZhFiaPJRoNF32N0Ry5elUibBW0MTcCzcCPJ0Oic4dOaA847GIcg/0?wx_fmt=jpeg)
+
+#  劳动法苑 | 通过“劳动者因下属虚假报销被违法解除”案看违纪行为之“严重性”及解除行为之“合理性”应如何把握 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月14日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+以下文章来源于中联劳动法讲坛  ，作者钱雅茹
+
+![](http://wx.qlogo.cn/mmhead/Q3auHgzwzM52MolibuzWC2A1mLcOCOTo8LSx3RE2gnjdrKCFoicOaDicg/0)
+**中联劳动法讲坛** .
+感谢您关注“中联劳动法讲坛”。本公众号将于每周五推送有关劳动法的案例分析、论文、观点阐述短文、劳动法资讯等，并会不时公布相关劳动法及中联律师事务所的相关法律论坛、研讨会和沙龙等信息。
+
+上海中联律师事务所 夏利群 钱雅茹
+
+  
+
+** 案件回顾：  **
+
+邬某于2016年8月入职某化妆品有限公司工作，担任行政经理。2023年6月，因员工举报邬某存在违规违纪情形，公司对邬某所在部门进行审计调查。审计过程中发现，邬某的下属用虚假发票报销客户招待费，涉及金额2700元，相关报销流程已经邬某、人事、财务、总经理等逐级审批。公司随即以邬某“对职责范围内工作及管理的下属人员疏于监管，严重失职，造成公司经济损失”为由解除劳动合同。邬某对此不服，遂申请劳动仲裁，请求公司支付违法解除劳动合同赔偿金。
+
+  
+
+普陀仲裁委经审理认为，首先，从审批流程看，报销款的审批人依次为邬某、人事、财务、总经理，可见公司对于审批流程各环节的职权安排和要求不同。邬某作为行政经理，其主要职责应为审查申请事项是否实际发生、申报金额与发票面额是否相符，报销额度是否符合制度规定等。辨别发票真伪的主要职责应为财务人员，在审批流程已完成，财务人员没有发现票据虚假的情况下，将虚假报销的责任归咎于邬某一人，过于苛刻。其次，从严重性角度看，对于本案审批责任的认定，应当考虑主观恶意性，即是否在明知虚假的情况下予以审批通过。公司并无证据证明邬某事先知晓票据虚假而予以审批。综上，邬某未发现下属用虚假发票报销客户招待费的行为尚未达到严重失职程度，不属于严重违纪情形，公司属于违法解除，应支付赔偿金。
+
+  
+
+** 争议焦点：  **
+
+员工违纪行为之“严重性”及用人单位解除行为之“合理性”应当如何把握？
+
+  
+
+** 法律分析：  **
+
+《劳动合同法》第三十九条规定，劳动者有下列情形之一的，用人单位可以解除劳动合同：(二)严重违反用人单位的规章制度的。该条款赋予了用人单位制定规章制度以约束员工行为，以及进行管理、惩处的权利。
+
+  
+
+然而，在实践中，用人单位在制定规章制度和给予员工具体处分时，如何把握违纪行为的“严重性”，尤其是在做出解除劳动和同合同时，更应充分进行考量和评估。笔者根据近年各地关于违纪行为“严重性”及用人单位解除行为“合理性”的典型案例，归纳如下：
+
+  
+
+** 1.劳动者是否存在主观故意，或是否已尽到合理义务  **
+
+如本文所援引之案例，出自《上海市人社局
+上海市第二中级人民法院联合发布十大典型案例》案例二。在此案中，员工虽然批准了下属提交的虚假报销发票，但仲裁委认为，根据现有证据无法体现员工事先知晓下属提交之发票系虚假，且其在审批过程中的职责在于审查申请事项是否实际发生、申报金额与发票面额是否相符，报销额度是否符合制度规定等，故员工实际已履行了应尽义务，不存在主观恶意。
+
+  
+
+因此，在日常管理中，若多名员工涉及违纪行为的，公司需根据每名员工在违纪行为中的参与程度，是否存在主观恶意，是否已履行合理的注意义务或是否已合理履行自身职责等多项因素，进行综合性考虑，并给予适当级别的处分。
+
+  
+
+** 2.违纪行为是否造成恶劣影响或后果  **
+
+深圳人社此前发布了另一典型案例，在该案件中，用人单位依据员工“9月3日早退11分钟、10月22日早退1分钟、10月27日早退1分钟、11月18日早退1分钟、11月22日早退1分钟、12月5日早退1分钟，累计6次”解除劳动合同。仲裁委及法院认为，员工虽然有提前1分钟左右离开工位，但此时仍在电梯处等待，且公司并未在此期间交办重要任务，离开行为对公司造成影响较小，故具体认定员工“早退”明显欠缺合理性。
+
+  
+
+因此，员工之违纪行为是否造成恶劣影响或后果，也是仲裁委及法院衡量员工违纪行为是否具有“严重性”的重要因素之一。若相关违纪行为并不具有恶劣影响或后果的，通常建议给予“警告”等低级别处分，以使得“罪”罚相适应。
+
+  
+
+** 3.公司是否积极履行管理义务  **
+
+该点同样可参见上述深圳人社及法院发布的典型案例，仲裁委及法院认为，用人单位认定的员工早退问题跨越9月至12月，但按常理用人单位按月发放工资的同时，应当按月审查员工的出勤情况，但此前却从未向员工提及早退事宜，亦未提出整改或进行处罚，仅在最后发出解除通知时一次性提出，行为明显不当。
+
+  
+
+因此，公司制定的各项人事管理制度，不能仅存在于文本之上，也应当在日常管理中进行实际执行。若员工存在违纪行为的，公司应当及时尽到管理和督促改进义务。否则，仲裁委或法院可能会认为，用人单位实际并不对员工存在相关人事管理要求，而仅是为了解除员工，而可以寻找的理由或借口。
+
+  
+
+** 4.公司之解除行为是否符合社会主义核心价值观，以及中华传统道德要求  **
+
+人民法院案例库此前曾选录了北京东城区的典型案例（入库编号：2024-07-2-490-008），在该案件中，2022年1月21日，李某因父亲患癌症晚期，通过微信向其直属领导张某请假，并通过邮件告知领导“因父亲病重需紧急返乡，特提出请假申请”，请假时间为2022年1月24日至1月30日。当日，李某便回家照顾重病父亲。期间，某发展公司北京分公司要求李某提供有效请假材料，李某亦通过微信提交了其父亲的病历照片。1月28日，李某父亲不幸病逝。当日，某发展北京分公司向李某发出了《解除劳动合同通知书》，以李某请假未批不到岗，构成旷工解除了劳动合同。
+
+  
+
+法院生效裁判认为：劳动者有自觉维护用人单位劳动秩序、遵守用人单位规章制度的义务；用人单位用工管理权的行使方式亦应善意、宽容、合理。本案中，李某因父亲病重需要陪护，向公司申请事假，既是处理突发家庭事务，亦属尽人子孝道。孝道是中华民族的传统美德，父母生病需子女服侍，父母去世需子女料理后事。员工为尽人子孝道，提出请假，符合中华民族传统道德和善良风俗。李某父亲患重病病危，在事发紧急的情况下，李某已经口头向公司请假，在照顾患病父亲期间也将其父患病的相关资料传给了公司。公司在明知其父亲重病的情况下，仍以请假材料不全，未经审批为由，要求李某到岗，未尽到用人单位对劳动者的照顾义务，在执行管理制度时机械管理，未体现出以人为本的发展理念，与社会主义核心价值观不符，亦有悖中华民族的传统孝文化，既不合情也不合理。因此，李某事假成立，不构成旷工，公司属于违法解除劳动合同。故依法作出如上裁判。
+
+  
+
+因此，用人单位在日常管理中，除了遵守各项规则制度外，也应当具有人文关怀。对员工具有合理性和正当理由的行为，应当进行充分考虑，再决定是否应当予以批准。若公司对员工进行解除处分之起因或背景明显背离社会核心价值观或中华传统道德要求的，即便符合用人单位相关规章制度，仍可能会认定为违法解除。
+
+  
+
+综上，虽然法律赋予用人单位依据规章制度处分员工，甚至解除劳动合同之权利。但用人单位在进行具体使用时，应当保持慎重的态度，需充分考量员工违纪行为是否具有“严重性”以及解除行为是否具有“合理性”，如此才能做出更合理的决定，并避免违法风险。
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVCxibB3ibvtx6mGzmicFgMGFXAgXoITXLic37V0J2JJRHKkq8N5Leia1yVYw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVefSIkGqFv9g1mSWkTibB1NeOpAI9GkLY8zC2OGf19eeMjalmGfOPDdg/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVicEIJYyXBvGuPtZjF3SykEAFDTAficSQSPVPwibhRrkXPhZbaVlnMLDlw/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TT0bB3Pib3op637bhBicHR7VoE2iayhE2bgvISePxlicb8y1rFPZsFumm9XMWUkjOoaIvAyLIlWxzIt1g/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 十二月HR都在关注哪些话题呢
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRqwkjgWmRZLtvSgfVGSAF4zGbKicHOuU9CBVVzuc1LoubicfxEtlFVUr40y0fX8ESxODUbiaiavywaJA/0?wx_fmt=jpeg)
+
+#  十二月，HR都在关注哪些话题呢？
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月10日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRqwkjgWmRZLtvSgfVGSAF4P6U5Rhia70mIxDRhWbE9Rer28FZTRK6lghGTkOO26HGXeTpibPiajSTCQ/640?wx_fmt=png&from=appmsg)
+
+十二月，朔风初起，岁末将至。智享会视频号始终陪伴各位HR伙伴，在寒冬中持续传递专业温度。本月我们紧扣年度复盘与规划的关键节点，助力您为这一年收好官，也为新一年布好局。让我们共同开启本月的思想旅程，以智慧积淀，迎接崭新篇章，接下来为您揭秘本月的前五个人气话题吧！
+
+  
+
+** Top5  **
+
+  
+
+** 没有岗位空缺，如何培养储备干部？  **
+
+  
+
+针对短期内无明确岗位空缺的储备干部，他们在项目中是“锦上添花”，而非强制性必选项。关键在于将其培养体系融入至现有高阶项目中，例如融入管理者发展计划，通过项目能强化他们与组织中关键人才及决策层的互动与链接。还想了解更多内容，欢迎点击视频查看马老师的讲解吧！
+
+  
+
+** Top4  **
+
+  
+
+** 激励方案设计最怕“单点思维”  **
+
+  
+
+在激励方案设计中，最需警惕的是“单点思维”的局限性。部分企业过度聚焦销售环节，频繁针对新产品叠加专项激励，却未整合或淘汰旧有方案，导致多个激励计划并存，对同一销售行为产生重复激励乃至过度激励。这不仅造成公司资源的持续投入与浪费，还可能因激励边际效用递减而无法有效驱动业绩增长。更多精彩内容欢迎点击查看赵老师的讲解吧！
+
+  
+
+** Top3  **
+
+  
+
+** 销售岗位定薪要注意什么？  **
+
+  
+
+销售岗位薪酬分位值的设定，核心取决于三大要素：企业业务模式、发展阶段、付薪理念。薪酬定位需综合评估销售岗位的业务类别、价值创造点、对业绩的影响程度以及人才获取与培养的难度。例如，在业务成熟、品牌拉力强的阶段，对销售个体能力依赖较低，薪酬可对标市场中低位水平；反之，在新业务开拓期或品牌弱势时，为激励销售开拓市场、吸引顶尖人才，则需定位中高位分位值。更多精彩内容点击视频观看赵老师的精彩讲解！
+
+  
+
+** Top2  **
+
+  
+
+** 如何通过AI为员工进行定制化培训？  **
+
+  
+
+为提升培训实效，需以员工为中心，设计个性化培训方案。传统方式下，为员工量身制定培训目标耗时费力。毛老师提议：现可借助AI技术实现高效定制。员工通过自主评估进行能力画像，智能系统（如MAVIS）据此分析其发展需求，快速生成与个人岗位胜任力及职业路径相匹配的培训目标与学习内容。欲知更多精彩内容，欢迎点击视频查看毛老师的讲解！
+
+  
+
+** Top1  **
+
+  
+
+** 满意度高能否代表培训是成功的？  **
+
+  
+
+当前教学效果评估普遍依赖课后扫码打分，满意度虽高但未能真实反映培训成效。真正的教学价值应在于学员的收获、行为改变与能力成长。为此，诺华培训部推行闭环评估体系，贯穿测量、学习、练习与后测全流程，以科学追踪学习成果，确保培训产生实际效果，超越表面化的满意度评分。具体内容欢迎点击视频查看段老师的精彩讲解！
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRqwkjgWmRZLtvSgfVGSAF4PehejOia44BHsxohJ2JYZanHoGkGRAuZ8wQEHx6vAvSmJGFibM6diafNA/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+还没看够？
+
+扫描下方视频号二维码
+
+持续关注吧！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRqwkjgWmRZLtvSgfVGSAF4qQHLCh4pO7reKNbW47W8yjteIu8fjibOueCVIibyia3fS4xaDJvwYFg2Q/640?wx_fmt=png&from=appmsg)
+
+预览时标签不可点
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 参与2026企业员工体检管理调研从体检到干预激活数据价值赋能全员健康
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSbUZyOFKdLOia1icZxWZjKDcZLWYib2obSVJHAIzHz1TczdiazmicA2Dia38qTjHJTRLehot27xxSic5sHw/0?wx_fmt=jpeg)
+
+#  参与《2026企业员工体检管理调研》——从体检到干预：激活数据价值，赋能全员健康
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年02月24日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+  
+
+  
+
+当体检数据不再沉睡于档案袋，企业健康管理便真正迎来了从“看见”到“干预”的质变时刻。
+
+  
+
+由智享会与霓蝶健康联合发起的《2026企业员工体检管理调研》，致力于探索一个核心命题：如何让年度体检从一项福利动作，进化为激活全员健康的数据引擎。在员工健康意识持续提升、企业福利体系不断深化的当下，体检正逐步成为企业健康管理的真实入口——而入口之后，如何构建有效的干预路径，正是本次调研希望厘清的关键。
+
+  
+
+本次调研将围绕以下维度展开深度洞察：
+
+◆ 体检在企业健康管理中的定位演变；
+
+◆ 分析体检数据的应用与内部联动；
+
+◆ 检后健康干预的创新实践与成效评估；
+
+◆ 企业对健康管理供应商的合作模式与服务能力的新期待。
+
+  
+
+从数据到行动，从体检到干预。我们期待与您一道，推动企业从“福利提供者”迈向“健康赋能者”，真正以数据为支点，撬动全员健康新生态的构建。
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_svg/Q3auHgzwzM6jHMicrhIuaU10IVzQxBHuXnk1Xy70uEYydo6NSa0oQP07DUnuic01Dl020kvOkT5SicJVDYUCqExC3DkARtaK9uawu1fw7ia9Moib7dSvZfXW3Ew/640?wx_fmt=svg&from=appmsg)
+
+** 参调福利  **
+
+![](https://mmbiz.qpic.cn/mmbiz_svg/Q3auHgzwzM52SDQ8oY9YNQd3cpAJqqsHvmnzhmCkicEG2ib3EdSEFJSeaKjHqzNbT5OgFh4ekOffgfwaPsPBic2gulBO5JJ9LbFzKTgDibpdxgicI5VQRhoey0A/640?wx_fmt=svg&from=appmsg)
+
+  
+
+填写完成，即可通过百度网盘免费下载两份相关的电子调研报告：
+
+◇  ** 《企业员工体检调研》  **
+
+◇  ** 《健康福利管理研究报告》  **
+
+（获取方式：提交问卷后，跳转链接中）
+
+  
+
+填写完整的参调者，将在本届报告完成后，获得全新的  ** 《2026企业员工体检管理调研》  ** 电子版报告一份。
+（获取方式：报告完成后，发送到您调研问卷个人信息所留的邮箱地址中）
+
+  
+
+  
+
+** 想要洞悉更多市场现状？我们需要您的参与！快点击“阅读原文”参调吧  **
+
+** ↓↓↓  **
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 参选倒计时2026智享会学习与发展价值大奖评选最后报名距截止仅剩1天
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSzLOQDB3XlicXRrNgiaC67Efp8icjASTMCMoSq2lXSqEaicvBot9f3eh6532BKgN0xCjf7cENu6sx9AA/0?wx_fmt=jpeg)
+
+#  【参选倒计时】2026智享会学习与发展价值大奖评选：最后报名，距截止仅剩1天！
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月29日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTQmMXfd6drgbeEBegqUd5CBweZPXWkKZAKHdMNqibbmPKibibgrjF1WA3VPYq77oow7awecHjR21X7Q/640?wx_fmt=png&from=appmsg)
+
+  
+
+在经济浪潮起伏、技术革命突袭的当下，学习与发展已不再是简单的填补差距或应对问题的支持角色，而是成为引领企业前行的战略驱动力。
+
+  
+
+由人力资源智享会（HREC）主办，ILS CHINA全程支持的  ** 2026智享会学习与发展价值大奖  ** 正式启动！
+以汇聚标杆企业、发掘学习与发展领域卓越实践为核心，助力人力资源行业共荣共进，致力于打造权威、专业、极具公信力的行业标杆奖项。
+
+** 12  ** 年  ** 6  ** 届评选
+
+** 100+  ** 获奖企业
+
+** 1200+  ** 学习发展优秀项目参投
+
+  
+
+** 超强评委团，共邀您参评  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSvhmN0ZMk6hdsX2tFnN6brQLmHDPxINyuK39MQ0WEJgsaalI8xANEDw/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 往届获奖企业榜单  **
+
+点击文字，查看获奖榜单
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSyLEeVXibvVv2UWqUUJG7JeBYUIzG9OVn2xibw5icjibofKVLKcr87EPCPA/640?wx_fmt=png&from=appmsg)
+
+** [ 获奖名单揭晓 | 2024智享会学习与发展价值大奖 ](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649416638&idx=1&sn=5e75e07b90e40e84ce000540544d25f9&scene=21#wechat_redirect) **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSyLEeVXibvVv2UWqUUJG7JeBYUIzG9OVn2xibw5icjibofKVLKcr87EPCPA/640?wx_fmt=png&from=appmsg)
+
+** [ “2022智享会学习与发展价值大奖”获奖名单揭晓
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649388562&idx=2&sn=f71f4f1203312f944bd93dab55836142&scene=21#wechat_redirect)
+**
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSumeufYQuFCLtRAeYBR533FBjfu1K8leJg86Z5Qe7FrtXDrKUqHCxow/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 奖项设置  **
+
+** ★最佳实践奖★  **
+
+** ★最佳创新奖★  **
+
+  
+
+** 评选流程  **
+
+  
+
+** 1  ** **  
+**
+
+** 报名  **
+
+2025年11月24日—2026年1月30日
+
+报名并提交初选材料
+
+  
+
+** 2  ** **  
+**
+
+** 初选  **
+
+2月2日—3月22日
+
+评委会阅读审核企业提交的初选材料
+
+  
+
+** 3  ** **  
+**
+
+** 复选  **
+
+3月23日—4月26日
+
+评委会成员走进企业，与参选企业进行深度的实地访谈
+
+  
+
+** 4  ** **  
+**
+
+** 终选  **
+
+4月27日—5月10日
+
+评委会集中讨论，酝酿并确定最终获奖名单
+
+  
+
+** 5  ** **  
+**
+
+** 颁奖典礼  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQDVCCVzerlibgTfCHSRpedS1lyDWMmoXa3L8vWxHibuY0ibvu5kxSTklmYYibjkQF3tulDMV9EwZutBQ/640?wx_fmt=png&from=appmsg)
+
+6月16日
+
+  
+
+** 6  ** **  
+**
+
+** 分享  **
+
+6月17日—12月31日
+
+线上和线下活动分享获奖实践
+
+  
+
+** 7  ** **  
+**
+
+** 最佳案例集撰写  **
+
+6月17日—12月31日
+
+撰写及出版“2026智享会学习与发展最佳实践”案例集
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSzj5x7sU7tB4ybJQceEYTa80ib7O5zIv0XNQADMMcm5EMFf85pCicXic7w/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSZQEJZt0SRPkkz0cveQZJWsEy6ztAvrC1z810Z26Se6PR0uamowibm5A/640?wx_fmt=gif&from=appmsg)
+
+了解更多奖项信息，点击  ** ** 阅读原文  ** 查看原文！  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSiaHrcIKGB9BqGTpWJvRyLbiamdyPm8UbCvP1tJ2rk4G2fbfN2xqrSKJw/640?wx_fmt=png&from=appmsg)
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 参选倒计时2026智享会学习与发展价值大奖评选最后报名距截止仅剩6天
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSzLOQDB3XlicXRrNgiaC67Efp8icjASTMCMoSq2lXSqEaicvBot9f3eh6532BKgN0xCjf7cENu6sx9AA/0?wx_fmt=jpeg)
+
+#  【参选倒计时】2026智享会学习与发展价值大奖评选：最后报名，距截止仅剩6天！
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月24日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTQmMXfd6drgbeEBegqUd5COh0XlgsjgoiaFulRo7U63LI2JgtrD0vnv86KTyqcwq57MxPZCZxicp4Q/640?wx_fmt=png&from=appmsg)
+
+  
+
+在经济浪潮起伏、技术革命突袭的当下，学习与发展已不再是简单的填补差距或应对问题的支持角色，而是成为引领企业前行的战略驱动力。
+
+  
+
+由人力资源智享会（HREC）主办，ILS CHINA全程支持的  ** 2026智享会学习与发展价值大奖  ** 正式启动！
+以汇聚标杆企业、发掘学习与发展领域卓越实践为核心，助力人力资源行业共荣共进，致力于打造权威、专业、极具公信力的行业标杆奖项。
+
+** 12  ** 年  ** 6  ** 届评选
+
+** 100+  ** 获奖企业
+
+** 1200+  ** 学习发展优秀项目参投
+
+  
+
+** 超强评委团，共邀您参评  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSvhmN0ZMk6hdsX2tFnN6brQLmHDPxINyuK39MQ0WEJgsaalI8xANEDw/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 往届获奖企业榜单  **
+
+点击文字，查看获奖榜单
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSyLEeVXibvVv2UWqUUJG7JeBYUIzG9OVn2xibw5icjibofKVLKcr87EPCPA/640?wx_fmt=png&from=appmsg)
+
+** [ 获奖名单揭晓 | 2024智享会学习与发展价值大奖 ](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649416638&idx=1&sn=5e75e07b90e40e84ce000540544d25f9&scene=21#wechat_redirect) **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSyLEeVXibvVv2UWqUUJG7JeBYUIzG9OVn2xibw5icjibofKVLKcr87EPCPA/640?wx_fmt=png&from=appmsg)
+
+** [ “2022智享会学习与发展价值大奖”获奖名单揭晓
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649388562&idx=2&sn=f71f4f1203312f944bd93dab55836142&scene=21#wechat_redirect)
+**
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSumeufYQuFCLtRAeYBR533FBjfu1K8leJg86Z5Qe7FrtXDrKUqHCxow/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 奖项设置  **
+
+** ★最佳实践奖★  **
+
+** ★最佳创新奖★  **
+
+  
+
+** 评选流程  **
+
+  
+
+** 1  ** **  
+**
+
+** 报名  **
+
+2025年11月24日—2026年1月30日
+
+报名并提交初选材料
+
+  
+
+** 2  ** **  
+**
+
+** 初选  **
+
+2月2日—3月22日
+
+评委会阅读审核企业提交的初选材料
+
+  
+
+** 3  ** **  
+**
+
+** 复选  **
+
+3月23日—4月26日
+
+评委会成员走进企业，与参选企业进行深度的实地访谈
+
+  
+
+** 4  ** **  
+**
+
+** 终选  **
+
+4月27日—5月10日
+
+评委会集中讨论，酝酿并确定最终获奖名单
+
+  
+
+** 5  ** **  
+**
+
+** 颁奖典礼  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQDVCCVzerlibgTfCHSRpedS1lyDWMmoXa3L8vWxHibuY0ibvu5kxSTklmYYibjkQF3tulDMV9EwZutBQ/640?wx_fmt=png&from=appmsg)
+
+6月16日
+
+  
+
+** 6  ** **  
+**
+
+** 分享  **
+
+6月17日—12月31日
+
+线上和线下活动分享获奖实践
+
+  
+
+** 7  ** **  
+**
+
+** 最佳案例集撰写  **
+
+6月17日—12月31日
+
+撰写及出版“2026智享会学习与发展最佳实践”案例集
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSzj5x7sU7tB4ybJQceEYTa80ib7O5zIv0XNQADMMcm5EMFf85pCicXic7w/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSZQEJZt0SRPkkz0cveQZJWsEy6ztAvrC1z810Z26Se6PR0uamowibm5A/640?wx_fmt=gif&from=appmsg)
+
+了解更多奖项信息，点击  ** ** 阅读原文  ** 查看原文！  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSiaHrcIKGB9BqGTpWJvRyLbiamdyPm8UbCvP1tJ2rk4G2fbfN2xqrSKJw/640?wx_fmt=png&from=appmsg)
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 友情推荐BIPO2025印度尼西亚出海手册限时下载
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LticXTDoH4ATtflRx5QDnXfFndJPUTdnfTBEyuLvicicCCXzb5yHpwcR7HQ/0?wx_fmt=jpeg)
+
+#  友情推荐 | BIPO《2025印度尼西亚出海手册》限时下载 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年11月25日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4Lt13VTnJTtTqOdTBd9RA4dR4yywia68BeNY9SY14Thr4CF4wAtC2QmOGQ/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+随着东南亚经济活力持续攀升，印度尼西亚（印尼）凭借其人口规模、快速扩张的消费市场以及数字化推动政策，正成为全球企业进军东南亚的首选落地国之一。然而，印尼复杂多变的劳动法规体系、严格的解雇与补偿机制，以及外籍员工聘用审批流程等，都为企业合规运营带来诸多挑战。
+
+  
+
+为此，BIPO重磅发布  ** 《2025印度尼西亚出海手册》  ** ，系统梳理  **
+印度尼西亚劳动法规、薪资结构、工时制度、社保与税务政策以及外籍雇佣要求  **
+等关键内容，助力企业提前识别合规风险、提升本地用工管理效能，在东南亚最具潜力的战略市场抢占先机、稳健布局。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4Ltb8cDSG297bJpAkzwBmicjibBg8SLzcuxYaB75lDVib2x5wNMkkE1O56zA/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+
+  
+** 印度尼西亚 Indonesia  **  
+  
+  
+
+  
+
+  
+
+东南亚增速最快、投资潜力最大的战略市场
+
+  
+
+印尼是东盟最大经济体，拥有超2.8亿人口的消费市场及快速发展的制造业和数字经济，是企业布局东南亚的重要战略地。近年来，政府持续优化外资准入和营商环境，吸引跨国企业设厂和设立区域总部。但相较东北亚成熟市场，印尼在劳务派遣、加班补偿、外籍员工审批等方面制度复杂、执行严格，各省最低工资差异大、劳动纠纷成本高，企业在落地运营时面临较高合规压力。因此，紧跟政策变化并准确理解当地用工规则，是企业在印尼稳健发展的关键。
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtMDjR3sJADoDSzJOAOE53qKmULTInvArvnT3ld4I5Ls8EL3ArJxu5ag/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+** •••  ** **  
+** ** BIPO《印度尼西亚出海手册》亮点解读  **
+
+  
+
+** ｜  ** ** 印度尼西亚劳动法规与用工方式全景解读  **
+
+手册细致梳理印尼劳动法适用范围，解析劳动合同类型、劳务派遣监管与业务外包可用场景等核心制度，帮助企业在初期设岗与用工决策上做到合法合规、灵活稳健。
+
+  
+
+** ｜  ** ** 薪资管理、法定福利与工时制度一册掌握  **
+
+涵盖薪资组成、支付规则、宗教节日津贴等强制性福利，以及工时上限、加班费标准与工资计算方式等关键数据，为企业薪酬架构设计提供可执行依据，实现激励与成本的平衡。
+
+  
+
+** ｜  ** ** 休假制度、解雇流程与补偿机制清晰呈现  **
+
+覆盖主要假期、公共假日规定与员工假期待遇，深入解读合法解雇理由、流程要求及补偿金标准，帮助企业强化员工生命周期管理，降低劳动纠纷与经济赔偿风险。
+
+  
+
+** ｜  ** ** 社保、税务及外籍雇佣管理全面梳理  **
+
+清晰呈现印尼的社保体系及缴费比例，说明个税申报规则，并对外国人就业许可、岗位配额与违规处罚要求进行实操化梳理，为跨国人才配置与本地团队建设保驾护航。
+
+  
+
+  
+
+立即获取BIPO《印度尼西亚出海手册》！
+
+限时免费下载开放时间：
+
+** 11月17日–12月17日  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtQtvz2KOU7KBJ6NDZ7icYGb20hTMkLWcacUUSj5BgerG2p5dDI7FHXFg/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+扫描二维码或点击  “阅读原文”
+
+深入了解印度尼西亚劳动法与合规要点
+
+为企业开拓印尼市场抢占先机
+
+  
+
+  
+•  
+点击并关注BIPO视频号  
+•  了解更多海外政策
+
+  
+
+  
+
+  
+
+  
+
+** 关于BIPO  **
+
+  
+
+BIPO（必博）创立于2010年，作为全球化的人力资源一站式服务供应商，亚太总部在新加坡，中国总部在上海，BIPO的服务网络覆盖170多个国家和地区，服务版图遍布亚洲、欧洲、美洲、非洲和大洋洲，已在全球建立了50多个自营办公室，帮助企业快速实现全球化布局。
+
+  
+
+BIPO为全球企业定制的Total HR Solutions，包含HRMS、Butter、Athena
+BI，实现了包括全球薪酬外包（GPO），名义雇主服务（EOR）、独立承包服务（Contractor）等服务的高效交付，借助系统的科技化和服务网络的多国化，为客户提供多地区、高效率、合规化的用户体验。同时依托全球资源网络，聚焦企业人力资源管理中的痛点，集合多种业务协作云应用，使服务覆盖全球。
+
+  
+
+BIPO，已发展成亚太区服务网络最广，落地最深的一站式人力资源合作伙伴，积累了众多高能级的全球知名企业，并在不断加速中提升链接全球的服务辐射能力、优化科学先进的系统方案，打造品质卓越的国际级人力资源服务供应商！
+
+  
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtzGucHRSPyS5hwEO10rutfIOfNUa9bZv31mYnOk6HG2IAr3RCKzR2WA/640?wx_fmt=png&from=appmsg)
+
+  
+
+[
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQia6feCqqACdaeyxzSUx4Ltjtnykduonibwf22DEyb4IgIO2xg3Loe59W3pyfibDYDIbv6AxDibjb97g/640?wx_fmt=png&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MzI5NTA0MzE3MA==&mid=2247505951&idx=1&sn=04c139299e62ca83ddc1048f8a7c5eee&scene=21#wechat_redirect
+"https://mp.weixin.qq.com/s?__biz=MzI5NTA0MzE3MA==&mid=2247505951&idx=1&sn=04c139299e62ca83ddc1048f8a7c5eee&scene=21#wechat_redirect")
+[
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQia6feCqqACdaeyxzSUx4Lt1N1zB1xDyfUWjztdibgryLibkj3zyhX0A8zNscrugoia3UbeaSm3e93ow/640?wx_fmt=png&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MzI5NTA0MzE3MA==&mid=2247505750&idx=1&sn=5f76fb5480a881f39fe6506564529da0&scene=21#wechat_redirect
+"https://mp.weixin.qq.com/s?__biz=MzI5NTA0MzE3MA==&mid=2247505750&idx=1&sn=5f76fb5480a881f39fe6506564529da0&scene=21#wechat_redirect")
+[
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtQXzQG4m9Jso4leNJ8tKM3qXljJJickqZia4ziaNy6rcKOicyE8UO7Klwuw/640?wx_fmt=png&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MzI5NTA0MzE3MA==&mid=2247505560&idx=1&sn=b8f04e8d341936a5008d0b1b45198d96&scene=21#wechat_redirect
+"https://mp.weixin.qq.com/s?__biz=MzI5NTA0MzE3MA==&mid=2247505560&idx=1&sn=b8f04e8d341936a5008d0b1b45198d96&scene=21#wechat_redirect")
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtE8yby30qjAIzTh44ia59nu5Vf6gWqTXdcbC04274tPKyHLaeRhYNE1A/640?wx_fmt=png&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TQia6feCqqACdaeyxzSUx4Lt9sE6QRiaWGicgnqaLUzbZiaLddO1TXXAdd79U2ibCiag3h7bwvvNJGOuaHw/640?wx_fmt=gif&from=appmsg)
+
+点击“阅读原文”
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 启动报名2026智享会学习与发展价值大奖
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSCjUR7hr5qToVMOpkTcFa2o1fgw3WfXNYjgq81OaDNpibq9waib8du3wiceQD0KCqItN10sJADNWhiaQ/0?wx_fmt=jpeg)
+
+#  启动报名 | 2026智享会学习与发展价值大奖 
+
+原创  人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年11月24日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtQWPQ1tQL8Sr8odooSIRmkicwK8VcZYfu6iajSDiaJKDNOVPsh5xTF2jHA/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+在经济浪潮起伏、技术革命突袭的当下，学习与发展已不再是简单的填补差距或应对问题的支持角色，而是成为引领企业前行的战略驱动力。
+
+  
+
+由人力资源智享会（HREC）主办，ILS CHINA全程支持的  ** 2026智享会学习与发展价值大奖  ** 正式启动！
+以汇聚标杆企业、发掘学习与发展领域卓越实践为核心，助力人力资源行业共荣共进，致力于打造权威、专业、极具公信力的行业标杆奖项。
+
+** 12  ** 年  ** 6  ** 届评选
+
+** 100+  ** 获奖企业
+
+** 1200+  ** 学习发展优秀项目参投
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtFnEuPLeD0xaKDhESkHGuny7F5wcXLe4UNMWGibBqGcSh3ZSEWg1haDg/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+** 奖项设置  **
+
+** ★最佳实践奖★  **
+
+** ★最佳创新奖★  **
+
+  
+
+** 评选流程  **
+
+  
+
+** 1  ** **  
+**
+
+** 报名  **
+
+2025年11月24日—2026年1月30日
+
+报名并提交初选材料
+
+  
+
+** 2  ** **  
+**
+
+** 初选  **
+
+2月2日—3月22日
+
+评委会阅读审核企业提交的初选材料
+
+  
+
+** 3  ** **  
+**
+
+** 复选  **
+
+3月23日—4月26日
+
+评委会成员走进企业，与参选企业进行深度的实地访谈
+
+  
+
+** 4  ** **  
+**
+
+** 终选  **
+
+4月27日—5月10日
+
+评委会集中讨论，酝酿并确定最终获奖名单
+
+  
+
+** 5  ** **  
+**
+
+** 颁奖典礼  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQia6feCqqACdaeyxzSUx4Ltwf5YjPC0d5vJzcNzFGuy6RznLfbqspbB2WG3tjO6uqkr1x4yIDNe8w/640?wx_fmt=png&from=appmsg)
+
+6月16日
+
+  
+
+** 6  ** **  
+**
+
+** 分享  **
+
+6月17日—12月31日
+
+线上和线下活动分享获奖实践
+
+  
+
+** 7  ** **  
+**
+
+** 最佳案例集撰写  **
+
+6月17日—12月31日
+
+撰写及出版“2026智享会学习与发展最佳实践”案例集
+
+  
+
+** 评委会成员  **
+
+（排名不分先后，以姓氏拼音字母顺序排序）
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtAJntkf9Lq79kMYyJv6pVkAPbqjDGfVibvr4Ge32RgU38KMmvUR9Y7DQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 毕镜  **
+
+人力资源总监 | 英飞凌 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtaviaHAlynCaceHxMFRS5vcWhRUzq4kezM8YKZ5oeMEMPgFon3KmCq4Q/640?wx_fmt=jpeg&from=appmsg)
+
+** 邓少华  **
+
+企业大学校长 | 玛氏 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4Ltyjib1YqUegQpLzIZvTL7eicKh9Tvwbb0keZgxsww1AsplDW4Bzo56dxA/640?wx_fmt=jpeg&from=appmsg)
+
+** 洪亮  **
+
+人力资源总监 | 宁德时代 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtKE4cjSbL3bSoEF8bDP5Ygx8ibO98ricL58pX1ZicyHKORl2icFxN7EoE9A/640?wx_fmt=jpeg&from=appmsg)
+
+** 胡胜兰  **
+
+人才发展执行总监 | 阿斯利康 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4Ltiaic1huRFVukjSPpXrbYiageupyzic3O29qiaMLcA8AxcYiaHEYW50tD4ibUg/640?wx_fmt=jpeg&from=appmsg)
+
+** 贾春娟  **
+
+人才培育发展总监 | 海尔集团 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtOQggbVhnaCOCiaY5YicVu0aeRJaflxEDMNdJbgWLRvrm8lBdkeS9MJGQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 梁家广  **
+
+紫帽安踏学园学习发展负责人 | 安踏体育用品  有限公司 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4Lt7BUb431OVeTCCUceReufmV1mcNIt1ibvgMMLa9GPv9ZdlE9V1uVmViaQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 罗江波  **
+
+培训中心主任 | 东风汽车 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtUmYkSvGcFOnkrhxFicxia3goicB3JjibQGtPoKQ3H5v1YaAAu14o9xIUpw/640?wx_fmt=jpeg&from=appmsg)
+
+** 邵长松  **
+
+全球供应链学院副总裁 | 施耐德电气 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtibJucJbIzmZTciadVbk042fRKqMMIcia7f3Dibib2uXnGoSGm8ia0C3hbjIA/640?wx_fmt=jpeg&from=appmsg)
+
+** 孙红  **
+
+集团培训总监 | 携程 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtIPov6mhLrn7xlbTQlsT0exGaFdicHSCmno3YOa4xZu3aNp77Y8YnrdA/640?wx_fmt=jpeg&from=appmsg)
+
+** 羊莉  **
+
+创新赋能中心执行总监 | 百济神州 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtXBCkqoibNoAm5twlOGxjGkFqWkQP8zUpMXNLMD5BSq76djstdic2xltA/640?wx_fmt=jpeg&from=appmsg)
+
+** 张东驰  **
+
+培训中心主任 | 上汽集团 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtlBQhcsiah5lHR47ROicImgVhib6UmVAATnj0dS94HeAehXPZCiaC4Rt6rQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 周俊哲  **
+
+人力资源副总裁 | 新浪集团 
+
+  
+
+** 评委会特别顾问  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtU3icUIbv4HJ8YfbAv34sLLMKntCONvWE4czp46bibldibUBfL804S1oWg/640?wx_fmt=jpeg&from=appmsg)
+
+** 孙湄青  **
+
+董事总经理/首席咨询顾问 | ILS 中国区 
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtD6XQvaoYWa3CpUOicvD2ZamWvibQoh4yM6Wj91gUA44LCq1JibGu9flgQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 季菁  **
+
+合伙人/首席咨询顾问 | ILS 中国区 
+
+  
+
+** 参评收益  **
+
+** 01  **
+
+帮助企业系统性地回顾整个学习与发展项目/实践。
+
+** 02  **
+
+获得专家点评案例与指导，获悉学习与发展领域最新最佳实践。
+
+** 03  **
+
+获得在智享会和各大相关媒体上推广宣传企业的机会。
+
+** 04  **
+
+获得与其他领先学习与发展专业人士交流分享的机会。
+
+** 05  **
+
+获得智享会6月16日  ** “ALL IN 2026人力资源服务展——北京站暨学习与发展价值大奖颁奖典礼”  ** 的  ** 2个VIP席位（总价值为
+5000  元）  ** 。
+
+  
+
+** 参选条件  **
+
+** 01  **
+
+以公司/团体形式参选。
+
+** 02  **
+
+参选企业须在中国大陆注册，有单独的学习与发展团队服务于企业，且体系完整，卓有成效。
+
+** 03  **
+
+参选实践于2025年已实施完成或者阶段性完成。
+
+** 04  **
+
+参选企业获奖后愿意通过线上和线下活动与业界同仁分享获奖案例。
+
+** 05  **
+
+评委会成员所服务企业不能参评。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtCibnzqmPSxW59SehHPfhA2v0eH6jWftDJIIVyLibg3eBypIJxC8FbauA/640?wx_fmt=jpeg&from=appmsg)
+
+** 往届回顾  **
+
+[ 获奖名单揭晓 | 2024智享会学习与发展价值大奖 ](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649416638&idx=1&sn=5e75e07b90e40e84ce000540544d25f9&scene=21#wechat_redirect)
+
+► 点击阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQia6feCqqACdaeyxzSUx4LtviaiaHvic3HVH4y8eWV2KonayzKormpIe4slVOysrUxbfFKyJa0JDQAKQ/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+预览时标签不可点
+
+内容含AI生成图片
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 回顾精彩前瞻精选智享会1月活动回顾amp近期预告
+
+![cover_image](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtCU9uLJuvxZUuXeRkbIb9YqV6hu3HiaZVe8etK058jc8vobM1hXjOpPo5dFVTFCzHfCJQHoRMDczSJBboMZvv80SJu7Aqf6JC5Q/0?wx_fmt=jpeg)
+
+#  【回顾精彩，前瞻精选】智享会1月活动回顾 & 近期预告！
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年02月08日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+点
+
+击上方蓝字关注，快速了解资讯
+
+  
+
+人力资源智享会（HREC）于2009年创立，是一家高端、专业、广具影响力，面向中国人力资源领域专业人士提供会员制服务的企业。我们致力于成为HR团队的学习伙伴，赋能HR的日常工作，支持HR的职业发展。每年策划并执行超过200场活动。
+
+  
+
+  
+
+** 2026年1月活动回顾  **
+
+  
+
+** 上海  **
+
+[
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtDicaktCPrALfXNOHOwicdOibDeKBbMvdqLAD6mjDM5XCPOouV47dnN29aVUP0GEqofpRg7lF8XRvREFOb6d7SXYnAeSL6GybTPsA/640?wx_fmt=jpeg&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649478532&idx=2&sn=6beda0ee9931e4fd4a4ed12c44d3cfaa&scene=21#wechat_redirect)
+
+** 探访直击 | 走进宝尊集团——AI 时代下的人才管理  **
+
+上海 2026年1月15  日
+
+** 线上  **
+
+** 2026.1.6-7  **
+
+** 2026人力资源云上嘉年华——出海与国际化人力资源管理  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtAiatBDxHAZT83ab6VUl77icWUosjcaruRGglmiaIKj07RbibjP8Tp4ubYDKvvxTLLHRG4ibMTIicp3G54LreZJR6Gt0ItrKibPcdYURM/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCBRv4e19g3JwLNTcA6RcyCD3KEwJUwDO6zIyxeMhiboxZ2TMjia0UiaNFvfsq9zrO9TEn07EMURbHGibaXWzXP3wjGaBaMh5uwM1w/640?wx_fmt=png&from=appmsg)
+
+** 扫码回看  **
+
+** 2026.1.13-14  **
+
+** 2026 AI×HR云上嘉年华  **
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtB5aNQLpeM7EtDAxTHsVU08JFB6Q1zopxxrs13BoSI6Ml8eibJrTtDwxstErnm7cBgEt5vwxFp0760x8iclGibf4QO9wVHdJ0k6iaE/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCaSRKHXibgvb5fSednDw3lcYgMQObYjmZpftutZLWRCyUaqzLn4kaTGnvYopLiapoHGChibvibtvSb4o2R3f0EjPbKyN0PxareZqY/640?wx_fmt=png&from=appmsg)
+
+** 扫码回看  **
+
+  
+
+** 近期活动推荐  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAxLBIG8KRfAy1VMCEibfplbx2aEGE4eEqpibAxWcC40xWu9Vvjz8YJk7tYcoXVkvOoYbia3yfSgM3ma1oTnsrIE93HPwjKsgOf1g/640?wx_fmt=png&from=appmsg)
+
+  
+
+** 近期活动及调研  **
+
+  
+
+[
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAu2Z2x6vgcVo2VAnL6h4qes22Aldia5S9wPGDETbRmhw2lTlNWNEnzdC9ZSJLJTYgicicejjC5YWibzC30PaDYDj7HkDZ4b2aM2Tw/640?wx_fmt=png&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649479210&idx=3&sn=acba94b3116f94b948572d45ba0313ac&scene=21#wechat_redirect)
+
+** 3月杭州，出海与国际化人力资源管理论坛&中国薪酬与福利展示会！ 2大会场，20+热点话题！  **
+
+杭州 2026年3月19日
+
+[
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBRestPgf1HDvzwiavQn6SicL3KRVRgrgq05TgVA7wtsGGnZol9ibBsnZ8lwltzHYPcsqLsLA80wHz3XFBVZdLthvfr4ibPl8n1J5M/640?wx_fmt=png&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649478693&idx=3&sn=0d9c2853d78d58672d92a9fe70a155d0&scene=21#wechat_redirect)
+
+** 调研邀请 | 2026智享会学习与发展供应商知名度与用户推荐度调研  **
+
+问卷截止时间 2026年2月13日
+
+（点击图片查看原文）
+
+**  
+**
+
+** 活动咨询及报名  **
+
+可添加智享会班班微信
+
+（备注活动名）
+
+👇👇👇
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBmgc8HgGZ05roAcnkrHvEtwr5JTH3iaKLR75fRED4Vbibcyf6UWjicwmVflqrVrY4h59oG2Eibp7acE5YRpTxtB7DnricPtFs7YWew/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtBcyDe0TnqvtfYWBTEMjbpd5bxWBnKSAy6e0xalrwBa1MuC0iby9AvticzT7COuagY4Ax4xJg5peczqoAMay6ErZ1icMn9ZPYznKw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBSLAT1zj3Ewgibiag9ict6eNLBlNz3hRiaQD0jbCpiaUwXM4dyMeTZeYwsWiaAJdzU91ibyJxbFxtH041AO5NjGaWuVyLKlMNVC5PN0k/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtCQjM1RTmV147IM9n9MAYG232ic018mU8ib0ISyYd8PnVtQf9KWLD4icrZg5ZC3tUYUInibVOth6QeNgISISXSbkmTyYcLyEGA7ovE/640?wx_fmt=gif&from=appmsg)  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 回顾精彩前瞻精选智享会3月活动回顾amp近期预告
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCpaJNhUERYAX0apcUk2daqUEicUBNPiax6PTjTJcjic9iaaFkhcSvsAcziaRsBzLv8pbZKCNMHQQa2dYRsghwkbaaEAqXvjhe1WtTg/0?wx_fmt=jpeg)
+
+#  【回顾精彩，前瞻精选】智享会3月活动回顾 & 近期预告！
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年04月12日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+点
+
+击上方蓝字关注，快速了解资讯
+
+  
+
+人力资源智享会（HREC）于2009年创立，是一家高端、专业、广具影响力，面向中国人力资源领域专业人士提供会员制服务的企业。我们致力于成为HR团队的学习伙伴，赋能HR的日常工作，支持HR的职业发展。每年策划并执行超过200场活动。
+
+  
+
+  
+
+** 2026年3月活动回顾  **
+
+  
+
+** 杭州  **
+
+[
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAAF55juhmghYRINJQBgmic6s3uzibXHyNIoqjdgHa6TcVwZDLX7ZiaMpdUORVAUibUaERNCoEkuVSWj2NhnuSibo2fJ5y0umfZSdwI/640?wx_fmt=png&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649481457&idx=2&sn=f208f6232b8b8baa7fac2a29aa3d91a9&scene=21#wechat_redirect)
+
+** 3月杭州，出海与国际化人力资源管理论坛&中国薪酬与福利展示会！ 2大会场，20+热点话题！  **
+
+杭州 2026年3月19日
+
+[
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtBQ389dgF6iciavicLWs8B6SrwRFM7c1ww0AiccuOGXyfUUUDJoia0o2rfdrq5vLBq8W7eqbSR8W0aAZAZKTPmh6EuyqR8C1w0IzEoo/640?wx_fmt=jpeg&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649481581&idx=2&sn=17e66950e323427dc817acc9ed38707e&scene=21#wechat_redirect)
+
+** 走进传化集团——解锁传化 “智” 造力： AI 激活组织，人才成就发展  **
+
+杭州 2026年3月18日
+
+[
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtDBI8IlNWYYKtpV24P2UlolJbNuJ13icdvzwTVdW8TJYIJkWBUQkH9A0ZRtciaouKRoiaXecibwCJN4J5F97XbOeuCnTEoSiaNKcUfI/640?wx_fmt=jpeg&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649481153&idx=2&sn=00a367f2145b80b56eec8ae8512053da&scene=21#wechat_redirect)
+
+** 走进老板电器：薪火相传，利聚人心——探秘老板电器激励之道  **
+
+杭州 2026年3月18日
+
+** 上海  **
+
+[
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCwGwvRacRPoeicLqFTdaRl4EMqUvypicstjxibrhGh15CAy2w5Ucsa8VjOw9goMFwGzSicno4dkSWMXiaVibmSIJ4Ft2SB1fYfoyUTk/640?wx_fmt=jpeg&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649482489&idx=2&sn=61eb9880f010c387f4d776d34e5bb080&scene=21#wechat_redirect)
+
+** 走进葛兰素史克GSK：AI时代下的组织效能提升  **
+
+上海 2026年3月26日
+
+** 线上  **
+
+** 2026.3.11  **
+
+** 社保“严”监管趋势与相关热点问题  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCUfFmiaBnuMbHibHnO9uPlhFoD3bWjGS0ZZjFH2tJNCiarxswKHfQhF7yD1VxvAqQAyA4IpBSRlyiaRm8feUhdiaPzAQ0PbfUHibp7s/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAHJZRvW6uQqF7xJ4neHicSkl6nsCD5kL21qa9gK5y4ibd1U0wb3YMfPqDe17xp0DoxZZJtKunk7wbibXgCjbNJSqiaBaEFmMZk6yA/640?wx_fmt=png&from=appmsg)
+
+** 扫码回看  **
+
+  
+
+** 近期活动推荐  **
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtDvo2OOxPNIGHCrpYKW3FUgnv3nOfQdtGFkMCl4rnXfO48iaibxnvicCUvicfVy2Mic7HundHQDUOMZpLIEwsqcvdhyBFBzKLfyoNlo/640?wx_fmt=png&from=appmsg)
+
+  
+
+** 近期活动报名  **
+
+  
+
+[
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAAicpia46A5MtyAdYZXiblG1xChINU53JseDTxVTUb5FXTkNrPOzxwHlx9dBDxNDEWWBgLAzibiahREAVmCUYe7NHdngh7o9RhE0Co/640?wx_fmt=png&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649483259&idx=3&sn=359b2d70b30e73a7d8f699cabbe46ceb&scene=21#wechat_redirect)
+
+** 4月深圳，中国薪酬福利年会&出海与国际化人力资源管理论坛！ 2大会场，20+热点话题！  **
+
+深圳 2026年4月23日
+
+（点击图片查看原文）
+
+**  
+**
+
+** 活动咨询及报名  **
+
+可添加智享会班班微信
+
+（备注活动名）
+
+👇👇👇
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtBkXpD9F1TfNtcSIDgLPMjzvGAJSTD4SH1icINtQ5F6bZQ2EOzMGicnwOV1NhTeibbhUj1icHQhicicZwib1tyFxAOpJMQXxSicOcic7H4Y/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBZsxbQMD35FCIZrpvYxzVOYia8LboEuOicfn9NWiaKibbMotFYcqEHHDLr7bCn7EOmnp1uy0hrbIvZv6Sma0JjRNwPUDibfBQCbBto/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAvFYY2UFZsdKOgvhOQy7ibmaiahV5RVyTEq6qUw6RKA2HP2G6nbU7eHiaFBbJOAiaeI3BzsToyGRgdblnSCuHSKBd5hnzmCgYS8Mw/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtDkxR0ZS4otefgFEfEdKKRgsTT9ZDh9H0kRrqBl4hBBib8bjNiaDWlOhy08wUE05yRCprniaQL4kSIFZ2XqJUzSiabUOfniadqomHic4/640?wx_fmt=gif&from=appmsg)  
+
+预览时标签不可点
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 埃森哲AI如何重塑招聘人员核心价值
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRG4YygZqnWlbfcf5MTfRdYoic3PfUz2uEufJVFmywHP5GobPujC9nvxmicMT8o6JyBE5aIhl15WxRQ/0?wx_fmt=jpeg)
+
+#  埃森哲 | AI如何重塑招聘人员核心价值 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月25日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：杨青 | 时任大中华区招聘总监 | 埃森哲中国有限公司 
+
+  
+
+** 埃森哲简介  **
+
+埃森哲注册于爱尔兰，是一家全球领先的专业服务公司，致力于帮助世界领先的企业、政府和其他组织构建数字核心、优化运营、加速营收增长、提升社会服务，快速且广泛地创造切实的价值。作为一家以人才和创新驱动的企业，埃森哲全球拥有约79.1万名员工，为120多个国家的客户提供服务。技术是当今变革的核心，埃森哲依托云、数据和人工智能方面的领先技术优势，凭借翘楚的行业经验、专业技能以及全球交付能力，并通过强大的生态系统关系推动全球技术变革。埃森哲战略&咨询、技术服务、智能运营、工业X和Song事业部拥有广泛的服务能力、解决方案和知识资产，基于共享成功的文化和创造360°价值的承诺，帮助客户重塑转型并建立长久互信的关系。埃森哲为客户、员工、股东、合作伙伴以及社会创造360°价值，并以此为衡量自身的标准。
+
+  
+
+埃森哲在中国市场开展业务近40年，运营和办公地点分布在北京、上海、大连、成都、广州、深圳、杭州、香港和台北等城市。
+
+  
+
+埃森哲近年来将人工智能确立为核心战略支柱，通过大规模投入、组织架构重组及全球合作网络拓展，推动AI技术与企业转型的融合。借助员工技能培训与和客户的深度交互，埃森哲推动AI从辅助工具演变为企业重塑的核心代理引擎，引领客户进入全维度业务变革的新阶段。
+
+** 解锁AI招聘价值的三大基础：  ** ** 数字核心、高附加值实践的交付能力与以价值创造为导向的绩效考核系统  **
+
+AI的应用正在实质性地重塑企业招聘流程，其影响呈现出显著的特点：它极大地提升了基础流程的效率，特别是在筛选海量简历、进行初步候选人评估及自动化沟通方面，节省了大量人力资源和时间成本。同时，生成式AI工具的日渐成熟又催生了新的应用场景，这促使招聘团队必须在能力上同步升级——如何系统性提升招聘团队驾驭新技术的能力、应对更复杂多变的需求；并在一个要求更高、变化更快的环境中持续高效地吸引、甄选所需人才，都将成为未来招聘人员必须面对的议题。
+
+  
+
+在企业业务战略的引领之下，埃森哲认为，企业要想让招聘团队拥抱AI、真正发挥AI工具的价值，使其高效赋能工作而非引发替代焦虑，关键在于提前构建坚实的组织基础，即无论是否使用AI工具，这些基础都需要具备：
+
+  
+
+** ▶ 首先，企业必须具备坚实的“数字核心”（Digital Core）地基，这是一切实践的前提。  **
+
+**  
+**
+
+▶  ** 无论有无AI，招聘团队自身就需要拥有交付高附加值实践（Best Practice）的能力：  **
+招聘的本质在于“招对人”而非仅仅是“招到人”，通过诸如对人才市场情报进行分析等高附加价值实践，精准识别出符合组织要求的人才，真正发挥好招聘这一角色应有的作用，是所有招聘人员都需要在当前时代背景下修好的“内功”，这也是AI无法替代的。只有识别出“不可替代”的部分，我们才有机会利用好AI,让AI为招聘“增值”，而非对其产生抵触、焦虑的情绪。对于被“事务性操作”消耗精力，缺乏数据支撑及业务洞察深度，导致人才匹配建议难以获得业务部门认同的招聘人员来说，AI技术的到来更是一种机遇：AI通过自动化处理低价值工作，能将招聘人员从机械劳动中解放，使其能量聚焦于真正创造价值的领域。
+
+  
+
+** ▶ 建立一套以价值创造为导向的绩效考核系统：  **
+以招聘团队为例，其衡量标准应聚焦于客户（用人部门及候选人）满意度，是否真正践行了无偏差、无障碍、无歧视的招聘，而非单纯看完成岗位的数量。
+
+  
+
+这些基础也是埃森哲长年以来深刻意识到其重要性并重点打造的部分，因为只有当数字化的底层架构、既有的高附加值实践的交付能力、以及价值导向的评估体系这三大基础都已稳固存在时，再引入AI工具，招聘人员才能清晰识别哪些工作（尤其是需要人际链接和深度判断的部分）是AI无法替代的，从而主动利用AI作为杠杆去更自信、更高效地达成价值目标，并消除对自身岗位被“替代”的担忧，最终将AI转化为工作的“加速器”而非“替代者”。
+
+** 埃森哲AI招聘实践：智能体驱动招聘全流程提效，构建“人机共创”新模式  **
+
+** 01  **
+
+  
+
+** 埃森哲AI招聘应用的核心场景  **
+
+目前埃森哲部署了三个协同工作的AI智能体（Agent），这些智能体整合了内部自研技术及合作伙伴的能力，旨在将招聘流程运营中大量的事务性工作实现自动化与智能化处理，它们分别应用于招聘流程的不同阶段：
+
+  
+
+** ▋  ** ** 人才寻源智能体（Sourcing Agent）  **
+
+该智能体主要功能包括职位描述（JD）生成、简历筛选以及与内部数据库的匹配推荐；
+
+  
+
+** ▋  ** ** 面试智能体（Interview Agent）  **
+
+该智能体处理面试环节的相关工作。相关的功能与作用包括：面试环节的协调工作——AI在安排面试时间方面具有显著优势，能够自动化处理繁琐的协调工作，为招聘团队节省大量时间成本；另外，AI在提升面试反馈的客观性与一致性方面也发挥了较大的作用，通过辅助或标准化评估流程，AI有助于减少人为偏见对最终决策的影响，从而促进更公平、客观的面试结果。这两项功能都切实提升了招聘流程的效率与决策质量。
+
+  
+
+** ▋  ** ** 入职智能体（On-boarding Agent）  **
+
+承担新员工入职流程的管理功能。埃森哲自研的微信小程序，通过二维码嵌入Offer邮件中。新员工在入职前即可通过该小程序，按预设路径自主完成入职首周所需的各种任务（如提交材料、了解信息）。此工具深度集成到后台系统，能提前向新员工展示其直属经理（People
+Leader）、伙伴（Buddy）等关键联系人的信息，甚至支持与新同事的提前沟通。这极大地优化了入职体验，帮助新员工更早融入团队，减少了正式入职初期的陌生感与信息差。
+
+  
+
+** 02  **
+
+  
+
+** 如何打造与AI与招聘人员的有效共创模式  **
+
+目前，对AI在招聘效能提升方面的具体量化评估仍存在挑战。主要原因是相关技术的实际应用和学习周期相对较短，尚处于探索和优化阶段。从技术层面看，现有AI在语义分析等核心能力上表现良好，但“幻觉”（即AI生成错误或捏造信息）现象是普遍存在且需持续应对的问题。提升的方向不仅依赖于技术本身的进步以增强“去幻”能力，更关键的是人机协作的深度磨合。这意味着招聘人员需要投入时间熟悉系统、信任其辅助作用，并进行持续的反馈与调整，形成有效的共创模式。
+
+  
+
+** ▋  ** ** 提升招聘人员的“技商”（TQ – Technology Quotient）  **
+
+为了确保团队能有效应用AI技术，组织需提供有力支持。因此，埃森哲实施了系统化的内部培训机制，例如强制要求全员完成持续更新的“技商”（TQ -
+Technology
+Quotient）课程。这些课程旨在确保所有员工能及时掌握市场和企业应用层面的关键技术知识，特别是围绕AI的系列培训，着重于深化员工对技术概念的理解及其实际意义。这不仅服务于内部能力建设，也为面向客户的市场教育奠定了基础。同时，企业积极与主要的技术合作伙伴协作，确保新工具上线后能迅速地在全组织范围内落地应用。
+
+  
+
+** ** ▋  ** 重视数字化文化的打造  **
+
+技术落地的成功，很大程度上依赖于坚实的数字化基础和文化氛围。缺乏良好的数据基础和透明度，AI等工具在提升人效和职能价值方面的潜力难以得到充分认同和发挥。在有了客观、可信度强、全面的数据后，培育数据驱动（Data-
+Driven）的文化便至关重要。这要求组织在执行层面坚定不移地追求数据透明度和基于数据的洞察，并将其用于策略调整、流程优化，让员工切实体验到数据带来的积极改变。这种对数据的信任和依赖，是支撑员工在AI技术尚未完全成熟、幻觉问题仍需持续解决的背景下，愿意接纳并相信其价值的关键。最终目标是实现“科技融灵智”，即认识到技术是赋能工具，人的创造力仍是核心，通过人机结合最大化效能。
+
+  
+
+** AI应用过程中，那些仍值得探索的问题  **
+
+** 使用AI后，候选人的体验是否会受到影响：尊重与提供选择权是关键  **
+
+所谓候选人体验，其核心在于企业对目标人群的深刻理解和尊重。良好的体验并非凭空设计，而是建立在持续收集反馈的基础之上。埃森哲会在招聘流程的各个阶段主动进行候选人满意度调研，以此获得真实的体验数据。这些数据是识别问题、优化流程的关键起点，缺乏此基础则无从判断体验改善的方向。
+
+  
+
+同时，认识到不同背景的候选人群体需求可能存在差异，企业在设计体验时应更注重提供选择权而非强制性安排。这意味着在前期设计（如埋点）时，应预留空间让候选人能够根据自身偏好进行选择。
+
+  
+
+无论是何种AI工具，本身必须遵循透明与尊重的原则。在使用任何自动化工具与候选人沟通前，企业必须清晰告知：候选人有权选择退出后续沟通；其互动数据将被如何处理与保护。这是企业可控的姿态，也是建立信任的基础。
+
+  
+
+总体而言，体验的本质是尊重，关键在于候选人是否被赋予了表达意愿和选择的权利。强制性的流程，无论设计初衷如何，都难以确保所有人的体验满意度。
+
+  
+
+** AI赋能HR，是工具升级还是战略转型：AI应用本质上是一场自上而下的变革  **
+
+在人力资源领域，对人工智能的理解普遍存在将其视为单一工具的倾向。然而，需要探讨的是，AI的应用本质上应是一项由企业最高管理层主导的战略性工程，其核心是驱动业务的数字化转型。或更具体地说，是推动以AI为核心的业务转型。这意味着，成功部署AI的关键在于企业最高决策者（通常称为“一把手”）需从战略高度明确其重要性，并将这一战略意图通过组织层级向下传导。在此框架下，人力资源部门才能有效地运用AI工具服务于企业的整体目标。这种自上而下的实施逻辑，是AI价值得以充分发挥的基础，而非仅将其视为部门级或岗位级的孤立技术应用。
+
+  
+
+这种战略定位的必要性源于AI对工作方式的根本性变革。AI的引入并非简单地提供新工具，而是深刻改变着组织内部的工作内容与模式。如果由HR部门单独发起并驱动涉及AI的广泛变革，对于整个组织而言，可能会缺乏全局视野和战略协同。因此，将AI定位为战略转型的核心，是确保转型方向正确、资源投入到位、实现预期业务成效的关键前提。
+
+  
+
+注：文章整理于2025年8月  ▋
+
+来源：  智享会&易路  |图谱《Smart AI Applicaitions——AI在招聘领域的应用》
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQbWW3dhnpUBOjq9bs7sypPDTWlTamJC4AlJ4IcQfnwC7Hl95Lsl7VufxRWqNmjQ3XQ3ia13KIIFfw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQbWW3dhnpUBOjq9bs7sypPlWZNzmKZIAWxazaQFYG5AjAHP7Gq7KeSjibIj3q1IZPnlr3K2HGqZjg/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TQbWW3dhnpUBOjq9bs7sypP46adIcLOeFyiahKPR7ACCW1OZwklyRgglSKr33VdlwwHaxMxPBLBexQ/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQDVCCVzerlibgTfCHSRpedS4icHA3o87OqBqvOgfB8rs4gFUGYMyJpDVLkBKC4anokSj38VTdbdUKg/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 康乐保整体奖酬与文化深度融合赋能业务发展
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRa6e5DDGPGzwxte8cn5EyCcLyNBkDziccFgjYy2wMPrpn57eX469WEbO5Q8gABy7ZnQef9m4aCtiag/0?wx_fmt=jpeg)
+
+#  康乐保 | 整体奖酬与文化深度融合，赋能业务发展 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月01日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+  
+
+内容来源：苏琬 | 时任亚太区整体奖酬和人才招募负责人 | 康乐保 
+
+  
+
+  
+
+** 导语  **
+
+康乐保自1957年成立以来，一直致力于让有贴心护理需求的人们生活得更轻松。康乐保有造口护理、失禁护理、伤口护理、发音及呼吸护理等重要业务。目前在中国区，康乐保拥有约900名员工，分布在100多个城市，其中一线销售员工占总人数的三分之二以上。这种分布特点直接影响着公司的薪酬福利设计。
+
+  
+
+在当今竞争激烈的商业环境中，如何将企业文化与薪酬福利体系有机结合，打造具有吸引力的雇主品牌，成为HR面临的重要课题。康乐保的实践展示了如何通过整体奖酬与文化深度融合，实现降本增效，赋能业务发展。
+
+  
+
+** 从人力资源管理到人才与文化  **
+
+从康乐保的上一个五年计划开始，人力资源管理部门更名为人才与文化部门，这不仅体现了公司对人才的重视，也突出了文化的引领作用。因而在整体奖酬战略的设计中也深刻地融入了公司的文化元素。
+
+  
+
+** 重塑整体奖酬战略  **
+
+在康乐保，企业文化不是墙上标语，而是日常实践的底色。面对外部政策变化和激烈的市场竞争，企业文化成为康乐保薪酬福利设计的重要基石。“康乐保不是市场上提供最高薪水的公司，我们要吸引和保留的是与公司价值观一致的人，是那些致力于关爱和服务患者，让他们生活的更轻松的人。”这句话揭示了文化的认同在人才选择中的重要地位。同时，企业文化也融入从招聘到全面奖酬设计的各个环节。
+
+  
+
+** 康乐保的整体奖酬战略建立在薪酬、福利、幸福感、认可、发展五大支柱上  **
+，期待通过全新的薪酬战略可以让员工生活更轻松、提高员工敬业度、提升员工体验，从而实现员工保留和赋能业务的发展，成为理想雇主。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TT3V1eFkTQsjxnGjw3Grpl3MxfUFD9KVuekKnYwy3N3TPYLtNDFkbCyHBTGx7MWQsyASZW7cs5D3w/640?wx_fmt=png&from=appmsg)
+
+图1 整体奖酬
+
+** 01  **
+
+** 薪酬——多元、平等、包容深入薪酬回顾  **
+
+康乐保将DEI理念深入绩效发展和薪酬管理过程中，除了日常的DEI主题工作坊，在对经理进行薪酬回顾的培训中，也会加入无意识偏见等DEI相关的培训内容，并在调薪后进行薪资分析，特别关注不同性别、不同国家、不同区域间的薪酬差异。
+
+  
+
+** 02  **
+
+** 福利——从关爱患者到关爱员工  **
+
+康乐保提出“让员工生活的更轻松”的福利理念，这与公司使命一脉相承。福利体系经历了从基本保障到关注全面健康再到整体回报的升级，为员工提供个性化福利，并支持员工在企业里持续的成长和发展。福利项目中重点关注员工的全面健康，形成
+** “预防-检查-干预-治疗”  ** 的全链条健康管理。
+
+  
+
+** ▋预防  **
+
+每年举办多次“健步走”活动，通过家庭赛、团队赛、个人赛等多种形式，提高员工健康意识和参与度。
+
+  
+
+** ▋定期检查  **
+
+提供个性化体检包，针对不同年龄、性别、婚姻状况设计不同方案。
+
+  
+
+** ▋干预  **
+
+心理方面，提供员工支持计划(EAP)；身体方面，提供体检报告解读、线上问诊等个性化服务。
+
+  
+
+** ▋治疗  **
+
+依托商业保险，为员工和家属提供就医保障。
+
+  
+
+** 03  **
+
+** 幸福感——从心出发，关怀员工  **
+
+在当前的社会环境下，员工的心理健康和韧性成为整体奖酬设计中新的组成部分。康乐保希望通过工作中的“小确幸”来提高员工的职场幸福感。
+
+** 乐享心动力  **
+
+依托EAP项目，定期推送心理健康小贴士；改变日常讲座的形式，引入颂钵，芳香疗愈等创新线下活动，让员工沉浸体验，释放压力。
+
+** 全方位关爱  **
+
+关注员工的特殊时刻，比如生日、结婚、生子等；同时，通过家庭日、家属商业保险等关爱员工的家庭。
+
+** 工位小确幸  **
+
+在茶水间设立“心情盒子”，通过取用不同心情盒子的糖果数量，观测员工的情绪指数。办公室内还配备小型健身器材，让大家在工作之余放松锻炼。
+
+  
+
+** 04  **
+
+** 认可——多方位认可员工绩效  **
+
+将精神鼓励与现金奖励结合，设计特色认可项目：
+
+** ● 感谢卡  **
+
+电子感谢卡与公司领导力承诺结合，及时展现员工的优秀行为。
+
+** ● 徽章墙  **
+
+记录员工成长轨迹，包括文化徽章、奖励徽章、培训徽章、活动徽章等。
+
+** ● 各类奖项  **
+
+个人和团队奖项，鼓励高绩效、创新和团队协作。
+
+  
+
+** 05  **
+
+** 发展——助力员工持续成长和自我实现  **
+
+在员工发展方面，不仅提供职业路径，还关心员工心智成长。项目组善用工会资源，创立“超级充电站”品牌活动，鼓励内部讲师和员工分享专长，如中医养生、教练技术、健身等；成立Toastmaster、学习成长俱乐部等，形成低成本高效益的学习平台。
+
+  
+
+  
+
+** 变革时期的实践  **
+
+在变革时期，面对业务挑战，与HRBP团队形成合力，在变革管理的同时，通过双轨策略支持组织变革：
+
+  
+
+** 01  **
+
+** 情绪支持  **
+
+关注员工的心态和情绪状态，通过情绪自由书写和“能量卡”，实现情绪转换。
+
+  
+
+** 02  **
+
+** 行为引导  **
+
+针对新业务形态下新的行为要求，设计员工认可计划，及时认可行为转变和业绩成果。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TT3V1eFkTQsjxnGjw3Grpl3EoMib659AW8ibhpzq4WrQT48rqf3TdmOMKeLHMVPkxBPPdsPGT5lO5Dg/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TT3V1eFkTQsjxnGjw3Grpl3QmlUUP4wZTyPeG2ZtOSP6ibWX0ucmq0XOHicbOzDGWjicMbDdDhpnuIbg/640?wx_fmt=png&from=appmsg)
+
+图2 变革管理中的情绪转换和认可
+
+  
+
+** 结语  **
+
+团队的专业、协作、灵活和持续改进，不断创新与不断成长，是人才与文化部成功的基石，也是对公司文化的践行。康乐保的实践表明，当奖酬体系深深扎根于企业文化，即使面临市场挑战，企业依然能够保持韧性，为未来的成长积蓄力量。
+
+  
+
+扫码关注，持续了解康乐保更多信息。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TT3V1eFkTQsjxnGjw3Grpl39ODiasCiaWDZcEwY7nY9q0ib6jmmUxImSMaS8M1qTPgzPCKI2P5XV5pCA/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+注：文章整理于2025年5月  ▌
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TT3V1eFkTQsjxnGjw3Grpl30UW78tMvMY5hr68nVG1UeeTjy0PwblGkULAra0ZIwvRXAGGI7TVFrg/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TT3V1eFkTQsjxnGjw3Grpl3kMdF0iaQ5U30rF8OoCuJgkGDvsjGurkGrQQLY5nIh7tavbITkaGvHicw/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TR4ASHcUl0iaYVZlHWttkCUEnNq9v03qIFCwfOq4Lgv4EE8WxDibu9pu7yTkSB5Y1no9mP4ehxOYdRQ/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSCjUR7hr5qToVMOpkTcFa23YlvHiaZm15cZjg6MWuh3k40k1pwnSBwCoAB4dZo1FwlRWd1wT3NFqw/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 恭贺新禧
+
+![cover_image](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtBNrFD4f4KQwMwJtnib9fck6qmCwjX88B67dickrXzXHdjVWzXPQ5Q7ic6RFJI2cNJDf7zlibLdrpHEFvk90JO6QCdupREicVQJXbAU/0?wx_fmt=jpeg)
+
+#  恭贺新禧
+
+原创  人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年02月17日 09:06_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtAv1qt3yKa4z5LFfZbFsaYic8Qkeh8hXvjGYwVyrQH2LBGUiaOcDdsGITHGqqcDY8TM7K84LNpm6ibOkdpskW23UBM3rCuJ02LEWE/640?wx_fmt=jpeg&from=appmsg)
+
+
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 打造全面健康福利有效提升员工体验
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtB45UaBkwTgZ13ncagSJvnOSztkvIT8lHuufBxdNGEuBHaRg0AEIWo3jeZvcOdPFhjDbd4iaIiaQibTNokYk6pdIsRsNxc7GQzyH4/0?wx_fmt=jpeg)
+
+#  打造全面健康福利，有效提升员工体验
+
+人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年03月24日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：邢小茸 | 亚太区共享服务中心负责人 | Thoughtworks 
+
+  
+
+经济下行、降薪、裁员潮……等等网络热词的背后，折射出职场人日益增长的压力和焦虑。医疗通胀率高于薪资涨幅的市场现状使员工对自己能否负担医疗服务费用缺乏信心，更对就医“望而却步”。与此同时，心理健康、职场慢病、财务焦虑的持续高发，使职场健康风险挑战进一步升级。种种数据表明，健康危机正在职场中全面蔓延开来，愈演愈烈。这份危机也会体现在员工的工作状态上，最终会影响企业长远稳定的发展。
+
+  
+
+员工有活力，企业才有未来，而健康的人才永远是公司最硬的“底气”。  ** 健康福利不是成本，而是对人才和公司未来的投资。  **
+Thoughtworks重视员工关怀，打造落地全面健康福利，提升员工体验，激发员工活力，增强组织韧性，实现企业与人才的“双向奔赴”。
+
+** 01  **
+
+** 员工体验逻辑  **
+
+Thoughtworks成立于1993年，是一家全球性软件咨询公司。现有10,000+雇员，遍布全球19个国家，客户覆盖金融服务、零售、物流、制造等主要行业。核心服务包括企业现代化、平台及云服务，客户体验、产品和设计服务，数据战略与智能运用，数字化转型及运营，助力客户实现业务目标。
+
+  
+
+Thoughtworks共享服务中心团队发现，近年来员工状态有了明显的“质”的演变：从满意，到敬业，最后发展到充满活力。“满意”阶段的主要特征是员工的基本需求得到满足，但情感链接有限，工作只是一个谋生的手段/工具；在“敬业”阶段，员工将工作视作一份事业，为自己的工作感到自豪，愿意和公司共同成长；而到了“充满活力”阶段，员工具备强烈的主人翁意识，渴望挑战，主动思考如何通过创新创造更多价值。
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCIkS4wFrQ55ZL9MhqRnGhWPjCOjbwTlUZlGaFziaNHYTs5b5icUDibZ0Gp8FzKdJuX1d7iclN4LoegE9dFic9fn348UiaaAnwfgmzMs/640?wx_fmt=png&from=appmsg)
+
+图1 员工状态的演变
+
+  
+
+人才是企业最宝贵的资产，充满活力的员工也是企业发展的重要“推进器”。团队聚焦员工体验，以  ** 用户体验飞轮  **
+为核心引擎，设计并落地全面健康福利，打造卓越的员工体验。
+
+  
+
+用户体验飞轮的核心驱动力是全面健康福利。当公司提供全面健康福利时，员工的获得感以及员工体验会有所提升。而员工体验的提升会使与员工迸发出更多的活力、更高的敬业度，进而带来更多的业务回报，更高的客户满意度，使组织韧性增强，提升公司的人才吸引和保留能力。更多的优秀人才加入则会进一步反哺飞轮，持续为其注入新的能量，使飞轮保持运转。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtDCFDYj1W3h94ibXfeBB07r6SgTAdtT8m4RicKAseaRVqEKvQU68VQmCEhTabe3Pp26gD5h98B8R2IBcXjWfiaYkZYgT8MibC5fo74/640?wx_fmt=png&from=appmsg)
+
+图2 用户体验飞轮
+
+** 02  **
+
+** 全面健康福利设计与落地实践  **
+
+** 全面健康福利设计  **
+
+✔
+
+  
+
+什么是全面健康福利？Thoughtworks提出  ** “身心灵”全面健康模型  **
+。该模型是一套以“身心灵”全面健康理念为基础的，可落地、可执行的健康战略框架。包含生理、心理、职业、财务4大维度，核心逻辑是让生理健康保驾护航，让心理健康固本培元，让财务健康成为稳定锚点，让职业健康点燃驱动引擎，四环联动共同托起真正的全面健康。
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBJmuYjia36qadO6bMK4ze7B99ma51Pg0lYd8IZPmnyzes2UzYL66ageicGRmALuDelLLZc0K0bficGFs3kzM6s02zNuysRzhcHW8/640?wx_fmt=png&from=appmsg)
+
+图3 “身心灵”全面健康模型
+
+** 01  **
+
+** 身·身体健康与生活平衡  **
+
+除商保、体检等常规福利外，公司实行多项举措，为员工提供稳定安全的健康保障与休息支持，让员工保持身体活力与生活平衡。
+
+  
+
+→ 弹性工作制。在确保核心工作时长的前提下，员工可以灵活自主地调整工作时间，掌握自己的工作节奏。
+
+  
+
+→
+灵活的休假制度和健康的休假文化。包含年资假、停薪留职假等特色假期：年资假，在公司连续工作满10年的员工，可以享受一段长达3个月的带薪假期，以表达公司对员工10年辛勤付出的感谢；停薪留职假，允许员工因个人情况暂时离开岗位，离岗期间除薪资暂停发放外，其他福利均可正常享受。此外，鼓励管理者带头休假，践行松弛有度的工作节奏，并定期提醒员工合理安排自己的休假计划，让员工“能休假、真休假、敢休假”。
+
+  
+
+→ 远程办公。员工不再被限制在工位所在的“方寸牢笼”之中，而能够真实地触及“诗与远方”，平衡工作与生活。
+
+  
+
+** 02  **
+
+** 心·心理健康与情绪支持  **
+
+员工的心理状态与人际关系也是公司特别关注的，公司注重打造有温度的、健康透明的反馈文化，让员工切实地感受到自己是“被信任的伙伴”。
+
+  
+
+→ 定期面向全员召开会议，高层分享公司的业务状况、新商机、战略调整以及正面临的挑战等，让员工有更多的掌控感和信任感，降低因未知带来的不安和焦虑。
+
+  
+
+→ 在安排工作时，领导会充分尊重员工个人的意愿和兴趣。员工能够坦然地提出自己的想法和建议，并且这些建议也会被认真地探讨和倾听。
+
+  
+
+** 03  **
+
+** 灵·精神成长与价值实现  **
+
+我们深知，员工的幸福感不只来自于工资，还有成长感和意义感，所以我们还需要关注员工的精神成长和价值实现。因此，
+
+→ 我们为员工提供完善的培训机制和灵活的职业路径，让“员工的成长没有天花板”。
+
+  
+
+→ 我们打造技术社区、俱乐部、举办博客大赛——让员工有舞台去分享、去发光。
+
+  
+
+→ 我们鼓励员工发起参与社会公益项目，用技术承载温度，用专业去改变世界。
+
+  
+
+→ 我们倡导多元、公平、包容的文化，珍视每一个人的独特性，为每个员工提供平等的发展机会。
+
+  
+
+一言以蔽之，“身心灵”全面健康蓝图的目标是让员工“身”有活力，“心”有归属，“灵”有方向。它不只是一个简单的福利清单，更是一个有层次、有温度、有关怀的生态系统，其背后体现出公司4个核心设计理念：
+
+  
+
+✔  以员工为中心——让福利真正“被感知”：从员工全生命周期出发，洞察员工在不同阶段的需求（安全感-成长-使命感）。
+
+✔  与文化共振——让文化被“体验”：福利是企业核心价值观的体现。在设计福利时，努力承载“多元公平包容”的企业核心价值观。
+
+✔  体系化整合——让健康“有结构”：以“身心灵”全面健康模型整合福利模块，形成健康正循环。
+
+✔  数据驱动优化——让体系“可持续”：持续监测福利运行的有效性，通过数据分析与反馈持续评估迭代。
+
+  
+
+  
+
+** 落地实践  **
+
+✔
+
+  
+
+在“身心灵”全面健康福利落地的过程中，团队实行关键三步走策略：
+
+** ▋ 精准洞察  **
+，让福利“有的对”。从员工的角度出发，了解员工需要什么；细分人群画像（新手父母/单身群体/跨国合作群体），做专属关怀；盘点现有福利资源，优化使用率低的福利。
+
+  
+
+** ▋ 场景驱动  **
+，让福利“给得暖”。把福利推送与员工最需要的“关键时刻”进行绑定；注重福利交付的仪式感；聚焦“软福利”（灵活工作、扁平管理、职业发展透明度）的价值，加强文化体验。
+
+  
+
+** ▋ 故事传播  **
+，让福利“用得好”。让员工成为福利代言人，分享自己真实的体验故事；注重福利的可视化设计，让员工对公司有哪些福利、在哪找、怎么用等一目了然；邀请管理层担任健康文化大使。领导带头，定期分享健康实践，用实际行动来传递公司对健康文化的坚定支持，确保健康文化真正落地。
+
+  
+
+** ● 员工对福利的感知度低如何解？  **
+
+“公司每年花钱投入福利，员工却感知不到”，员工对福利的感知度低是当前行业普遍存在的痛点，行业报告以及公司内部调查数据也佐证了这一情况。那么，究竟如何提升员工的福利感知度，让员工切实地感受到公司的关怀和投入？团队认为关键在于，
+** 福利要让员工看得见、找得到、用得上、记得住。  **
+
+**  
+**
+
+→ 品牌体系化：设计专属logo，统一视觉语言形象，搭建福利专属品牌；规划年度主题日历，按主题、季节不断上新，提升福利的辨识度。
+
+  
+
+→ 多渠道沟通：通过邮件、企微、公众号联动推送线上线下福利活动，利用海报、易拉宝、视频等多种形式、不同渠道反复提醒，强化员工记忆。
+
+  
+
+→ 内容焕新化：以生动易懂的图文、故事、互动游戏等呈现公司的福利政策，让员工觉得福利简单好用，愿意用。
+
+  
+
+→
+平台一体化：搭建内部福利Central网站、企微福利查询工作台，内网也设置了健康福利专属入口，降低搜索成本，让员工能够精准、快速地搜索自己想要的信息资讯。
+
+  
+
+总而言之，就是用品牌吸引注意，用渠道反复触达，用内容焕新简化认知，用平台整合资源，多管齐下，确保把福利真正送进员工心里。
+
+** 03  **
+
+** 数据赋能的健康管理与优化  **
+
+如何检验福利的有效性？要用数据说话。通过数据收集、数据分析，识别和洞察员工的健康风险以及未被满足的需求。数据主要有三类来源：
+
+✔ 核心健康数据，比如体检、商保理赔、病假缺勤、企业医生看诊情况等；
+
+✔ 数据行为和影响数据，比如福利使用情况、满意度调研、员工敬业度调查报告等；
+
+✔ 外部环境数据，比如公共卫生数据、行业报告等。
+
+  
+
+注：基于员工的个体健康数据需脱敏
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAWFpwnxQiadw5b6krLjia4osUIMcfSQr27QPGibRRZGQvnO2TkQfBcib1MKblfFbgr3EibIJib5JNtEK3n3fWe7sCJ6UdnYQyD8PyB4/640?wx_fmt=png&from=appmsg)
+
+图4 数据来源
+
+  
+
+在数据分析的过程中，团队采取数据-分析-洞察-
+优化四循环，多维数据联动分析，使数据洞察更加全面、精准。基于数据洞察，识别健康风险，从而进行有针对性的干预。数据赋能能够让健康管理从看不见的问题变成可改善的行动。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtC3SRAJSW5w34GpdpN8VwcUD2Cmmy1Tt89JCmypthZYhPb4wo5U1tJIJgw6ebuu6VPvNgcjia82546E9Pj05MUGDt9zpP8Wv9R4/640?wx_fmt=png&from=appmsg)
+
+图5 数据分析方法
+
+  
+
+** 商业保险优化  **
+
+针对商业保险理赔率高、保费持续上涨的问题，团队采取六大优化策略：
+
+→ 加强理赔风控：综合交叉分析员工理赔数据和休假数据，精准筛查异常理赔情况。
+
+  
+
+→ 服务重构：深度分析现有的商保方案，移除无效服务，优化成本结构。
+
+  
+
+→
+策略调整：响应国家医保统筹政策，设计“医保先行，商保补充”的理赔方案；同时，加强科普和宣导，帮助员工更好地理解理赔逻辑，保司同步持续引导理赔行为，从而大幅降低商保理赔支出。
+
+  
+
+→
+主动干预：主动识别员工的保障需求，让商保从“事后报销工具”变成“事前的健康伙伴”。例如，在流感高发季节，发送在线问诊路径和预防保健指南，提供及时、有针对性的干预。
+
+  
+
+→ 健康前置，分流理赔压力：引入24小时在线家庭医生服务，提升员工的安全感和体验。
+
+  
+
+→ 精准科普：结合商保理赔的高频数据和体检报告的高频异常指标，定期邀请专家举办系列“靶向性”健康讲座，提升健康管理意识，规避潜在健康风险。
+
+  
+
+一系列策略行之有效，数据显示，商保的赔付率得到明显控制，员工体验和满意度有所提升。更关键的是，在公司成本和员工体验之间找到了平衡点。在数据赋能的驱动下，健康管理正从感性运营走向理性运营。那么，在AI与大数据发展迅猛的今天，健康管理的下一站会是什么？
+
+** 展望未来  **
+
+在团队看来，AI赋能员工健康管理将成为新趋势：以AI为中枢，以数据为驱动，以员工体验为核心，构建可持续、智能化的健康福利生态系统，为组织发展赋能，助力人才竞争力提升。
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBc2MwSKtN5rhVu8TEsU5ebdrrGDJ7FviaZu18Iv4QlzfvC0sYPOFgtTt5cMnialoCichsLHiceYEdQGZ4fL3DW2cibeWeNAPcfjQ50/640?wx_fmt=png&from=appmsg)
+
+图6 AI赋能员工健康管理
+
+  
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtC6fdcfaiaCCQ7B6b5sgr8nV8GhbFCyzTad93f5CwKTkFN81hkL8oVNrATUtF9ic3Hohoia4GicIS94RQNibVBWFr1QSjxqAMzxvKicY/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCgRtenTQhe4fvrJic1k3WiavqAIDa7vU9RPSAQiaBoKa6ia2C6BPEzib8CKvCnWicgdRW9ibGJbDQYaGkCL5UFY7vcibCXjleZVONiauHE/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtC4ADvk5FREP1ias2QUdSN6gxTic0tricKE9ibOJuRLfM1pKUyrE0zoYsic6uhnYQuYDDUrZibZUKCSYT4OofEIFUbaFqn48oCa2lUiaI/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCqlPq04Mugb690gIe6DDdzKyq0FkZlaxxHNCssIHoct4BTIlo6BIjYAjCkustCkVD7XQ2mhtO13DKNRsBZHHMtCSPnmeFiaKRQ/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 报名倒计时3天CHW2025中国企业健康管理论坛席位所剩无几
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXRCZIPd3UfZbSp41NLPsxFtlGrOh428UhDKClO1djIH6TaII1EbdA6Q/0?wx_fmt=jpeg)
+
+#  报名倒计时3天！CHW 2025-中国企业健康管理论坛席位所剩无几！
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月13日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcX9IYkSrpQOnibXPMrPicJsUrY5qKMUayp0kBdCeB5ecVPNl7pkt45OLSA/640?wx_fmt=png&from=appmsg)
+
+** 报名倒计时3天！  **
+
+** 报名方式：  ** ** 只要您是企业HR或负责企业健康管理工作  ** ，请长按识别右边二维码进行报名，  ** 锁定免费席位  ** ！
+
+* 谢绝人力资源服务商企业报名 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXXLrlXcPQQhrztoPfF6IjzxnHcScKBviaaMHuvdc2ibf3CAoAcC3tBcBQ/640?wx_fmt=jpeg&from=appmsg)
+
+作为企业健康管理领域的重要推动者，人力资源智享会（HREC）自 2020 年发起“  CHW 健康工作场所  ”认证项目，并连续五年举办“  CHW-
+中国企业健康管理论坛  ”，始终秉持“  健康工作，持续经营  （Healthy Workplace, Sustainable
+Growth）”的使命，助力企业构建更健康、更具活力的工作环境。
+
+  
+
+我们诚挚邀请您出席 2025 年 12 月 16 日于上海举办的“  中国企业健康管理论坛暨CHW 2026-2027健康工作场所认证企业颁奖典礼
+”，希望您能从现场的分享交流中获得新的灵感和体验。
+
+** 热点话题  **
+
+✦ 搭建员工健康管理体系，推动企业可持续发展
+
+✦ 建设企业健康文化氛围，让健康融入职场日常
+
+✦ 提升心理健康，增强组织韧性
+
+✦ 做好企业慢性病防控工作，维护职工职业健康
+
+✦ 构建高感知、低成本员工健康福利，让关怀直抵人心
+
+✦  聚焦员工多元健康需求，打造个性化健康服务
+
+✦  数字化引领智能健康管理，共筑企业健康新未来
+
+** 嘉宾及话题分享抢先知  （  排名不分先后  ）  **
+
+** 构筑员工健康新生态：一汽- 大众健康管  ** ** 理体系的建立与实践  **
+
+员工服务部健康管理负责人丨一汽-大众汽车有限公司
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcX8BHicZjE2okceInicmDygOUsgegRibIIxttJP17BRDFLBnkXlYTrBLicnA/640?wx_fmt=jpeg&from=appmsg)
+
+** 从“健康福利”到“战略韧性”：AI时代  ** ** 的企业Total Wellbeing 重构  **
+
+创新业务及市场总监 | 汉深科技 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXkZScfKedTicekiaicjQUt5Iibmicapy4N0Iq3ZVPbib014blmiaaepyIDL4Fg/640?wx_fmt=jpeg&from=appmsg)
+
+** 多元健身服务赋能健康促进  **
+
+中国区商务总监 | classpass万馆达 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXq5AGnsghISVA7q637ztyiacvRj0t6KeplHYDr6abvxEIbqXHkia947iag/640?wx_fmt=jpeg&from=appmsg)
+
+** ABB健康管理实践  **
+
+职业健康安全环保经理 | ABB 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXQ5TaSS2nfm2JN37VSOIFMHWIQqa58ibP4MJlAhSoDyYy6k9PAOTITCw/640?wx_fmt=jpeg&from=appmsg)
+
+** 从污名化到战略化的核心转变：职场心理  ** ** 健康管理  **
+
+亚太区医疗总监 | 陶氏公司 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXxSRvMIRHYlzNVH16N21R6jTQEXGmH2NtG8ElPeUGtE7fMYBI8b4QAQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 职场健康管理体系建设，打造健康文化氛  围  **
+
+华东区域行政经理 | 同程旅行 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXR4Tmw3D1WFrFCsB64XuNJPxrriatMDdHUOjrrAkf3QjmU71Lcl4r1fQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 全方位打造健康职场：企业可持续发展实  践赋能员工全健康管理体系打造  **
+
+中国区人事行政高级总监 | 爱德万测  试中国 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXJleEcCibBDP1rmFbt515e52S8ZpJsrzlItuPrjTTmAulExoBybuuLtQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 维美德-政企医携同·共筑360°职工健康  环  **
+
+职业健康管理负责人 | 维美德（中国）有限公司 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXDzY5rpVjEPdabd9GhnhxNLagSXE2ef4WyjFHdKLlwibnvQw7kVdK46g/640?wx_fmt=jpeg&from=appmsg)
+
+** 建设企业健康文化氛围，让健康融入职场  日常  **
+
+连锁HRBP高级经理 | 来伊份 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXeRiaCnwFAsMdaArCWAjjkFphaTd4yiaAGzc7DKb9mN5MlqbIwgTAwtMQ/640?wx_fmt=jpeg&from=appmsg)
+
+✦  \+
+
+\+
+
+** 特别鸣谢  **
+
+（排名不分先后）
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXe5LiaTTDnyKal4X7p8pibOg5bfqcSb0pEoMVHPFjhFDV9yIWk4sTVuhQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXhBNUd8GmzNQW9LhpJWvduNO5v30ibTYdCrzMZiarsnWPG57uTDibu6pNw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXTXehZH4gRJE4SsrTIhoV5at1XZibtiaVuAnW6TNkb1gMq1NzaZnwecZw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXzCdZzf8dAAib7Ch6gTLs53Bf0jEeqKvBpuMZP3TBe8QFOaBugLTZkVw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXxNXOhr8Ee3Via4CyRqGiaibVwz8ic8gFWyn4QDgBwjyUTjvKicYMJwco6OA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXXLrlXcPQQhrztoPfF6IjzxnHcScKBviaaMHuvdc2ibf3CAoAcC3tBcBQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 即刻锁定报名席位！  **
+
+** CHW 2025  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXzJKw2Etiaia0vrHKK1lpMr0JGYyw7jibdibbLD1qtQ2VPejOld3rkQeArA/640?wx_fmt=png&from=appmsg)
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 报名启动2026智享会人力资源供应商价值大奖
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMOarIXVgPykpjMOic8LWxkRcC1p8icJj3t4jib9FBdh7RkNqZqib06dFWKw/0?wx_fmt=jpeg)
+
+#  报名启动 | 2026 智享会人力资源供应商价值大奖 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年11月12日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6NZNSnd3SdzSJn5SD2tsEMIy2vw6oaodFjetTyLtVQ32hQLiaUzjxm2Q/640?wx_fmt=png&from=appmsg)
+
+2026年，智享会“人力资源供应商价值大奖” 将再度璀璨启程，引领行业新篇章。
+
+** 四大奖项，三十六个细分赛道，等你来。  **
+
+  
+
+智享会在人力资源行业内深耕多年，凭借卓越的服务品质与深厚的专业底蕴，累积了优秀且众多的优秀人力资源供应商客户资源与案例。
+
+  
+
+** 八届零收费、零捆绑，宁缺毋滥。  **
+
+我们用透明流程，把“  ** 公平、公正、公开  ** ”写进评选基因。
+
+  
+
+我们从  ** 广义知名度、狭义知名度、市场使用率、品牌推荐度  ** ** 四个维度  ** ，用数据说话。超过千位实名HR
+高管参与调研，让每一张选票都成为行业风向标。
+
+  
+
+我们把“酒香”抬到聚光灯下，让优秀被行业听见。
+
+  
+
+与此同时，智享会紧跟人力资源行业市场动态与企业人力资源实践反馈，每年精心编纂“智享会供应商采购指南（TPG, The Purchasing
+Guide）”并不断更新迭代，现已成为HR 们在选择采购供应商时不可或缺的权威参考与风向标。
+
+  
+
+乘势而上，“2026 智享会人力资源供应商价值大奖”启程！我们将继续贯彻  ** “汇聚优秀供应商，推广最佳服务，引领人力资源行业发展”  ** **
+为目标  ** ，倾力打造这场关于HR 供应商的评选盛宴。你还在等什么！四大奖项，等你来！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6dy7WlrY8mqkkGMrH04PNOnYNuTqwI8NVT1p3z16xI5ictgaKjgXRhHA/640?wx_fmt=jpeg&from=appmsg)
+
+识别二维码在线报名
+
+注：参选全程不收取任何费用
+
+  
+
+** 01  **
+
+** 奖项设置  **
+
+** 2026 智享会招聘与任用供应商价值大奖  **
+
+** ★ 2026 招聘测评解决方案HR臻选供应商  **
+
+** ★ 2026 灵活用工HR臻选服务机构  **
+
+** ◎ 2026 灵活用工HR臻选服务机构-服务业  **
+
+** ◎ 2026 灵活用工HR臻选服务机构-制造业蓝领岗位  **
+
+** ◎ 2026 灵活用工HR臻选服务机构-白领岗位  **
+
+** ★ 2026 招聘流程外包HR臻选服务机构  **
+
+** ★ 2026 招聘管理系统HR臻选供应商  **
+
+** ★ 2026 员工背景调查HR臻选服务机构  **
+
+** ★ 2026 残疾人招聘就业HR臻选服务机构  **
+
+** ★ 2026 高端人才寻访HR臻选服务机构  **
+
+** ★ 2026 雇主品牌咨询HR臻选服务机构  **
+
+** ★ 2026 出海招聘服务HR臻选供应商  **
+
+** 2026 智享会学习与发展供应商价值大奖  **
+
+** ★ 2026 领导力发展HR臻选服务机构  **
+
+** ★ 2026 销售培训HR臻选服务机构  **
+
+** ★ 2026 在线和移动学习技术和平台HR臻选供应商  **
+
+** ★ 2026 在线和移动学习内容HR臻选供应商  **
+
+** ★ 2026 个人能力发展HR臻选服务机构  **
+
+** ★ 2026 企业语言培训HR臻选服务机构  **
+
+** ★ 2026 教练技术培训HR臻选服务机构  **
+
+** ★ 2026 专业能力发展HR臻选服务机构  **
+
+** ★ 2026 团队建设和拓展训练HR臻选供应商  **
+
+** 2026 智享会人力资源技术供应商价值大奖  **
+
+** ★ 2026 人工智能技术应用—学习与发展HR 臻选供应商  **
+
+** ★ 2026 人工智能技术应用—招聘与任用HR 臻选供应商  **
+
+** ★ 2026 HCM系统—本地部署HR臻选供应商  **
+
+** ★ 2026 HCM系统—云服务HR臻选供应商  **
+
+** ★ 2026 劳动力管理解决方案HR臻选供应商  **
+
+** ★ 2026 电子签名及电子合同解决方案HR臻选供应商  **
+
+** ★ 2026 人才管理平台HR臻选供应商  **
+
+** 2026 智享会薪酬与福利供应商价值大奖  **
+
+** ★ 2026 健康保险HR臻选供应商  **
+
+** ★ 2026 体检与健康管理HR臻选供应商  **
+
+** ★ 2026 EAP HR臻选服务机构  **
+
+** ★ 2026 薪酬与福利咨询HR臻选服务机构  **
+
+** ★ 2026 薪酬管理外包HR臻选服务机构  **
+
+** ★ 2026 弹性福利HR臻选供应商  **
+
+** ★ 2026 薪酬管理与核算系统HR臻选供应商  **
+
+** ★ 2026 出海薪酬服务HR臻选供应商  **
+
+** ★ 2026 企业健身空间与服务HR臻选供应商  **
+
+  
+
+*声明：智享会保留根据实际参选和评选情况变更以上  奖项设置和数量的权力。 
+
+  
+
+  
+
+** 02  **
+
+** 参评收益  **
+
+♦ 获得在智享会和各大相关媒体上推广宣传企业的机会
+
+♦ 参评即可获得来自500家甲方企业的调研反馈，帮助企业了解市场知名度、美誉度以及客户服  务等方面的一手信息，产生销售线索，促进业务拓展
+
+♦ 获奖后将在智享会微信公众号、《HR Value》会员通讯内参及各大人力资源相关媒体上公布获
+奖名单，向全国20w+人力资源从业者展示荣誉，最大范围提升企业知名度和美誉度
+
+♦ 获奖企业介绍将收编进业内公认的供应商采购指南 《HR年度采购指南暨智享会人力资源供应  商价值大奖分类榜单》，简称“TPG 红宝书”
+，供广大人力资源从业者做采购决策
+
+♦ 受邀参加颁奖典礼，与10000+位人力资源专业人士一起见证荣耀时刻
+
+  
+
+** 03  **
+
+** 评选流程  **
+
+  
+
+** 报名  **
+
+报名并提交参选材料
+
+** 初选  **
+
+根据企业提交的申请材料，进行初步审核，考察资料真实性，产生初选入围名单
+
+** 终选  **
+
+根据智享会甲方调研问卷，考核企业，产生最终获奖名单
+
+** 颁奖典礼  **
+
+** 2026年9月8-9日 ALL IN 2026-智享会人力资源服务展上海站  **
+
+  
+
+** 报名截止时间：  ** ** 2025年12月31日（星期三）下午5时30分  **
+
+** 参选表格请邮件  ** ** :  ** **** SAwards@hrecchina.org
+
+  
+
+** 04  **
+
+** 评选原则  **
+
+  
+
+** 严谨性  **
+
+严谨和严密的评选流程，保障评选公正性
+
+** 保密性  **
+
+评选方将对参选方的不公开内容进行严格保密
+
+** 公开性  **
+
+参选和评选流程透明，公开，避免黑箱操作
+
+** 非营利性  **
+
+整个评审过程采用自愿申报，全程不以任何形式收取费用
+
+** 05  **
+
+** 参选条件  **
+
+♦  以公司/团体形式参选
+
+♦  参选企业须在中国大陆注册满2年，且体系完整，卓有成效
+
+♦  参选企业提供人力资源相关服务
+
+♦  参评企业如获奖，愿意授权通过智享会网站建立供应商档案
+
+  
+
+** 06  **
+
+** 往期精彩呈现  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6xR1VLDzDiaxL2R9I5O0CfqNKHIBNttVFSnSiaAKRlmWEEibdChibSArF9g/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6icoGH4dW9JMGiblZDcgXD9fjSDSXDjiaOBicTbiaCeYQS5pXa8RNvOnxyXA/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6f9lqNP5doHO8ib80FWfXyicBiaUpicxskPHP8d3nkXqqic4VZ2yTmyga8eQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6V9xF2bmOxyO2cqW5wEvroLNCoeRbLKbkmicHgL3TeKFCuIPDGbUD1OA/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6YeoKHr1QZurfSDxzqNibZp94KM2NBG81ozUiceKBptGtrgOYue89UVlA/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ66JbpAOr3KyRZsA0tJUYf5X3Z7qKNtpvz27qpTcJLZtdv6Qic3PhAyEw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6LYuSTzznRrF7DAySn78EuVGAkcYjc1XVkIVFwOOOcIibb4tNookor8g/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6dP60egbicsBjhK9XrXgrPU6OmlJxtKU38ELY0JVZK44x8VmLnibMjMlA/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6VeZnV3ZCdd3ulQctWl5ibIcZkticlUMtkRz6LK4rHXnp6ua3L6yayjXg/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6fSyiaPt3B96mR2u7Vxy7TaibSkdaKv99f0n1ibibvk7tXlHlnLcHrrGEdQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR8PGS83A8sGCfgFoPxWrJ6icbZrEZdHpm1KzzFxtoHF83l810D6OBBGa4kqGz8jNfZtib2tme1icTgg/640?wx_fmt=jpeg&from=appmsg)  
+
+左右滑动查看更多盛况
+
+  
+
+  
+
+** [ 2024 智享会人力资源供应商价值大奖 四大奖项获奖名单重磅公布
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649426812&idx=2&sn=996480728e2f3fab7d825dd8ce760a00&scene=21#wechat_redirect)
+**
+
+** [ 2025 智享会人力资源供应商价值大奖 四大奖项获奖名单重磅公布
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649468815&idx=2&sn=a829a2c4171f89b88f34ef8192faa4eb&scene=21#wechat_redirect)
+**
+
+（点击文字查看往期精彩）
+
+  
+
+  
+
+** ****** 👇  ** ** ** ** 马上点击  ** 阅读原文报名评选  ** ！
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+---
+
+## 探访直击走进伊顿亚太区人力资源服务中心HRServices运营实践分享
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQKnxTwoiaI5qNTmVV3QzvmnGHcT3O48NEO2Sv9L6kNemGuf3ysradAwSIzAyCDuIBibsYW28T15n8A/0?wx_fmt=jpeg)
+
+#  探访直击 | 走进伊顿—亚太区人力资源服务中心 (HR Services)运营实践分享 
+
+原创  人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月03日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+2025年11月25日，智享会成功举办了一场意义非凡的企业探访活动：  ** 走进伊顿—亚太区人力资源服务中心 (HR Services)运营实践分享
+**
+
+  
+
+  
+
+** 企业简介  **
+
+** 伊顿&伊顿人力资源服务中心  **
+
+伊顿公司是一家智能动力管理企业，致力于以可持续方式应对全球动力管理挑战，服务于数据中心、公用事业、工业、商业等多个关键领域。公司创立于1911年，2024年全球销售额近250亿美元，业务覆盖160多个国家。自1993年进入中国市场以来，伊顿持续拓展本地业务，目前在中国拥有约8,000名员工和20家生产基地。
+
+  
+
+亚太区HR
+Services作为区域性人力资源服务中心，为近20,000名员工提供涵盖职业生命周期管理、薪酬结算、客户支持等端到端人力资源服务。通过持续推动数字化转型与流程优化，中心不断改善员工体验、提升服务效率与质量，有效支持业务发展并满足员工多样化需求。
+
+  
+
+  
+
+** 活动现场  **
+
+  
+
+_** 现场实况速递  ** _
+
+  
+
+本次伊顿公司交流活动汇聚了多家企业的行业精英，现场交流与学习氛围浓厚。参会者认真聆听每一位嘉宾的分享，积极互动。这份专注与热情，既体现出大家对伊顿公司在智能动力管理、可持续运营及帮助客户管理动力等方面实践成果的高度认可，也展现了行业对可持续发展与数字化转型深度融合的深度期待。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVD7EDHVMPmn4KL8MoYZRfOvYnDOzWKMicahaa82fBUhhrMXGRNK43Yaw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVxzATCAOjzYd03NJUgTDkbwXXE6icuNf9ricicaNQvWicbrhibpx7ngBqrYQ/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+**_ 精彩合照  _ **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVm94MBJcpLz68rQZaMaHUNkTX6jqvZUZMFS4VuLckz3Yn0sE0W4ZLGg/640?wx_fmt=jpeg&from=appmsg)
+
+_** 颁奖  ** _
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVesoKU8jic9s4Mkiay4yQGxRWJiahpIKmmJ14L0ItKSa9jlRicm9QrTS1hw/640?wx_fmt=jpeg&from=appmsg)
+
+**_ 伊顿  _ **
+
+  
+
+  
+
+**_ 伊顿公司介绍及人力资源战略分享  _ **
+
+_ 吴女士 |  伊顿集团亚太区人力资源副总裁  _
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVkO64kiaYpGT0BI0TgLvEiagnDAZFOfy4wdqZ3Hu8wO8kZsRHxYTOibz7g/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+
+_** 赋能业务、连接未来：伊顿HR Services卓越运营及数字化转型  ** _
+
+_ 包女士 | 伊顿HR Services亚太区总监  _
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVbsj0wGItLzKh3XbxcpNpB3QpyVSKckwkuUOR3OkqvgiarkHvduMeLGQ/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+**_ 重塑服务体验：伊顿HR Services服务创新与实践案例  _ **
+
+_ 郭女士 | 伊顿HR Services东亚北亚区负责人  _
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVF6UckeEgVk76ncqOeyoPqAqqGAYTsia3STpmUqDQagBAtTgCnZa6iaMw/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+**_ 伊顿亚太区总部实地探访  _ **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jV9Xn6WKaibYa8FibdW7MZC6S9JX007icrqAibcxxuxbibOX4QhJZsIbVkWkA/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVc4xfZ1pKR6r5et3fibazjhm2VOeKYz3AEicC7fRoVYrkwjjjagPt1maA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVD1nPoAt94njn82k1cNOfF5fYsJ48vc3nu3vbWCKHFWOA93zCDS0yfg/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+  
+
+  
+
+** 未来展望  **
+
+  
+
+智享会作为行业内的权威组织，始终致力于促进企业之间的交流与合作，共同探索行业发展的新趋势和新模式。此次走进伊顿公司的活动，是智享会积极响应会员需求，为企业提供深度学习与前沿分享平台的重要举措。
+
+  
+
+本次活动，伊顿公司围绕智能动力管理、可持续运营及帮助客户管理动力等核心议题，分享了其在可持续发展与数字化转型融合的先进理念与卓有成效的实践，结合互动研讨，助力与会者拓宽思路、激发策略创新，为企业战略转型与可持续发展注入新动能。
+
+  
+
+相信未来，更多企业能够借鉴伊顿公司在动力管理领域的前瞻视野与实践成果，共同推进产业的高质量发展与绿色可持续未来。
+
+  
+
+  
+
+** 智享会会员权益  **
+
+  
+
+智享会每年举办  ** 2  ** 场大型展览，  ** 5  ** 场高峰论坛，  ** 10+  **
+场的大型主题年会：众多细分领域的品牌盛会已深入人心，成为专业人士学习前沿趋势、优秀实践的首选。近  ** 20  **
+场标杆企业探访带您深入剖析领先企业的最佳人力资源实践。  ** 50+  ** 场空中课堂与网络会议使会员足不出门就能了解管理前沿、法规动态。  **
+60+  ** 场人力资源专业培训与线上训练营，全方位覆盖人力资源各模块的线上、线下学习。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVm3OKRJnQl8IWicRQHNP2YcHwYtlaxdc2GpzpLicL9CUVxcrc74IMudcw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVdYTrBXRXLViaZgDa9bheJk76j4OKPaollSwG7gHat6DJ0HYBicF2nh4w/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jV1x8whkeTI324Iy2yMh0Qajylc7bgDYkBtrjaBUAC70k2tibbHY6SAWg/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVx2iaSkS5Qeep7gFOma7QINrOBAFWnvVrB7RPDib6Qb9nDs40XYh4UbXw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVE7u4ibeiby6NdnsFaKNPvIeS31pGfolbHj5JCaWxVfRCHjicmweMFGiaEQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQU1gicgkUMNSibLDP0cHl0jVkku0Zfdb0Mvy0rYQ2jjWdHb8ITIYUZfydHEbrt2roILI1jUEIUPfEw/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+  
+  
+  
+
+** 点击阅读原文，了解更多会员权益...  **
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 探访直击走进施耐德电气组织变革与组织效能提升
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSCjUR7hr5qToVMOpkTcFa22ClCcWz2J9Up0ccENsRSdEpRjvmpcJy82V4zXWR7Qjx6PxdxotEFQQ/0?wx_fmt=jpeg)
+
+#  探访直击 | 走进施耐德电气——组织变革与组织效能提升 
+
+原创  人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月02日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+2025年11月27日，智享会成功举办了一场意义非凡的企业探访活动  ：  ** 走进施耐德电气——组织变革与组织效能提升  ** ** 。  **
+
+**  
+**
+
+  
+
+  
+
+** 关于施耐德（北京）低压电器有限公司  **
+
+** 施耐德（北京）低压电器有限公司  **
+
+施耐德电气的宗旨，是赋能所有人对能源和资源的最大化利用，推动人类进步与可持续的共同发展。我们主要服务于家居、楼宇、数据中心、基础设施和工业市场。我们通过集成优秀的工艺和能源管理技术，从终端到云的互联互通产品、控制、软件和服务，贯穿业务全生命周期，实现整合的企业级管理。施耐德电气是一家拥有本土化优势的全球企业，我们致力于推动开放的技术及合作伙伴生态圈，积极践行有意义、包容和赋能的共同价值观。
+
+  
+
+施耐德（北京）低压电器有限公司由施耐德电气公司（法国）、施耐德电气（中国）投资有限公司以及北京经济技术投资开发总公司共同投资。主要从事生产、装配、提供自产产品的电力设备及零部件产品和低压塑壳断路器，生产的产品在中国低压配电领域遥遥领先，在施耐德电气也具有及其重要的战略地位。在加速企业发展的同时，施耐德（北京）低压电器有限公司也注重人才培养和科技创新，以卓越的工作态度和敬业精神为业务的可持续发展提供动力；并且我们也关注社会责任和绿色可持续，以降低对环境的影响，展现出企业的公民形象和社会责任感。施耐德（北京）低压电器有限公司以卓越的产品质量、创新的技术、优质的服务以及可持续发展的理念赢得了广大客户和合作伙伴的信赖和支持。
+
+  
+
+  
+
+** 活动现场  **
+
+  
+
+_** 签到  ** _
+
+  
+
+本次探访活动吸引了众多来自不同企业的HR代表。智享会的工作人员热情地迎接每一位到场嘉宾，并引导大家进入会议厅，正式开启一场精彩纷呈的活动之旅。活动现场，学习分享的气氛热烈而浓厚，参会者们全神贯注地聆听每一位分享者的精彩发言，在这样的氛围里，大家对施耐德也有了更为深入的认知。
+
+** 施耐德电气全球供应链人才战略及敏捷转型案例分享  **
+
+Meng Wang
+
+施耐德电气能源管理低压事业部SWEEC业务HR Leader
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH83W4UobWa2eSdTFudwJGtGqeWVCjFNe6r2iaGbkhng3z3mzs7Ph0feicQ/640?wx_fmt=png&from=appmsg)
+
+** 施耐德电气全球供应链蓝领转型战略分享  **
+
+Mengyun HU
+
+全球供应链中国区北京工业园人力资源经理
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8BcsO4F8ficQnNes3Ky4w2IIdS8tV97AhftPcSUiaiaeyVeY0DBwZBiap4Q/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+
+  
+
+  
+
+_** 颁奖&合影  ** _
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8V8QiaexsgYeBklVvPxibfrZvcc4G7gkwyqf2WfAwZu3M0lTUKCXWNdhw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8kTSZhGNE1s0Sokva56TxmyuVrdzicDn8BIN159JOaWwKJLRWE69Mq1g/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+**_ 实地探访  _ **
+
+  
+
+  
+
+  
+
+** 未来展望  **
+
+  
+
+智享会作为行业内的权威组织，始终致力于促进企业之间的交流与合作，共同探索行业发展的新趋势和新模式。此次走进施耐德的活动，是智享会积极响应大家需求，为会员提供一个学习与交流平台的重要举措。
+
+  
+
+通过此次活动，会员们深入了解了施耐德在组织变革与效能提升方面诸多举措，亲眼见证了其在数字化转型道路上的卓越实践与丰硕成果。相信在未来，施耐德将继续以创新为引领，以数字化为引擎，不断拓展发展新空间，为行业、创造更多价值。
+
+  
+
+期待更多企业能够借鉴施耐德的优秀实践经验，共同探索人力资源管理的新趋势！
+
+  
+
+  
+
+** 智享会会员权益  **
+
+  
+
+智享会每年举办  ** 2  ** 场大型展览，  ** 5  ** 场高峰论坛，  ** 10+  **
+场的大型主题年会：众多细分领域的品牌盛会已深入人心，成为专业人士学习前沿趋势、优秀实践的首选。近  ** 20  **
+场标杆企业探访带您深入剖析领先企业的最佳人力资源实践。  ** 50+  ** 场空中课堂与网络会议使会员足不出门就能了解管理前沿、法规动态。  **
+60+  ** 场人力资源专业培训与线上训练营，全方位覆盖人力资源各模块的线上、线下学习。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8iaFCa3icXiazVZzdTiaIoVvEnm7Bnt9cMaGTuP4vjlhbKEXTA3ClurJXQA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8BwQbshC3rK5ibhVZLxHNf2mKlxLYEmIaFhsVUfd5AUTX2R4GvUnFkiag/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8owk84shDUe6yWuOVh9LKTSQ3fd9YvFicsGQm3eap9KmibOrUJO95jAIg/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8mvibI6ian1XpulN0144ejW8rGUv6rvac3Ribtwr7MQJ4rV3aLH0YHqMvg/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8CNYzjYafL52BDcFXwdtEGVEZPaM6l5dSppGWClibPtFuGDSplsiagLEw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8RJA5tgEhSdmXgbsmjYwUolJVfyLTuo000yHH9b0Uqjiclv7m7gy8GKw/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+  
+  
+  
+
+** 点击阅读原文，了解更多会员权益...  **
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 探访直击走进老板电器薪火相传利聚人心探秘老板电器激励之道
+
+![cover_image](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtA87ZJHx6PhdJBeKkuy01Z8ic9narvcpG6c2ib6VDZb5iaLU7JWt65UA1YicIhqz1dP1Eib6Mx3FDicysnyaIhnz1OnYoqrSFYFL65EM/0?wx_fmt=jpeg)
+
+#  探访直击 | 走进老板电器：薪火相传，利聚人心——探秘老板电器激励之道 
+
+原创  人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年03月19日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+2026年3月18日，智享会成功举办了一场意义非凡的企业探访活动  ：  ** 走进老板电器：薪火相传，利聚人心——探秘老板电器激励之道  **  
+
+**  
+**
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCBaZJkGRrntrfz6LYkZGRmUVwlfbIEpA2rJc3edteDAHnBoBDicP3zX7I246qgInbnJ4HCXV1m9dwGyUiajKqKxNDNnicRPfQbdU/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+** 关于老板电器  **
+
+** 老板电器  **
+
+杭州老板电器股份有限公司（股票代码：002508，股票简称：老板电器）创立于1979年，专业生产吸油烟机、集成油烟机、蒸箱、灶具、消毒柜、电烤箱、微波炉、洗碗机、净水器、燃气热水器等家用厨房电器产品。经过47年的发展与壮大，老板电器现已成为中国厨房电器行业发展历史、市场份额、生产规模、产品类别、销售区域都排在前列的，社会公认的领导品牌。
+
+四十余年的时光里，老板电器始终坚守“创造人类对厨房生活的一切美好向往”的使命，将烹饪视为企业的星辰大海，并为此倾注全部的专注与热爱。在深耕烹饪赛道的过程中，老板电器始终用科技创新引领烹饪变革，不断为社会创造价值。
+
+时至今日，老板电器已成为中国厨房电器行业发展历史最久、市场份额最大、产品类别最全的领导品牌，深受全球用户信赖与喜爱，油烟机、灶具连续11年全球销量领先，大型烹饪电器连续4年全球销量领先。老板电器还率先研发全球首套数字厨电以及AI烹饪伙伴ROKI先生，发布行业首个食神大模型“食神”，推动行业进入数字烹饪时代。在新时期国家打造新质生产力的背景下，老板电器坚持科技+人文的发展主线，主动探寻自我蜕变升级和行业发展的新路径，提出“烹饪全链路整体解决方案提供商”的全新企业定位，推出“烹饪自由
+享受创造”的品牌价值主张，提出“你的AI烹饪伙伴”的全新品牌定位。今天及未来，老板电器将继续秉持对于烹饪的坚定信仰，重塑烹饪的社会价值和意义，成为
+每个人、每个家庭的烹饪伙伴。也将通过推动数字烹饪科技的普及，为不同人群提供个性化量身定制的软硬件解决方案，让每一个人在烹饪中的个性化需求得到充分满足，享受烹饪创造的快乐，从而增进家庭关系，促进社会和谐，也让烹饪的意义生生不息。
+
+  
+
+  
+
+** 活动现场  **
+
+  
+
+_** 签到  ** _
+
+  
+
+本次探访活动吸引了众多来自不同企业的HR代表。智享会的工作人员热情地迎接每一位到场嘉宾，并引导大家进入会议厅，正式开启一场精彩纷呈的活动之旅。活动现场，学习分享的气氛热烈而浓厚，参会者们全神贯注地聆听每一位分享者的精彩发言，在这样的氛围里，大家对老板电器也有了更为深入的认知。
+
+** 老板电器变革困局下的组织活力再造  **
+
+袁女士
+
+人力资源总监
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtAv3tiaoYLuJrjwibgYR2WA8rtogfHN4fCicCferblicHDZbENyShOMspWFwqJemficpvOITd1a0W3hI1ibIdHmCwVjCXialtH6ARfTxQ/640?wx_fmt=jpeg&from=appmsg)
+
+** 探秘老板电器薪酬激励之道  **
+
+高先生
+
+高级组织与人才发展经理
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtAXlVyQngc5hdyD8UialIlX3BSkDoibkPsNMMFickqUqkucrVFekww7gueAFsGz8c7iahyHY8UeOyPJFRnHeoarSvX6iaBYDGeHODp4/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+
+  
+
+  
+
+_** 颁奖&合影  ** _
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtDxklcOHwTSiadCgPGNs7bazlqWSltBtM42PHia3rFuEibpQia1dToQJ7YaRey3fFdkqaibojhE9oXc5DFTNReO2MnjG5K4FNPQFGZ4/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtBH1Xdzhxbgp2J7ld6fOodXiakQsPK9OJsMKkliahB24UXVl4VewC3cicVu5RRRE7ibwU5P30dPrkFnFP98joibLdFAemUfLCIIKUr8/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+
+** 老板电器展厅实地参观  **
+
+  
+
+  
+
+  
+
+** 未来展望  **
+
+  
+
+智享会作为行业内的权威组织，始终致力于促进企业之间的交流与合作，共同探索行业发展的新趋势和新模式。此次走进老板电器的活动，是智享会积极响应大家需求，为会员提供一个学习与交流平台的重要举措。
+
+  
+
+通过此次活动，会员们全面探寻了老板电器薪酬福利体系与员工激励之道，亲眼见证了其在人才培养创新实践的丰硕成果。相信在未来，老板电器将继续以科技+人文为引领，以完善的激励机制为支撑，持续激活人才活力，为行业创造更多人力资源管理与企业发展深度融合的价值典范。
+
+  
+
+期待更多企业能够借鉴老板电器的优秀实践经验，共同探索新时代下薪酬激励与人才发展的新路径，让人力资源真正成为企业高质量发展的核心驱动力！
+
+  
+
+  
+
+** 智享会会员权益  **
+
+  
+
+智享会每年举办  ** 2  ** 场大型展览，  ** 5  ** 场高峰论坛，  ** 10+  **
+场的大型主题年会：众多细分领域的品牌盛会已深入人心，成为专业人士学习前沿趋势、优秀实践的首选。近  ** 20  **
+场标杆企业探访带您深入剖析领先企业的最佳人力资源实践。  ** 50+  ** 场空中课堂与网络会议使会员足不出门就能了解管理前沿、法规动态。  **
+60+  ** 场人力资源专业培训与线上训练营，全方位覆盖人力资源各模块的线上、线下学习。
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCfUSibgcmauh80sOdelDVIiaAGko7fZZ5iatGhpTfdCmyte7Kz5D0rAicyl7JEWhM12plZGqt5LFRkLJ7LSsHE5HXTE893ZzvTbDI/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtBOkMmHkCiaBKdTmlCoklZf7Ukd0lFQFKqfIlnZEOgwZKyIgsaLXNbjicD2cYWVlSFL6dNe8BN9xg8maQAWAUunPZSttg5837JJU/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAbO4RfXFShdibYLXG3khtWMyFzbqy3nNS9oOH6r7veUoHd4EF2gRVXn9SgQDa1J488ktib5LsV6Tl2icIVn937zYSSa3UyURQe7Y/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBCic7ianGk14cftHeLibmbDhH9okBPXz97RlriaVO2ITMxJx4ic0tuYS6z6ApCOlKaVtPuoLezicnghicUEfmiazXyPZUSYkRTn7IrgMc/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCEfWwqUWZZf4dYL2wyYaNHM6CKicAiaNrq4LedwfNbL9kk7gQdkyvgZnKEib2trHKZvhaz5bEFt9QLicGictzFZmYfib6reSHMOaQOU/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtDkAGu7C9AdOjp2gIibrDo7eKwQsJKMdk4wmce7tlSvOicgDR4Ha0rDf4nYzE9DsQEa5rb85Rubmp995uXVkMnGY7KFGuOKHnmOU/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+  
+  
+  
+
+** 点击阅读原文，了解更多会员权益...  **
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 探访直击非凡之境探秘捷豹路虎全地形组织生态
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQKnxTwoiaI5qNTmVV3QzvmnGHcT3O48NEO2Sv9L6kNemGuf3ysradAwSIzAyCDuIBibsYW28T15n8A/0?wx_fmt=jpeg)
+
+#  探访直击 | 非凡之境：探秘捷豹路虎全地形组织生态 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年11月27日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+2025年11月25日，智享会成功举办了一场意义非凡的企业探访活动：  ** 非凡之境：探秘捷豹路虎全地形组织生态  **
+
+  
+
+  
+
+** 企业简介  **
+
+** 捷豹路虎  **
+
+作为英国最大汽车制造商，捷豹路虎于2021年提出“重塑未来”全球战略，以可持续发展为基石，定义新现代豪华主义。2023年，该战略进一步深化，推进品牌重塑与全面电动化，目标是成为全球领先的新现代豪华汽车制造商。通过强化各品牌个性，捷豹路虎加速愿景落地。
+
+  
+
+在可持续发展驱动下，捷豹路虎致力于以灵活运营服务高端消费者，并计划于2039年实现全供应链与运营的净零碳排放。电动化是战略核心，目标在2030年完成全面电动化：揽胜、发现、卫士家族将陆续推出纯电车型，捷豹品牌则将完全电动化。
+
+  
+
+中国市场是“重塑未来”战略的先锋。自2010年入华以来，捷豹路虎已在上海、北京、广州设立办公室，拥有近240家经销商，持续为中国消费者提供优质产品与服务。通过丰富产品布局和深化本土化，目前多款车型及英杰力2.0升发动机已实现在华投产。
+
+  
+
+  
+
+** 活动现场  **
+
+  
+
+_** 现场实况速递  ** _
+
+  
+
+本次探访活动汇聚了多家企业的行业精英，现场交流与学习氛围浓厚。参会者认真聆听每一位嘉宾的分享，积极互动。这份专注与热情，既体现出大家对捷豹路虎在“重塑未来”战略、新现代豪华主义理念及员工旅程等方面实践成果的高度认可，也展现了行业对可持续发展与本土化创新深度融合的深度期待。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSicibezygYUXkJLbtRPncicZT0O1LKQul3GegHmAztZRgaC6b5LBzOmV2vmJibibTy6ciakPnkeIOvVx4w/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSicibezygYUXkJLbtRPncicZTpoVv50vJj8KNx7HuiaNE4wcr6hteumldVoFaDWPYUb2mKeJVoV8nlzg/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+**_ 颁奖  _ **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSicibezygYUXkJLbtRPncicZTh4TOPOicpXSCMH5X67Asxvs0HOXoq2rhpr7Xn0TINeicdX5FFagqNv1g/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+
+**_ 重塑员工旅程的引擎  _ **
+
+_ Mark Pan  _
+
+_ 捷豹路虎中国人力资源数字化与卓越高级经理  _
+
+_  
+_
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSicibezygYUXkJLbtRPncicZTjFibfvy801dZ7g9Wy5PQShFAp9nC5iaYev9IiaqT45IYVUzSgWPFnF3Cw/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+_** 从非凡文化到极致体验  ** _
+
+_ Stella Shen  _
+
+_ 捷豹路虎中国行政及资产高级经理  _
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSicibezygYUXkJLbtRPncicZTRbOygFOCyfU0uwO4LFVWc2pOYLAIk1QM85C1HXiawO9Ta481Kd6KTEg/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+
+**_ 企业-产品-雇主品牌的同心圆  _ **
+
+_ Vivian Zhang  _
+
+_ 捷豹路虎中国雇主品牌负责人  _
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSicibezygYUXkJLbtRPncicZTD3M51fjJtyuibocViaf3AD5ViaS4CBoUMibmPE4lmch3tNFn64XsVm5uVw/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+**_ 从财务数字到组织密码  _ **
+
+_ Olivia Zhao  _
+
+_ 捷豹路虎中国人力资源执行副总裁  _
+
+_  
+_
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSicibezygYUXkJLbtRPncicZT0dzEp8RKRKo0tpvCUoFhic20EHk1GuudAfWxbOKEYibyOKS2xQVaIImQ/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+**_ 精彩瞬间  _ **
+
+  
+
+  
+
+  
+
+  
+
+  
+
+  
+
+** 未来展望  **
+
+  
+
+智享会作为行业内的权威组织，始终致力于促进企业之间的交流与合作，共同探索行业发展的新趋势和新模式。此次走进捷豹路虎的活动，是智享会积极响应会员需求，为企业提供深度学习与前沿分享平台的重要举措。
+
+  
+
+本次活动，捷豹路虎围绕“重塑未来”全球战略落地、新现代豪华主义产品定义及员工旅程等核心议题，分享了其在可持续愿景规划与本土化创新融合的先进理念与卓有成效的实践，结合互动研讨，助力与会者拓宽思路、激发策略创新，为企业战略转型与可持续发展注入新动能。
+
+  
+
+相信未来，更多企业能够借鉴捷豹路虎在组织生态和员工旅程方面的前瞻视野与实践成果，共同推进汽车产业的高质量发展与绿色可持续未来。
+
+  
+
+  
+
+  
+
+** 智享会会员权益  **
+
+  
+
+智享会每年举办  ** 2  ** 场大型展览，  ** 5  ** 场高峰论坛，  ** 10+  **
+场的大型主题年会：众多细分领域的品牌盛会已深入人心，成为专业人士学习前沿趋势、优秀实践的首选。近  ** 20  **
+场标杆企业探访带您深入剖析领先企业的最佳人力资源实践。  ** 50+  ** 场空中课堂与网络会议使会员足不出门就能了解管理前沿、法规动态。  **
+60+  ** 场人力资源专业培训与线上训练营，全方位覆盖人力资源各模块的线上、线下学习。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSicibezygYUXkJLbtRPncicZTnCAJlicXicNh6NF1ono0VQyWQrham1BEf6BTekhhnFgnOAhVPGo51BWA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSicibezygYUXkJLbtRPncicZTicwDk4nsOC8icGfkib6CYCla4XABrnaEgicyntria5vFQ5iaMcOHOcMS5gGg/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSicibezygYUXkJLbtRPncicZTgBS73coaCjNWz4h7UnrPFs4uWVrccAtCUx0zg0lZkmB9gYdib1aYNZA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSicibezygYUXkJLbtRPncicZTibwsibia5x2MkzTtHz4osIib4oCmKXPcibegrQQURadYoEEjNtJlbtohUOw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSicibezygYUXkJLbtRPncicZTKPamZY1SAp4uVR7dnia8ia8aPTAuKEcUF6PADr15OghNGyaVuEooB6tA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSicibezygYUXkJLbtRPncicZTI1vubTXzsrX3fvSFRu2ia0NNlb8xOiaVCHfh8H4PsB0Wa3ia3h9x58vaQ/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+  
+  
+  
+
+** 点击阅读原文，了解更多会员权益...  **
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 智享学堂免费直播课从本土到全球海外HR必须跨越的三道坎邀您参加
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCoO9EibREgDO3a9Uibq1f5UVcK8ibvgfaKHPqeuYUlpgZfFDsTPAe0klIKjIib0Mold4jsMUnibiaSrYbkAeaZ0D4S0HoTuV9ftNH4g/0?wx_fmt=jpeg)
+
+#  智享学堂免费直播课《从本土到全球，海外HR必须跨越的三道坎》邀您参加！
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年04月03日 17:22_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+** 智享学堂 线上直播课程  **
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtBRwgraHlRmvaEnMtMqcEDTfUOudamF0xDrN5TckkERHtIeoNAMZKNpDBN2064gr0h17fvjSk1d1hAicynaq125lEwMre0PHOAg/640?wx_fmt=jpeg&from=appmsg)
+
+** “  ** ** 4  月  9  ** ** 日  ** ** （  ** ** 周四）  **
+
+** 晚上20:00 - 21:00  **
+
+  
+
+  
+
+4月9日（周四）晚上20:00-21:00，由江玉林老师为您带来《从本土到全球，海外HR必须跨越的三道坎》的直播分享。
+
+  
+
+  
+
+** 分享嘉宾  **
+
+  
+
+  
+
+** 江玉林  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtD0tlfcZl0naoS8tLrVltiaPOlsSs18zV1sXvxH1IPyVvZcdiadN6iacba5iagbFfUQqXy84usvZhia5HYj7PddVCpCErATkhVvpot4/640?wx_fmt=jpeg&from=appmsg)
+
+跨文化管理专家 | 人力资源高管 | 出海人力资源专家 
+
+  
+
+** ·  ** 10余年亚洲、欧洲和北美国际化人力资源管理实践，深谙国际化人力资源管理和不同法律、文化背景下的国际化团队管理；
+
+** ·  ** 多次参加境内和跨境投资并购，从尽职调查到投后管理，积累了丰富的投资和整合经验；
+
+** ·  ** 从“0”到“1”的出海建厂和经营实践，具有全流程北美制造业出海亲身经历，熟悉北美法律和文化环境，曾受到美国商务部嘉奖；
+
+** ·  ** 荷兰Geert Hofstede
+授权的CWQ跨文化管理师，在跨文化理论研究、实践、国际化团队搭建和人才培养以及不同文化背景的的企业经营方面具有一定的理论和实践经验；
+
+** ·  ** 美国ACDI职业发展与转型教练，高级职业规划师（中国），并担任西北工业大学、 西交利物浦大学等多所大学企业导师；
+
+** ·  ** CIPT国际职业培训师、CCDM高级职业规划师
+
+** ·  ** 原大型外企组织发展专家、高级人力资源经理/原A股上市公司HRVP、副总裁兼北美事业部CEO
+
+** ·  ** 2025中国人力资源高管峰会、CEO论坛等演讲嘉宾
+
+** ·  ** 中国国际电视台CGTN《Nixon's Trip to China - Impact on Business》访谈嘉宾企业家
+
+  
+
+  
+
+  
+
+** 日程安排  **
+
+  
+
+** 时间：4月9日（周四）晚上20:00-21:00  **
+
+  
+
+** 课程大纲：  **
+
+-Global HR，企业出海不可或缺的关键角色 
+
+-海外合规管理，背法条还是找规律 
+
+-从Local Hire到全球人才供应链 
+
+-Global HR的另一个角色，跨文化赋能官 
+
+  
+
+  
+
+  
+
+** 关注智享学堂服务号  **  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCKssn9IuNMVfENmia4dhXkgRbUWgHBIF74hZrUpfv7GyhN7J0dsplECoPyYfxkVGnAQhW9YWT7qHNOryJn6YTicozz1921ia2GibI/640?wx_fmt=jpeg&from=appmsg)
+
+** 对话框中回复“1”  ** **  
+**
+
+** 获取直播间二维码  **
+
+  
+
+“
+
+  
+
+** 关于智享学堂：  **  
+
+智享学堂是智享会旗下品牌，旨在满足广大HR个人学习者的学习需求。在线课程及活动覆盖劳动法律法规、人才管理、组织发展、学习发展、薪酬福利、绩效管理、招聘任用、员工关系、HRBP、HRSSC等人力资源细分领域。
+
+预览时标签不可点
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 浅谈冲刺跑和马拉松式的提效应用在ABB电气业务群的实践
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQ8lic6g0syvsu5LV44tIGFnCyKmibiaZeYicTrMRPZlhz0YCYgLBwGfuoiaLNoGo2mxvETGy8D5ibwEwrQ/0?wx_fmt=jpeg)
+
+#  浅谈冲刺跑和马拉松式的提效应用在ABB电气业务群的实践
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月09日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：金辉Iris | 时任人才与组织发展伙伴 | ABB电气 
+
+  
+
+当下组织提效是一个热门话题，从人力资源的视角出发，组织提效怎么做？有哪些可行的组织提效方式？落地实践过程中有哪些注意点？……提效，本质上是组织变革，牵一发而动全身，在实践的过程中需要紧密结合组织现状，和具体业务、战略相挂钩，ABB中国区人才与组织发展团队联动业务和HRBP，协作配合，综合运用冲刺跑和马拉松式提效举措，助力ABB电气业务提效，在Vuca时代走得更稳、更远。
+
+  
+
+** 常见的提效方式  **
+
+  
+
+当具体业务出现一些契机和信号，例如数据、人员以及对业务经营情况的分析，还包括自上而下的组织变革等等，组织提效便提上日程。对于ABB电气来说，高频率的组织变革是启动提效的契机。在助力组织提效的过程中，人才与组织发展团队实践了三种提效方法：
+
+** 经营管理方式提效  **
+
+  
+
+  
+
+由于提效和业务战略以及战略落地执行的过程挂钩，因此经营管理提效的核心是提升战略目标的执行效率，具体动作包括：
+
+  
+
+♦ 战略目标澄清与绩效评估的有效性。
+
+♦ 战略落地工作坊与跟进复盘战略目标的执行效率。
+
+♦ 变革管理协同项目管理。
+
+♦ 反馈和绩效文化的增强。
+
+  
+
+** 运营管理流程提效  **
+
+  
+
+  
+
+包含优化管理/工作流程、跨部门横向协同两步：
+
+  
+
+♦ 优化管理、工作流程：减少非必要的审批步骤，缩短决策流程；数字化协同办公系统提升一体化管控能力；共识协作场景与流程，敏捷管理方式。
+
+♦ 跨部门横向协同：共担级联指标；职责梳理；协作流程梳理；横向部门拓展训练。
+
+  
+
+** 组织和人才管理提效  **
+
+  
+
+  
+
+包含优化组织、人才盘点与能力提升两步：
+
+  
+
+♦ 优化组织结构：整合业务单元；合并冗余部门；拓宽管理范围；建立共享服务；扁平层级和精算FTE。
+
+♦ 人才盘点与能力提升：战略目标澄清；职能和职位的重新排序，核心能力与盘点；各层级战复杂度的定义与动态可视化人才地图支持人才决策。
+
+  
+
+** 浅谈冲刺跑和马拉松式的提效应用在ABB电气业务群的实践  **
+
+  
+
+** 冲刺跑式的提效方式  **
+
+冲刺跑式的提效方式由优化组织结构—优化管理/工作流程—跨部门横向协同三个动作构成，优点是短平快，能够立马看到效果。
+
+  
+
+** 优化组织结构  **
+
+在优化组织结构的过程中，团队做了两项动作：①摒弃单纯的“做减法”，进行人的变革管理。将细分业务转化为小微组织进而打通，基于员工在组织中的能力要求和角色分工，进行岗位上的调整。②整合业务单元。并非简单的合并和精简，而是基于战略落地实际，重新梳理岗位评级。
+
+  
+
+** 优化管理/工作流程  **
+
+优化管理流程的核心动作是精简汇报层级。由于组织主要采取产销研三段式管理，以往产销研分别向其全球职能汇报。为实现提效以及更加直观地看到业务结果，团队推动业务汇报下落至本地市场，便于衡量某产品/解决方案在具体市场中的现状，有效提升了业务的响应速度。
+
+  
+
+决策流程的缩短也带来了新的问题。ABB有着浓厚的工程师文化，员工也多有大工业背景，秉承项目管理思维，在一定程度上存在对“人”层面关注度不足的问题。随着层级的优化、审批流程的精简，组织内部产生了一些情绪上的反弹，加上内部竞争加剧，以及数字化解决方案对各部门（HR、财务、采购）带来的冲击，导致跨部门协作难度增强。
+
+  
+
+** 跨部门横向协同  **
+
+为促进跨部门横向协同，团队推动HRBP和业务部门协作，共同梳理职责、协作流程，识别协作场景，共担级联指标；与此同时，打造内部工作访，发展“内部工作访引导师”角色，开展横向部门拓展训练。
+
+  
+
+** ▋  跨部门协作：拆掉部门墙  **
+
+团队从文化价值观切入，做了两大动作：①推动新的文化价值观与集团战略目标同频上线，切实地将价值观纳入人才筛选标准；②加强反馈文化，重塑客户的定义，在企业内部使用工作成果的人/团队/部门都属于客户的范畴。从客户体验的视角出发去思考如何协作以及其中的痛点和积极体验（见图1），澄清协作需求，拉齐部门间的信息不对称。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiah5KKn8KCOuLeChibY8bwdcLvhBaRIYhs5PgMHepSoyYq8KO8EzKYJKw/640?wx_fmt=png&from=appmsg)
+
+图1 协作需求的澄清和流程优化
+
+  
+
+** ▋  同组织上下层及协作：GRPI模型  **
+
+GRPI模型（见图2），即Goal（目标）、Role（角色）、Process（流程）、Interaction（互动）适用于推进新产品开发以及同一职能部门不同层级的相互协作。在ABB，工厂生产端的职能部门结构庞大，约占中国区总人数的三分之一。团队运用GRPI模型，通过区域试点，赋能HRBP，使组织内部就目标、角色分工定位、流程等达成一致，提升同组织内上下层级的协作效率，减少内耗。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBia4qbmSWPUWkzLRphYjG9elTVj0Wry6528q0jiay2saAz1pOEQ9wLuyNA/640?wx_fmt=png&from=appmsg)
+
+图2 GRPI模型
+
+** 马拉松式的提效方式  **
+
+冲刺跑式的提效方式虽然立竿见影，但仅仅停留在员工能力、组织运营层面，并未触及根本，对于组织的长远发展而言仍然是不够的。当业务契机（管理层发生变动、业务面临生存危机）到来时，有必要更加深入地思考如何让业务走得更稳更远，团队称之为“
+** 马拉松式的提效方式  ** ”，本质是与业务同频共振，包含两方面：战略目标的执行效率和人才盘点与能力提升。
+
+  
+
+战略落地的过程中可能会遇到很多的阻碍，例如只有KPI数字的拆解，缺乏对目标的澄清，没有资源分配和行动方案的共识；行动方案制定了很多，但是没有几个可以坚定不移且不打折扣地实施；进度复盘容易陷入事务性的汇报，而非敏捷地解决问题本身……这些都是战略落地过程容易遇到的共性痛点。
+
+  
+
+针对以上痛点，团队做了四项关键动作，以提升战略目标的执行效率：①战略目标澄清与绩效评估的有效性；②打造战略落地工作访：从TTAF《战略落地工作坊设计》中汲取灵感，按照“OD先行—LD辅助—TD联动”的思路推进战略落地工作访；③变革管理协同项目管理：ABB有着浓厚的工程师文化，过去采用项目管理方式，有很多的专职岗位。随着公司数字化加速发展，数字化系统的上线应用，加强在人层面的变革管理在组织上下形成共识；④增强反馈文化：
+** 运用ADKAR变革管理模型  ** （见图3）增强反馈文化，在“人”的层面上进一步提升变革项目的使用率和技能熟练程度。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiafZtK4RleiantXzNxU7vWtaPX64SmzHjEDxWNCv4yXQwia0T95lNj5VvA/640?wx_fmt=png&from=appmsg)
+
+图3 ADKAR变革管理模型
+
+  
+
+当业务、战略目标都已澄清，下一步就是思考如何选人用人，在人才管理方面，团队总结了三步动作：①战略目标澄清；②重新排序职能和职位，盘点人才与核心能力：团队采用“人才净值得分”公式进行人才盘点。
+** 人才净值得分=（%未来领导者+%成长型人才）-（%表现不佳者+%困境者）  **
+。相较于常见的九宫格盘点法，人才净值得分能够以数字化的形式动态、直接地反映战略落地的效率。③定义各层级战复杂度，打造动态可视化人才地图。
+
+** 个人反思与开放式交流  **
+
+  
+
+在Iris看来，提效的本质是变革。发起人的决心、组织文化的准备度、一致的沟通、适合的方法、关键层级和职能的支持、业务契机……组织变革需要方方面面的准备，但这并不意味着必须“万事俱备”，天时地利人和才能开启变革。在不确定性加剧，Vuca成为时代关键词的当下，一切都处在动态的变化之中。
+
+  
+
+HR应当用一种动态发展的视角，既看当下，也看长远；既看微观，也看大局。对于组织发展过程中的一些突发事件，转变思维，将其视作变革契机而非全盘抵触。在业务不断催着往前走时，仍然保持相对冷静的思考，为每一个项目留白，静待花开。
+
+  
+
+注：文章整理于2025年9月  ▋
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiafAEPwMZPpkng313WhYtj8vqIdbeDnjL5y9KA0Ht5BHG2PfQIx0eIUQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiageGEYEWJlesI5bc6Slu8K2j4VR5ykInZFL5xia0sJwhmYR6ibJcuzFkg/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRfrGTZZxWHcBfbibm1PtuBiaSbfvE9zb2qVcKfFmV32odibrH48Z2vmard8WZiceLxDqD1ibqJs0EOl4w/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHhz6ticP9CO4owZnI7QK1LHRPibtYbFHnvTQHJU6ic9viblGZKvVCk6Msog/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 液化空气集团招聘团队转型升级和组织效能提升的探索
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTzyk1ibuvP6q6q0dDL7zb4iayZnN0rQkVjUjRfgB4IPLrnHo4z3O7BuDT9gQhvWdbaRiayI9Arep3xQ/0?wx_fmt=jpeg)
+
+#  液化空气集团 | 招聘团队转型升级和组织效能提升的探索 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月25日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：徐颀 | 大中华区人才招募总监 | 液化空气集团 
+
+  
+
+液化空气集团是全球工业与健康领域气体、技术和服务的领导者，业务遍及72个国家/地区，员工约67,800人，为400多万名客户与患者提供服务。自1902年成立以来，得益于具有韧性、强有力的商业模式、创新能力和技术专长，集团业绩稳定且可持续增长。为适应稳健的业务模式，助力业务发展，集团招聘团队加快转型升级，组织层面对齐目标战略，优化流程，强化跨部门协作，构建数据驱动的招聘决策体系；同时赋能团队成员的专业技能提升和职业发展，多措并举赋能组织效能提升。
+
+  
+
+  
+
+** 招聘情况简述  **
+
+  
+
+现如今，企业人才招聘正面临日益复杂的局面，从外部环境来看，宏观经济的变化直接影响企业招聘策略，企业的态度趋于谨慎。而就业市场上，劳动力的流向和技能错配使得结构性矛盾更加突出。站在企业的视角，高技能人才的争夺和灵活用工的部署也是亟需面对的挑战，对于推行本地化招聘策略的外企来说，如何招聘更多高技能的本土人才更是难题。当下，AI技术的发展对企业人才招聘带来冲击，AI的应用正在深刻改变企业的招聘模式和人员的技术要求。以上种种因素共同作用致使企业招聘更加复杂和挑战。
+
+  
+
+在液化空气集团，招聘团队需要面对的挑战是非常艰巨的。从2024年集团的招聘现状来看：招聘岗位涵盖数十个工种，工作地点涉及38个城市，蓝领员工占总招聘人数60%，岗位集中在一线运营部门。其中，偏远地区以及二三线城市的人员招聘数量较多，且并非持续招聘，这些都对人才库的保存和通过校招输送人才带来挑战。作为国际化企业，集团重视招聘的多元化，制定三年策略，承诺于2025年实现女性管理和专业人员占比达35%。除了精细的招聘需求之外，招聘节奏也需与业务保持同步，这就对招聘团队的效能提出更进一步的考验。
+
+  
+
+然而，招聘团队较为精简，由人才招募伙伴和人才招募专员构成，后者为第三方招聘人员，流动性相对较高，因此如何在维持团队稳定性的同时持续保证乃至提升招聘效能也是团队思考的重中之重。“更少、更高、更快、更好”的要求背后是对招聘团队质量和效率的高标准及严要求。在此情况下，招聘团队探索通过团队的转型升级，提升招聘效能，进而助力组织效能的提升。
+
+  
+
+** 具体举措  **
+
+  
+
+在企业里，人才始终是各类核心业务的驱动因素，人才招聘的重要性不言而喻。液化空气集团的招聘团队从组织和个人角度出发，实行一系列举措，从而提升招聘效能。
+
+** 组织角度  **
+
+** 01  **
+
+  
+
+** 对齐人才招募目标与业务战略  **
+
+将招聘目标与公司的整体业务战略紧密结合，落实执行集团策略以及多元化招聘策略。深入理解未来的人才需求，并将其转化为清晰的招聘指标，如关键岗位到岗时间、招聘成本、人才质量等。同时，加快“走出去”的步伐，扩展支持领域和服务范围，接手全球工程中心及其他附属机构的人才招聘，参与招聘指标的设计和制定。
+
+  
+
+** 02  **
+
+  
+
+** 持续优化招聘流程  **
+
+全面梳理现有的招聘流程，识别瓶颈环节，并协调整合内外部资源，推动流程自动化，减少重复性和事务性工作。在梳理招聘流程的过程中，团队发现相关角色以及工具应用等方面存在改进优化的空间，因此调整人员部署，设立
+** 流程优化负责人  ** ，统筹招聘流程优化。
+
+  
+
+▶ 根据集团要求，整合部署全球化ATS系统和本地自动化平台；
+
+▶ 与全球共享服务中心合作优化新员工入职流程；同时，加强跨部门协作，开展定期会议、专项活动等；
+
+▶ 持续推动自动化，包括岗位创建、招聘数据仓库的建立和规范、满意度调查等。
+
+  
+
+** 03  **
+
+  
+
+** 强化跨部门协作与沟通  **
+
+建立与用人部门的常态化沟通机制，深入了解他们的具体需求、岗位职责和期望，共同制定人才画像，确保招聘方向的准确性。
+
+  
+
+▶ 定期与业务部门以及HR部门管理层开展会议；
+
+▶ 与业务部门合作制定专项行动计划，提升多元化招聘成功率；
+
+▶ 与财务和HR部门合作统一、规范数据流和统计口径，实现实时互联互通。
+
+  
+
+** 04  **
+
+  
+
+** 构建数据驱动的招聘决策体系  **
+
+建立完善的招聘数据收集和分析体系，跟踪关键招聘指标，分析招聘渠道效果、候选人来源、面试转化率等，为优化招聘策略提供数据支撑。
+
+  
+
+▶ 构建招聘数据仪表盘，与集团和亚太的标准相衔接，实现实时监控；
+
+▶ 利用数字化工具，定制专题和小型的招聘报表，为制定招聘策略和实施效果追踪提供支持。
+
+  
+
+** 05  **
+
+  
+
+** 营造积极的雇主品牌形象  **
+
+通过各种渠道（如社交媒体、招聘网站、行业活动等）积极展示公司的文化、价值观和发展机会，吸引更多优秀人才的关注。
+
+  
+
+▶ 采用PDCA的方式，持续改进新员工的入职体验；
+
+▶ 开展校园活动，如物流规划大赛、黑客松等。
+
+  
+
+** 06  **
+
+  
+
+** 拓展多元化的人才获取渠道  **
+
+积极拓展多元化的人才获取途径，如内部推荐、猎头合作、校园招聘、人才招聘、人才库建设等。
+
+  
+
+▶ 建立并持续管理专项人才库，利用企业微信等渠道与候选人保持联系，逐步提升转换率；
+
+▶ 更新升级员工内部推荐政策。
+
+** 个人层面  **
+
+AI技术的快速发展和落地应用对企业招聘人员的专业技能提出了更高的要求，当下招聘人员需要具备更强的洞察力，除了人才搜寻等基本专业技能之外，还应持续发展招聘技巧、沟通协作等专业素养，为此团队实施了以下举措：
+
+  
+
+** 01  **
+
+  
+
+** 持续学习与发展  **
+
+为招聘团队成员提供定期的培训和学习机会，包括招聘技巧、面试方法、行业知识、法律法规、沟通协作等方面，提升他们的专业素养。具体包括组织各类工作坊、邀请外部猎头公司分享经验以及利用内部学习平台加强学习。
+
+  
+
+** 02  **
+
+  
+
+** 明确岗位职责与分工协作  **
+
+清晰界定每个招聘团队成员的职责和工作范围，加强沟通，确保团队内部的分工明确，避免职责不清和重复劳动。同时，鼓励团队成员之间的协作和知识共享。在分工方面，除了内部日常工作外，还会分配专项任务，帮助招聘人员提升技能。此外，通过定期会议和团建活动加强员工的归属感。
+
+  
+
+** 03  **
+
+  
+
+** 提升面试和评估技能  **
+
+加强招聘人员的面试技巧培训，包括结构化面试、行为面试、情景模拟等方法，提高面试的客观性和有效性。同时，培养他们综合评估候选人能力和潜力的能力。在专业技能培训的过程中，通过1对1观察和反馈以及HRBP反馈，综合提升招聘人员的面试技巧。此外，持续关注AI工具的使用和训练。
+
+  
+
+** 04  **
+
+  
+
+** 培养积极主动的工作态度  **
+
+鼓励招聘团队成员积极主动地思考和解决问题，不断寻求创新和改进的机会。打造新员工入职体验项目，帮助新员工更好地融入，营造积极向上、充满活力的团队氛围。
+
+  
+
+** 05  **
+
+  
+
+** 关注招聘人员的职业发展  **
+
+为招聘团队成员提供清晰的职业发展路径和机会，帮助他们实现个人成长和价值，从而提升团队的稳定性和归属感。随着集团建立全球支持模式后，招聘人员不仅可以转型成为HRBP，也可以发展成亚太或全球招聘专家等，具有丰富的职业发展通道。此外，团队鼓励招聘人员参与HR项目甚至是业务项目，以提升业务敏感度。
+
+  
+
+** 06  **
+
+  
+
+** 有效利用技术工具和数据分析  **
+
+培训招聘人员熟练使用各种招聘技术工具（如ATS系统、社交媒体平台等），并能够理解和分享招聘数据，从而做出更明确的决策。
+
+  
+
+自2023年招聘团队逐步启动转型升级开始，集团的招聘效能稳步提升。数据显示，2024年总体的招聘成本相较去年显著降低。TTF（Time to
+Fill，从岗位批准到候选人接受录取通知书）、TTO（Time to
+Onboard，从岗位批准到候选人入职）两项数据显示，交付时间得以缩短，招聘满意度达到91%，候选人反馈整体达到89.29%。
+
+  
+
+在转型升级的过程中，招聘团队总结了几点经验：首先是招聘团队的组织形式必须应用于时代，根据具体的岗位需求等不断进行变化；其次要控制成本，提升效率。在提效方面，团队探索内部员工+三方员工的模式，并根据团队的实际情况持续调整，拓展三方员工的成长路径；第三，关注招聘数据，不仅要重视结果（Lag
+KPI），更要重视Lead
+KPI，加强对过程的关注度；第四，对AI保持积极的态度并加以应用。AI技术发展迅猛，可谓势不可挡。与其主动为自己设限，不如跳出舒适圈，尝试新领域和新的可能。
+
+  
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxywlfFKZy8Hr5keGiade8PfuhMtDsARCSGibEyT6wxZ124rNqL1NianQU7A/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyu6LWGqdljG9HryMmLwwbxEbcQVe5R8XaYpIH1ic1ZFPiauWeNl4dlTkQ/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxy584lzYPu6gic0cWqqtwz4MetsNEUaaKNonCIbhwDFNxHic1flykze5iaA/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TROaDKDeOuSoYJoyMzlhSSx0ZMrWOklWSHJ50Cxs2ATU4oaBicG8icMVH6FwQeaNw5w3269ASVibg9Sg/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 畅海组织出海说如何定义全球化的组织
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSzLOQDB3XlicXRrNgiaC67Ef2TvEH0jDtibjRYqibhZZwUKvxhkBNBw9HoEdfL1JliabJtlNDUdjHr2Eg/0?wx_fmt=jpeg)
+
+#  畅海组织出海说 | 如何定义全球化的组织 
+
+原创  人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月22日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：Bruce老师 | 畅海堂出海服务总经理&香港特区生产力局首席顾问 
+
+  
+
+我经常听到有企业家的朋友和我说，我的公司在东南亚开了工厂，在欧洲和美国也搞了销售和研发中心，我现在是全球化的企业了。我往往会恭喜他走出了全球化组织的第一步。我经常被问到什么是全球化组织，它到底长得什么样，它成功的标准是什么？
+
+  
+
+全球化组织是一个被  ** 大量误解的问题  ** 。在现实生活中，绝大多数企业做的是“  ** 业务国际化  ** ”，而不是“  ** 组织全球化
+** ”。前者是“我把产品卖到海外、把产能放到海外”，后者则是“我的组织本身已经具备跨国家、跨文化、跨制度运行的能力”。两者之间，有一道非常深的鸿沟。
+** 全球化组织，并不等于“海外布局+多国业务”  **
+，一个非常常见的误区是：只要公司在多个国家有员工、有法人、有营收，就自然是全球化组织。但事实恰恰相反。如果我们拆解来看，很多所谓“全球化公司”具备的只是以下特征：
+
+★ 决策权仍然高度集中在总部
+
+★ 海外团队更多是“执行端”或“成本中心”
+
+★ 关键岗位由母国人员垄断
+
+★ 重要制度、流程、价值观只在总部有效
+
+★ 海外组织缺乏真正的授权与自治
+
+  
+
+这种模式，本质上是  ** “跨国经营的单一国家组织”  ** ，而不是全球化组织。真正的全球化组织，不是“地理上的分布”，而是  **
+组织能力、权力结构和运行逻辑的全球化。  **
+
+  
+
+** 我的总结全球化组织大约有4大核心特征。  **
+
+** 01  **
+
+** 全球化组织的第一个核心特征：权力与决策的分布式  **
+
+判断一家公司是否是真正的全球化组织，我通常会问一个非常简单的问题：  ** 关键决策，是在哪个层级、由什么人做出的？  **
+如果所有以下决策都必须回到总部：
+
+→ 产品路线
+
+→ 价格体系
+
+→ 关键客户
+
+→ 人员任免
+
+→ 本地合规与风险判断
+
+  
+
+那么无论你的海外规模多大，你的组织仍然是“单极”的。真正的全球化组织，一定具备  ** 多中心特征  **
+：不同国家或区域，拥有真实的业务决策权，区域负责人不仅对总部负责，也对结果负责，本地团队可以在规则内“自行判断、自主行动”。这背后，并不是放权这么简单，而是总部是否
+** 具备规则设计、而非控制行为  ** 的能力。
+
+  
+
+** 02  **
+
+** 全球化组织的第二个核心特征：组织设计是趋向“平台化”，而不是简单的“层级化”  **
+
+很多企业在国内已经是高度层级化的组织，一旦走向全球，就会自然放大这些问题：
+
+♦  总部 → 区域 → 国家 → 城市
+
+♦  汇报链条极长
+
+♦  决策周期被严重拉长
+
+♦  跨国协同成本极高
+
+  
+
+而真正成功的全球化组织，往往具备明显的  ** 平台型特征  ** ：
+
+♦  总部负责战略、规则、资源配置
+
+♦  共享平台负责能力输出（如研发、数字化、人力、财务）
+
+♦  业务单元围绕市场高度自治
+
+  
+
+你会发现，优秀的全球化组织，反而  ** 不像一个传统意义上的“大公司”  ** ，而更像一个由规则和接口连接起来的网络。
+
+  
+
+** 03  **
+
+** 全球化组织的第三个核心特征：人才体系的全球化，而非“外派驱动”  **
+
+这是中国企业在全球化过程中最容易卡死的一点。很多企业在海外成功初期，依赖的是大量中国外派干部，偏重延用国内的强执行、强控制的模式。但一旦规模扩大，这种模式就会迅速失效：
+
+♦  外派成本极高
+
+♦  管理半径急剧放大
+
+♦  本地人才厚度薄，本地高潜人才无法上升
+
+♦  团队文化冲突开始积累和显现出来
+
+  
+
+真正的全球化组织，  ** 一定以本地人才为主体  ** ：
+
+♦  本地管理者进入核心岗位
+
+♦  本地高潜人才有清晰的成长路径
+
+♦  关键岗位不以国籍作为隐性门槛
+
+  
+
+同时，总部自身也必须发生变化，  ** 总部高管团队本身，就应该是多元文化、国际背景的  **
+。如果总部仍然是清一色的“母国背景”，那这个组织在结构上就不可能是真正全球化的。
+
+  
+
+** 04  **
+
+** 全球化组织的第四个核心特征：价值观与制度，能够跨文化运行  **
+
+很多企业在海外遇到的问题，并不来自业务，而来自制度失灵。
+
+  
+
+比如：
+
+★  绩效体系在不同文化下失效
+
+★  激励机制无法真正驱动本地团队
+
+★  内部沟通高度依赖“关系”和“默契”
+
+★  决策依赖非正式网络
+
+  
+
+全球化组织，必须具备一套高度制度化、低文化依赖度的运行机制：
+
+★  清晰、透明、可预期的规则
+
+★  以结果和数据为核心的评价体系
+
+★  减少对“自己人文化”的依赖
+
+  
+
+这并不意味着要消灭文化，而是要让文化  ** 不成为组织运行的障碍  ** ** 。  **
+
+  
+
+** 那么全球化组织的成功标准是什么？  ** 很多企业问我：那么，如何判断我们是不是已经成为全球化组织？我通常给出四个判断标准：
+
+** ✔  ** ** 没有总部人员驻扎，海外业务是否依然健康运转？  **
+
+** ✔  ** ** 关键岗位是否能自然产生本地继任者？  **
+
+** ✔  ** ** 总部是否可以更像“平台”和“规则制定者”，而不是简单的“指挥部”？  **
+
+** ✔  ** ** 企业是否能在多个国家同时扩张，而不是依赖单一路径复制？  **
+
+  
+
+如果答案大多是否定的，那你仍然处在“全球化早期阶段”。  ** 全球化组织，本质是一种“高级组织形态”  ** ** ，并不是规模问题，而是能力问题。
+** 它要求企业：放弃对单一文化、单一经验的依赖；放弃对“可控性”的执念；用制度、平台和信任，替代个人能力和关系网络，很多企业并不是做不到，而是  **
+还没准备好付出这个代价。所以我们国内相当多的企业还刚刚走到这条路的起点。  **
+
+  
+
+  
+
+** 作者介绍  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTQmMXfd6drgbeEBegqUd5CNYmKA0CUBZeIrIw79WWGR4n5C5yL4guxwoHMtIYZQLNqHYoj3HG6AA/640?wx_fmt=jpeg&from=appmsg)
+
+** 陆忠亮  **
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTQmMXfd6drgbeEBegqUd5C5IBRuGMurRhwl0rOpCicREDMgcKloKWRRqTLyEMfLKIJiag4P6fGVvQw/640?wx_fmt=png&from=appmsg)
+
+** 畅海堂出海服务创始人  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTQmMXfd6drgbeEBegqUd5CdcJrzicg3DlY1Qdfo0siazpiaLytYEfXF14ETsoeApMyiaECeozLzAj2PQ/640?wx_fmt=png&from=appmsg)
+
+** 香港特区生产力局首席顾问  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTQmMXfd6drgbeEBegqUd5C5IBRuGMurRhwl0rOpCicREDMgcKloKWRRqTLyEMfLKIJiag4P6fGVvQw/640?wx_fmt=png&from=appmsg)
+
+** 前海尔副总裁，海外首席人力资源官  **
+
+  
+
+畅海堂致力于企业的全球化组织建设，我们服务和赋能中企出海和组织全球化，我们的团队均来自于全球500强的知名企业，拥有丰富的跨国管理与出海实战经验，能有效地为客户解决企业在出海和全球化过程中的战略，组织和运营类的问题，助力开拓全球市场。
+
+  
+
+陆老师在战略管理，组织和企业运营领域拥有三十年的全球化实战经验，现任多家上市公司顾问和独立董事。广泛服务国央企，头部民企和外企客户。他曾任海尔副总裁，海外首席人力资源官，管理全球业务组织运营。陆老师也曾长期在跨国公司任职，历任通用电气，杜邦，百特医疗等多家跨国公司高管。
+
+  
+
+如果需要联系 Bruce老师，请添加企微
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTQmMXfd6drgbeEBegqUd5CTc6SKNk7CXfL7icW4alNJJZ0c3XaVhUjqY14eWYf63ugfM8ePhTsZAw/640?wx_fmt=png&from=appmsg)
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTQmMXfd6drgbeEBegqUd5CicMnfzTguDjjFsibVhkrx7jvxwKJG1EXc4hYoR2mSnS7kE48LQMwc8oA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTQmMXfd6drgbeEBegqUd5CSyicbCvraqrxbvvypiaeWJz1hc9tC2BvKfEyRNzVV2T1klj6vaPJKr6w/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTQmMXfd6drgbeEBegqUd5C05icTJhBVW8PGApb5bOCsg6S80y30Zib4qKibJG6yFcnCxct5Lfe7sVcg/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQDVCCVzerlibgTfCHSRpedSEUBiaXDWdEicdYIK5BJszv6wicfvqO4mH0ibcaxDrXicX7iaMPPibKXSuIZkg/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+关注该公众号
+
+[ 知道了 ](javascript:;)
+
+微信扫一扫  
+使用小程序
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+![](https://wx.qlogo.cn/mmopen/T44yYgwOfD3ddtrrLiaySUOwz2EOuarykGJIuaOicrmia5avJZjKWrB2LhF2JI8jypxCsusOPNiap6UZ5kibAr00ZKUUabccjibLlN/64)
+
+Franklin G来自
+
+重新认识一下Bruce老师[呲牙]
+
+
+---
+
+## 盛况直击12月16日由智享会主办的中国企业健康管理论坛暨CHW20262027健康工作场所
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTaqmuVz16GDcVBRNOjLRsx7J6hlickRIv9vvtdeoJMCib48Xurm7j7YHxVbibcHSA2VDTetOOyU3cjg/0?wx_fmt=jpeg)
+
+#  盛况直击｜12月16日 由智享会主办的“中国企业健康管理论坛暨CHW 2026-2027健康工作场所认证企业颁奖典礼”隆重举办！
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月17日 18:00_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+  
+
+** CHW健康工作场所2026-2027  **
+
+** 获得认证企业名录  **
+
+  
+
+** 钻石标准认证企业  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyLaibVYsQIXSlU98qRUdXvyk4pT7Wp3AxZWOWYf6rGMBNL2WuCRdHEWA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxypzkcPapqoU4L4ia8zl8wT1HjIVa5ianuoUKHHarYEicUyibIMJrerS0gmw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyZd2jUuYicPEoicnKHwHj7SbHLibApMxRxDsKcg47yicEswJHibTfPia9VCag/640?wx_fmt=jpeg&from=appmsg)
+
+<<< 滑动查看更多图片 >>>
+
+** 黄金标准认证企业  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyhtMQBzzkIl1wZU2pSMwn0NDjq2icVRgZbgprlU0NWZkwe0K96ecB5gw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxy9dPBv5biah7JInyJc72fO36qrw2Ds45Sb9fDdnuEBffnUWY7fdUxqNA/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyusRCDA08wIA1bE5X7zljUPuxhia6jQS2ib6fyYxcPicD3003p8w76Pa5A/640?wx_fmt=jpeg&from=appmsg)
+
+<<< 滑动查看更多图片 >>>
+
+  
+
+** 论坛简介  **
+
+  
+
+人力资源智享会(HREC) 2020年发起“CHW 健康工作场所”认证项目，并每年举办  ** CHW 中国企业健康管理论坛  **
+至今已逾六年。我们的使命是“  ** 健康工作，持续经营(Healthy Workplace, Sustainable Growth)  **
+”意在借助这一认证项目，提升企业对健康管理的重视程度，引导更多中国企业打造健康的工作场所，从而可持续地发展，共同推进健康职场、健康中国。
+
+  
+  
+  
+
+NEWS
+
+  
+
+** 现场实况速递  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyyL5YKQkQTEBGHgoxVw3squV0Ajh57Rf2iavFia3mc8NT0yZFtPKNDIQA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyM72LzDRkNr5tkgGGG6dE4aeKclmjX6h9HkUMDTibkjYJhOSNvCm0iaTQ/640?wx_fmt=png&from=appmsg)  
+
+本次论坛吸引了500余家企业HR报名。活动现场，多位企业人力资源高管、行业优秀人力资源服务商代表，以及来自不同领域的健康管理专家齐聚一堂，从实践出发，共享洞见，共同探讨中国企业健康管理发展之路！
+
+  
+
+  
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxylrzspZeYhV5uicR9pvic2RJNAHa65kUYiahccU9FWVbfREqWNMXOib1D6Q/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyHW5fHBva2DricWQibc1T9YJS0g439tY9cyPsR2mvCicgnIKl8Pk6Nt17w/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyjjod9nQDVTwUJsWepJ0FScVCFRfxQNF1Umm40XmcgZxwQs4XZNC4fQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxynSXQNTboduFyIvWt8FQgLKiaCMia0DicGpdk1IaAW7UlCOobmoaZlmQkA/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyiayq2QUD20ghu6LltKWouBzVFyicRXtCBwO9XSjI4o5OY7Kic0tBpJOKw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyyR7OvoIruxOpEZdd7uXayK3kbXpbFc5d9LV9pYLiaqsYNQYn41QusTQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyIn5ycj35OgjR4G1MicCLV9YeeCicbicTJBTXYZBMB0QKicSSS3xZUUPicJQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxy4SHjjfv9XfVrG7QmuXnpowUSWPXb5GenLG4iaVYm3FNloZfO8IohEjA/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyrqTMJjzMeviatqanheuBD2qtJ3I5jJJTuLK84lHAj8RInib1j4rzGfOQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxy9jeyydsSnoZYpxwkeV0Uic2q90Dk412MN7kWmotAibH7YWvmyH831pNw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyQ7GRiaX5XVRZ9uehpLNMriaGOClnxQZnlzHyictaKxzh0jaGujanmgPHQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyic3tiaibaf2W2uFk5r7jX3MibRmyiccOpw9taB80tqTicpw5L09m4UDwCTFw/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxybq8NeoIpsZnSHvicmOvepCsW3AicxkEGHpKkCYSBoGN2VkI0KzPXkN4g/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyQWWumLG92KkIPeckI5VXRMNoSBuQaOJpfvjMyiaYMiabNaZ3qgS44f1Q/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyVf4fia1SR6z1VVbEzEJY8ZZMic4janqymvG0mwQCyvsG9HElibhddefgQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxybvW5xlXI2HPv5Ria7ZTc3x35taYNtEnDWgLZXOszl3W8P4GZGGAaFyQ/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyCedh4tLzOm14WhFoxpp2icWjqqhlzLtGQJdesGPneNicMIxL3ouheibdw/640?wx_fmt=jpeg&from=appmsg)
+
+左右滑动查看更多
+
+  
+
+  
+
+  
+
+  
+
+  
+  
+
+** 专题分享（节选）  **
+
+  
+
+  
+
+●  ** 构筑员工健康新生态：一汽- 大众健康管  ** ** 理体系的建立与实践  **
+
+_ 员工服务部健康管理负责人丨一汽-大众汽车有限公司  _
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyejibtnicz5OtllamugOPliaicXfMN5saTw7abUn6qobpmBskXFBMUykGRg/640?wx_fmt=jpeg&from=appmsg)
+
+▶ 构建专业、全面的大健康管理体系
+
+» 完善顶层设计，制定系统化健康管理政策
+
+» 丰富服务项目，提供全周期健康服务支持
+
+» 优化办公环境，营造科学健康的办公空间
+
+» 塑造健康文化，提升员工幸福感与归属感
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyL9kuoRqKPX0XqhF34G2Y7ibDMtbAAhezlC1zwCS2jpxvDJuSVvLlI8A/640?wx_fmt=png&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxy4UE0iaRXZ3wDYVG5BgnCGuFpn9peEoMddw9iaS0SDPk3GUxBXLBibwUSg/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+  
+
+●  ** ABB 健康管理实践  **
+
+_ 职业健康安全环保经理 | ABB  _
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyd8SWZXXHCo6MQPpge6iczxQHGTCFe8qcS5gibaQYrU6EuKcuhEmsbAJw/640?wx_fmt=jpeg&from=appmsg)
+
+▶ ABB 集团介绍
+
+▶ ABB 健康管理体系
+
+▶ 健康环境
+
+▶ 热点健康项目
+
+» 人机工效：车间人机工效提升
+
+» 身心健康：健康轻食、缤纷工会运动
+
+» 应急响应：园区急救系统
+
+▶ 激励机制
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyficPSiaZyNmutiaZ2HmrDWNmVicBlBMFiaTRr2Ng7wnT4iahvmus4TSVQYjw/640?wx_fmt=png&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxy584Cp6QODORyDguTe4IHshNR1640hpmrjh6WQnCKTMyLwaichXhnR8Q/640?wx_fmt=png&from=appmsg)
+
+  
+
+●  ** 职场健康管理体系建设，打造健康文化氛  ** ** 围  **
+
+_ 华东区域行政经理 | 同程旅行  _
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyzKwoGwZGuacWoLp0oQFQtoDhnVoxiceSnQyiaqFg4M3Qr5LMZpPgj24A/640?wx_fmt=jpeg&from=appmsg)
+
+▶ 健康管理体系化建设，塑造健康文化氛围
+
+▶ 健康安全的办公空间规划，提升组织办公效能
+
+▶ 充满趣味的健康活动组织，激发员工参与度
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyDEcumOgHK28m6xEjdXf3DYrsK9uwoL8N4gtBTVeKB23hQwSmMDcxLQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyrLvmjUk6J0RAewP9nSc30jRd7hLOE2ZjqDHnsqxt2TeI950NkiaVexA/640?wx_fmt=png&from=appmsg)
+
+（注：以上课件内容来自演讲嘉宾）
+
+  
+
+  
+
+  
+
+  
+  
+
+** 展商互动  **
+
+  
+
+  
+
+在这里，各参展企业不仅能够全方位展示其在健康管理和职业健康领域的新成果与技术优势，还能够与现场观众开展深入的互动交流，共同探讨健康管理和职业健康的未来趋势。
+
+  
+
+  
+
+  
+
+NEWS
+
+  
+
+** 特别鸣谢  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyyL5YKQkQTEBGHgoxVw3squV0Ajh57Rf2iavFia3mc8NT0yZFtPKNDIQA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyM72LzDRkNr5tkgGGG6dE4aeKclmjX6h9HkUMDTibkjYJhOSNvCm0iaTQ/640?wx_fmt=png&from=appmsg)  
+
+（排名不分前后）
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxygIEoibWX2h4VlJjdyW0VFxBPUcO9oRbnZUiaor8eJfjIfVibZ9aiaVcZrA/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyneuibzETa1Tg3dEULCiaJWwPIyPDnEo92ytFyklMd94737pcj5qfq3sA/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+我们感恩，在这条少有人走的路上得到了学术领域专家和企业的积极参与和付出，【CHW健康工作场所认证】才能最大程度地实现了它“启蒙”的意义。然而，路漫漫其修远兮，希望智享会在“上下求索”的过程中，能够与广大企业继续携手前行，共同翻开打造国内健康工作场所的新篇章！
+
+  
+
+  
+
+  
+
+  
+
+  
+
+  
+
+** 扫码可获取智享会×Classpasss  **
+
+** 《多元健身服务赋能企业健康促进研究报告》  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyv27ujiaLTkBOhyYbDKBicLoXmb11sTr6iaQLl4XCa6ZH0VMcYM0saaA8w/640?wx_fmt=jpeg&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyU8KIich1WzoTkHKSCaOPpJt8TNwialD2OeucjkCAicSPjjWFXPPB2lg9w/640?wx_fmt=png&from=appmsg)
+
+** 活动推荐  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyg9CyvHBN5dDlukuicHVz4CtY7uIVTaTIhUmuNrkgPBYLI6Hqe2iapMOQ/640?wx_fmt=jpeg&from=appmsg)
+
+[ 2026人力资源云上嘉年华——出海与国际化人力资源管理，2天时间为您带来20+精彩话题分享
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649474077&idx=3&sn=d5c4d4081dfa95934362882293069182&scene=21#wechat_redirect)
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTHRWicQmM5aSfCqk84o3kxyuwk8cz5GRseicAxps0vqUjibDibLkOMDibibIHexusvSWzibA6HtUFtIMia0g/640?wx_fmt=jpeg&from=appmsg)
+
+[ 2026 AI×HR云上嘉年华，2天时间为您带来15+精彩话题分享
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649474387&idx=1&sn=07a38028ba4b37d9313beee9278f6d8a&scene=21#wechat_redirect)
+
+  
+
+预览时标签不可点
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 看赛诺菲如何实践数字化学习转型
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TR9Y7zBHvqkPLPp1hRuF2QfvzFeagG0A7rw5Sm9Id84k9teUn9cRzPBTkZmdicuDOGpH8TZA4PK4EQ/0?wx_fmt=jpeg)
+
+#  看赛诺菲如何实践数字化学习转型
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月03日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：陈焱铭 | 时任中国区卓越学习体验负责人 | 赛诺菲 
+
+  
+
+** 一  **
+
+** 数字化的转型、赋能与迭代  **
+
+从培训工作的角度而言，数字化的初期工作是将线下的课程内容转化为线上的形式，例如将线下课变成线上较短的视频课程、线上考试等，并且通过初步的算法和数据反馈培训结果、推送课程等。
+
+  
+
+随着生成式AI的使用，数字化学习就不再仅仅是交付一些培训内容，而是借由提供的关键字、需求问题提出方案。在生成式AI应用越来越多的情况下，许多培训规划、不了解的问题，都可以通过大数据获得答案。随着此类AI的升级迭代，传统培训师生产的固定技能课程将会被AI取代，因此数字化转型在如今已经势在必行。
+
+  
+
+** 二  **
+
+** 降本增效：数字化学习的价值体现  **
+
+数字化学习的有效应用实际上能够降低培训的预算压力：传统线下学习的人力、差旅费用同样不小，无论是内部打造培训队伍还是外部采购采购课程，所需的预算实际上都比数字化学习更高。基于现有的AI
+学习工具模式，相比疫情前以线下学习为主的情况成本控制到80%。
+
+  
+
+对于数字化来说，主要的预算支出只有供应商服务与运营支持两块。供应商负责提供平台技术支持与想法落地方案。在原本以线下培训为主的情况下，需要7-8名培训老师共同教一门课程，总需求量可能达到数百上千人。而在现行的数字化学习模式下每门课程只需要一位运营和一位培训老师，老师负责与供应商沟通设计课程内容，开发学习平台，运营管理负责推广内容并跟进学习情况。
+
+  
+
+而在赋能增效的方面，在线学习的模式想要超越线下的高互动模式，不仅要确保内容详实、与业务关联紧密从而激发学员的学习兴趣，更要采用场景化、碎片化的呈现方式，站在现下学员信息接收习惯的角度，将培训设计得更有吸引力。碎片化的短视频模式能提高完播率，例如在30秒的视频课程之后立即弹出互动练习题（包括答题、纠错等结合场景的练习等），相比传统45分钟的课堂后再进行场景练习能起到更好的互动效果。
+
+  
+
+当将视频微课的知识点与Chat
+GPT等AI工具结合在一起的时候，AI工具也能给出练习结果的反馈，从而完全模拟了线下课堂，并具有更好的练习效果。在这样的累计练习中，AI工具也会变得更加智能，也能够在员工遇到难题、易错点时提供正确的方案。
+
+  
+
+** 三  **
+
+** 内容生产：AI时代的人机协作  **
+
+过往的培训内容生产由内部老师设计、需求调研、经验萃取，而现在则可以直接让有培训需求的部门运用AI寻找解决方案，这也推动了原本的培训老师直面数字化发展。
+
+  
+
+目前，赛诺菲推行了三个数字化学习内容板块，并实现了新员工基础教学的全面数字化：
+
+** 1  **
+
+** 计划学习  **
+
+包括考试互动，人机互动，答题互动学习内容，为学员提供基础知识学习，并生成相对基础的学习数据和学员掌握情况反馈于后端。
+
+** 2  **
+
+** 生成式AI的互动  **
+
+赛诺菲由技术人员和培训老师共同设计了客户沟通等工作场景的模拟模型，从而通过互动练习的方式减轻人力培训压力。
+
+** 3  **
+
+** 智能测评  **
+
+生成式AI在输入标准模型之后，也可以通过其他的信息进行调整。例如业务计划、人机对话历史信息等，将这些信息与最初计划的标准模型相对比，则可以发现实际情况与标准建模存在的差距，从而再通过AI生成针对性的补习计划，推送给员工形成后续学习建议。
+
+  
+
+当然，由于目前的AI工具也存在面对大量易出错信息而走偏的风险，因此人工培训师则可以转型作为查漏补缺、纠偏AI的角色。老师会实时查看后台互动效果，确保AI迭代方向没有偏离。另一方面，如果出现普遍犯错的知识点，也由人工培训师发现并反馈这类最薄弱的知识点问题，提出新的学习需求反馈，再通过补充知识库等方式确定新的强化训练方案等。
+
+  
+
+AI工具的优势在于信息量庞大、随学随用的便捷性，而人类讲师的智慧仍然是创造、纠偏的重要角色。在企业数字化学习转型的浪潮中，只会讲标准课、固定内容的老师一定会被淘汰，在未来的培训发展中，基础能力基础理论、教练工作都可能会被AI取代，这也是赛诺菲正在迭代的方向。而人工培训师面对越来越多的生成式AI方案，则需要向顾问式的培训师转型，跟进所支持的团队并作出问题诊断，并判断AI方案中最适合目前培训需求的一种。如果出现现有AI不能解决的问题、需要共创的知识盲点，则组织相应的Workshop、案例萃取活动，赋能团队。
+
+  
+
+** 四  **
+
+** 第三方服务需求与数字化学习未来发展趋势  **
+
+** ★ 平台方  **
+
+把系统稳、并发高、故障响应快这三件事做到位即可，其余功能由内部团队覆盖。
+
+  
+
+** ★ 数字化团队  **
+
+当内部想法尚处草图阶段，需要有人帮忙把概念拆成可执行的小步方案，并用实际案例证明方案可行与否。
+
+  
+
+数字化学习是长期工程。从早期的数字智能引擎走到今天的数字化平台，一路都在小步试错、逐步迭代。接下来要做的，依旧是让技术、内容、供应商和管理层保持同一节奏，稳步向前。
+
+  
+
+  
+
+注：文章整理于2024年6月  ▋
+
+来源：  智享会&组织与人才发展研究院&云学堂《2024企业数字化学习新趋势调研报告》
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TS0ejYF1hJiaL9NUqprKxLf6OjFibQXZGZWJJ5nwuQmf4uZgcAXfPIuIy80YHIRI77zbMDUwQ74ibiayA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TS0ejYF1hJiaL9NUqprKxLf6dns1CCUaPFXRGWlPiaYDxPXOXRFU2lcepibwMorJ65qxgaibaqSZVy47A/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TR4ASHcUl0iaYVZlHWttkCUEnNq9v03qIFCwfOq4Lgv4EE8WxDibu9pu7yTkSB5Y1no9mP4ehxOYdRQ/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8g2HmZUKGFJ7I7PKOu4daNycI4GCVNmDBTOGwsqYIDdjqxOJKJYqbKQ/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 组织效率提升三板斧
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TT9fhCcssEBCt8DIY35e7nOCEcA5LhTbyb8G5Cb2qa6kNaOABjEjk7IHjrh0M1KJyDzYho6gZfG5Q/0?wx_fmt=jpeg)
+
+#  组织效率提升三板斧
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月27日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：李书源 | 人力资源总监 
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TToZqCaiboS2dTADjGQrEfsQRhjlOsibE82H28W8SyR9eaP9tXLvBouDGRV3eFRiasKeib7smbIWrmOTA/640?wx_fmt=png&from=appmsg)
+
+** 导语//  **
+
+在当今快速变化的商业环境中，组织效率的提升成为企业持续发展的关键。如何确保战略有效落地、目标清晰分解、激励精准到位，是每一位人力资源管理者需要深入思考的问题。本文从战略管理、目标分解和激励机制三大核心模块出发，系统梳理了提升组织效率的“三板斧”，为企业管理者提供一套可落地的解决方案。
+
+  
+
+** 第一板斧：  **
+
+** 从战略到执行——战略共识与解码  **
+
+  
+
+战略是企业发展的指南针，但许多企业的战略往往停留在高层，无法有效传递到基层，导致“战略稀释”现象。要解决这一问题，关键在于建立绩效目标分解和执行管理体系，将高层的战略意图转化为可执行的具体目标。
+
+  
+
+在此过程中，以战略规划作为宏观方向，并在实施过程中局部调整。从长期战略规划（5年）→中期战略规划（3年）→年度计划、预算和绩效，并对战略举措进行跟踪控制、评估、调整，实施战略动态管理。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TToZqCaiboS2dTADjGQrEfsQjTeT6N9s2yu1qdNwCsv10WfbrwTcjrtSLfNicTaZo6mtMLib6H6fFtBw/640?wx_fmt=png&from=appmsg)
+
+图1 战略稀释
+
+  
+
+** PART 01  **
+
+** 业务共创会  **
+
+战略解码的第一步是确保组织上下对战略方向达成共识。战略澄清通常通过业务共创会的形式完成，其核心理论支撑是BLM（业务领先模型）。这一模型从市场分析、战略意图、创新焦点、业务设计等维度，帮助管理层系统思考战略制定与执行的衔接。共创会的核心产出包括《业务核心策略和关键任务》《关键任务责任矩阵》以及《一级部门绩效目标表》等。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TToZqCaiboS2dTADjGQrEfsQb53Seuy8MdgrGZ2hdJdFeN5hfMxDAGBIoP4bspVNJpkzBEMbvU1aicA/640?wx_fmt=png&from=appmsg)
+
+图2 研讨步骤
+
+  
+
+** PART 02  **
+
+** 战略澄清与解码的核心步骤  **
+
+战略解码的核心在于将战略目标逐层分解为可衡量的关键任务和责任矩阵。具体步骤包括：
+
+** ★ 战略澄清  **
+
+明确公司战略方向，导出中长期关键战略举措和战略衡量指标。
+
+  
+
+** ★ 目标分解  **
+
+确定年度业务的关键举措和目标，将公司级目标分解为一级部门的核心目标和重点任务。
+
+  
+
+** ★ 责任矩阵  **
+
+明确每个关键任务的责任人，确保权责对等。
+
+  
+
+HR的管理动作就像开药方，不能期待其马上发挥作用，但当每个步骤都做好铺垫，最后再配备绩效和考核机制，会让组织效率获得极大提升。
+
+  
+
+** PART 03  **
+
+** 案例思考  **
+
+** ✔ 公司没有战略，这个方法还适用吗？  **
+
+没有战略也一定要有目标，按这个方法仍能将目标达成。
+
+  
+
+** ✔ 公司没有专门负责战略的部门，怎么办？  **
+
+没有专职的HR，也总有人可以去做。
+
+  
+
+** ✔ 战略制定步骤很多，可以省略其中的环节吗？  **
+
+其它的可以，战略解码的过程不能省略，尤其是“握手会”环节，由组织负责人共同参与的共识会议，确保各级管理者对目标的认同和承诺。
+
+  
+
+** ✔ 战略解码的一般通过什么形式？  **
+
+通常是共创会的形式，让责任人自己制定目标，才会对考核以及其它事情无异议。
+
+  
+
+** ✔ 战略制定难点或挑战点是什么？如何解决？  **
+
+市场不确定性：高管的战略洞察力是关键，需要在模糊性中划定清晰的边界。
+
+  
+
+♦ 资源分配矛盾：通过协同财务部门，用数据说话，明确资源分配的优先级。
+
+♦ 组织能力不足：在战略执行过程中，人力资源部门需快速响应，支持组织能力升级。
+
+♦ 共识难以达成：通过正式与非正式沟通渠道，反复对齐关键点。
+
+  
+
+** 第二板斧：  **
+
+** 从目标到考核——目标分解与绩效管理  **
+
+  
+
+战略目标分解后，需要通过科学的绩效管理体系确保目标落地。这一过程的核心是将组织目标转化为个人目标，并通过考核机制驱动执行。
+
+_** 01  ** _
+
+_** 目标分解的工具与方法  ** _
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TToZqCaiboS2dTADjGQrEfsQzicaicvFv4KzKPJ32HZClfnDcfgmfs03XvuEX2MwzsVaqxIZqalkZaXA/640?wx_fmt=png&from=appmsg)
+
+  
+
+** 在公司层级目标设定与分解中  **
+，可使用平衡计分卡作为目标分解的工具，从财务、客户、内部流程、学习与成长四个维度设定指标。但在初期导入阶段，可以聚焦财务指标（占比70%-90%），待业务成熟后再逐步增加其他维度的权重。这一层基本可以得到公司层级的关键任务清单和关键责任人。
+
+  
+
+** 组织层级目标设定与分级  **
+同样需要确定部门关键任务和责任人，拆解时既要有指标还要有权重，并设置挑战三档门槛和目标，还必须设有衡量标，可使用SMART原则作为工具。设置组织目标有三个关键点：承接公司战略、确定组织经营目标、找出组织能力提升的业务短板。
+
+  
+
+** 个人目标设定与分解  ** 同上，但如果前面几步做得非常好是不需要设置个人指标的。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TToZqCaiboS2dTADjGQrEfsQmkT3FH2hUFDsF2LoPMnOFXCD9lbHXsAKEDic4VzJT5QxoHX8nVWqWbA/640?wx_fmt=png&from=appmsg)
+
+图3 设定目标
+
+  
+
+销售部门的绩效指标设定是一个典型案例。销售团队通常关注三个核心指标：市场份额、销售收入和增长率。还可进行层层拆解（见下图），如市场份额可以通过客户覆盖率衡量；销售收入则与人均单产挂钩，增长率与客户单产相关。通过这种分层分类的指标设计，既能抓住重点，又能确保过程可控。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TToZqCaiboS2dTADjGQrEfsQaKz9Iqacg6M2HcL9qUSON0ETXNmUw4DgkDSS9JJhGfFVEhxnjWMawg/640?wx_fmt=png&from=appmsg)
+
+图4 销售绩效指标分解
+
+  
+
+** ★ 难点与挑战：  **
+
+** ✔ 销售数据不全，或者没有怎么办？  **
+
+从零开始建立数据体系，逐步优化。
+
+  
+
+** ✔ 销售策略不清晰，不知道定什么目标可以牵引？  **
+
+通过战略解码找到带来销售收入增长的关键成功因素。
+
+  
+
+** ✔ 销售人员对指标排斥，如何解决？  **
+
+将考核与激励同步沟通，增强接受度。
+
+_** 02  ** _
+
+_** 绩效考核的设计逻辑  ** _
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TToZqCaiboS2dTADjGQrEfsQzicaicvFv4KzKPJ32HZClfnDcfgmfs03XvuEX2MwzsVaqxIZqalkZaXA/640?wx_fmt=png&from=appmsg)
+
+  
+
+绩效考核需要解决四个核心问题：  ** 考核谁、考什么、怎么考、怎么用  ** 。所有的考核都是基于不同岗位所承担的职责而设定的目标，从而进行考核激励。
+
+  
+
+以销售团队的考核实践为例，组织目标与个人职级挂钩，销售人员的职级晋升与任务完成度直接相关，形成“有位要有为，有为才有位”的良性循环。指标可以分为考核类、过程管理类、激励类，避免考核过度复杂化。此外，根据业务特点选择考核周期（如季度、半年度或年度），确保过程管理到位。
+
+  
+
+** 第三板斧：  **
+
+** 从激励到活力——激励机制的设计与优化  **
+
+  
+
+** 激励的万能公式  **
+
+激励效果可以用公式表示为：绩效产出=能力（组织能力、个人能力）×动机（意愿）。如果员工能力不足，仅靠激励无法提升绩效。因此，激励机制的设计需要前置动作，包括战略解码、目标对齐和组织能力提升。
+
+  
+
+** 销售激励的实践案例  **
+
+** 营销经费政策高于行业  ** ** 平均：  **
+通过销售费用率与行业标杆对比，明确激励水平。公司愿意在红利期投入高于行业5%-6%的费用率，激发销售动力。
+
+  
+
+** 建立销售资源与业绩增长的投入产出模型：  **
+费用率根据不同业务特点进行拆分，公司的净合同费用率由基本补贴、签单经费、产品经费、超额经费构成。奖金生成基于业绩，而分配则通过二次建模，确保激励的公平性和透明度。
+
+  
+
+** 激励的难点与挑战  **
+
+** ✔ 销售薪酬目标和薪酬可以公开吗？  **
+
+公开销售薪酬可以增强激励效果，但需谨慎处理。
+
+  
+
+** ✔ 销售薪酬应该受到公司整体奖金池的影响吗？  **
+
+不会，只要通过模型算出的费率能覆盖个人成本且有结余就会发放奖金。
+
+  
+
+** ✔ 公司要求销售费率逐年下降，销售人员激励力度如何不降？  **
+
+换一种奖励形式，确保激励政策与公司战略目标一致。
+
+  
+
+** 结语//  **
+
+组织效率的提升没有一套标准模板。李书源老师用“兵无定法，水无常形”总结了管理的精髓：管理者需要深刻理解方法论背后的逻辑，结合企业实际情况灵活运用。无论是战略解码、目标分解还是激励机制，核心都是通过系统化的管理动作，将组织的战略意图转化为员工的日常行为，最终实现组织效率的持续提升。
+
+  
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TToZqCaiboS2dTADjGQrEfsQiafB7vVyGStbx0SHzEIzkzt4GNuTpkyibv75gVyTibhRIVeQbib615cZUw/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TToZqCaiboS2dTADjGQrEfsQrZict0J58fsBTFYFqkbKcY9ACTT8j0vs0SkeoRh8Danecyla09PYNmA/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TR4ASHcUl0iaYVZlHWttkCUEnNq9v03qIFCwfOq4Lgv4EE8WxDibu9pu7yTkSB5Y1no9mP4ehxOYdRQ/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TROaDKDeOuSoYJoyMzlhSSxXLiaKsONUe4orAMOdUXSl9q8RI69hiaaiaGrgZtNF7Vx4HCNib78WYI7QQ/640?wx_fmt=png&from=appmsg)
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 联想如何创新设计福利项目
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQP4ZwmxI4WJYMpHXVSEVbH2CDM83c0UY16tdicDWRHZ0sokZicjov9cDu7IxKWkRNPgvAVtCt6yu9Q/0?wx_fmt=jpeg)
+
+#  联想 | 如何创新设计福利项目? 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月04日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：张可莹 | 时任员工福利高级顾问 | 联想集团 
+
+  
+
+** 导语  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGuYk3jS8aElOF0F2icON4P7G6EbQJN94Ce1lNX2kZwMIBgVm80rjqFFQ/640?wx_fmt=png&from=appmsg)
+
+在当前降本增效的大环境下，员工福利作为企业对人才的重要投入，其价值愈发凸显。如何以有限的资源设计出既能吸引和保留人才，又能提升员工体验和敬业度的福利方案，已成为企业人力资源管理的核心课题。本文将从福利管理的挑战与趋势、多元创新福利方案设计、有效沟通策略三个维度，分享联想集团在福利项目优化与创新方面的实践经验。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGibg8iagick26N6oZXYL51yuaY753uajxLEK4DnPYwwzqBudggibwemQSnQ/640?wx_fmt=gif&from=appmsg)
+
+  
+
+  
+
+  
+
+** 福利管理的新挑战：成本与感知的博弈  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGKboy8vKfeT3iaLj5XiaibPfIJN1icXNKd8RYpBmKW6kzmQl16K5kfcYYbw/640?wx_fmt=gif&from=appmsg)
+
+  
+
+当下环境充满不确定性——疫情流行病、通货膨胀、就业压力、地缘政治动荡、养老课题等，深刻影响着员工的价值观和行为模式。与过去“当下努力换取未来幸福”的观念不同，当代职场人更看重即时幸福感，而非延迟满足。这种社会心态的转变使员工对福利的期待已从传统的“保障型”转向“体验型”，也对福利管理工作提出了全新要求。然而，企业在福利管理上面临两大核心矛盾：
+
+  
+
+  
+
+** 成本攀升但预算紧缩  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGuYk3jS8aElOF0F2icON4P7G6EbQJN94Ce1lNX2kZwMIBgVm80rjqFFQ/640?wx_fmt=png&from=appmsg)
+
+中国企业人均福利成本年均增长8.2%，但78%的企业预算受限，63%的员工认为现有福利未能匹配需求。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGibg8iagick26N6oZXYL51yuaY753uajxLEK4DnPYwwzqBudggibwemQSnQ/640?wx_fmt=gif&from=appmsg)
+
+  
+
+  
+
+** 效能黑洞  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGuYk3jS8aElOF0F2icON4P7G6EbQJN94Ce1lNX2kZwMIBgVm80rjqFFQ/640?wx_fmt=png&from=appmsg)
+
+福利使用率低（如体检到检率不足）、资源分散、合规风险等问题，导致投入与回报不成正比。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGibg8iagick26N6oZXYL51yuaY753uajxLEK4DnPYwwzqBudggibwemQSnQ/640?wx_fmt=gif&from=appmsg)
+
+  
+
+全面薪酬模型随之演进为三个层次：基础的物质回报、可持续的成长支持以及深层的精神满足。员工的需求是  ** 从物质到精神层层递进的  **
+。在物质层面，员工需要具有市场竞争力的薪酬和清晰的贡献回报机制；在成长层面，职业发展指导和身心健康管理成为刚需；而在精神层面，工作的意义感和组织归属感才是留住人才的关键。数字化工具正是打通这三层需求的“金钥匙”，无论是薪酬福利的透明化管理、个性化健康服务的精准推送，还是成就感的可视化呈现，技术赋能都在让每一分人力投入产生更大的情感共鸣和价值回报。这种"需求分层+数字赋能"的模式，为企业在降本增效背景下优化员工体验提供了可复制的解决方案。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGKEOkL1e4ysVMNXLKib2G33mPe8eibF9AO7gicChlvRt3M5Oxb70iaCLrlQ/640?wx_fmt=png&from=appmsg)
+
+图1 全面薪酬新模型
+
+  
+
+  
+
+  
+
+  
+
+** 多元、创新的福利方案设计与优化：从“一刀切”到“精准定制”  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGKboy8vKfeT3iaLj5XiaibPfIJN1icXNKd8RYpBmKW6kzmQl16K5kfcYYbw/640?wx_fmt=gif&from=appmsg)
+
+  
+
+如何通过创新福利设计，在控制成本的同时提升员工体验，成为企业人力资源管理的重点课题。
+
+  
+
+** 福利发展的四个阶段：找准定位，精准升级  **
+
+根据调研，企业福利形态可分为四个演进阶段：
+
+** 基础型（21%企业）  **
+
+  
+
+仅提供法定福利和个别生活保障类补贴，投入成本与情感最低。
+
+** 综合型（46%企业）  **
+
+  
+
+增加健康类福利与生活补贴，如额外保险、体检、年节礼品，成本增加但情感投入有限。
+
+** 体验型（25%企业）  **
+
+  
+
+引入激励性质福利，拓展到个人发展、工作与生活平衡类福利和激励性质的福利，同等成本下情感投入更高。
+
+** 引领型（8%企业）  **
+
+  
+
+达到精神层面的归属与认可，支持整体人才战略与组织绩效，成本与情感投入双高。
+
+  
+
+企业如何实现福利升级？关键在于  ** 体系化管理能力  ** ，围绕战略、沟通、体验、成本、合规、治理和灵活七大维度构建。尤其在降本增效背景下，企业可聚焦
+** 灵活性与员工体验  ** ，以较低成本实现从“综合型”向“体验型”的跃迁。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGuxHBYW0NxNO3YAMrXv3B6oo7PtrbtmL2JlUe2OXictc5U8DX6ovYJjg/640?wx_fmt=png&from=appmsg)
+
+图2 体系化的福利管理能力
+
+  
+
+** 以员工为中心的福利设计理念  **
+
+员工体验包含员工在组织中的所有经历、观察和感受。提升体验的关键在于以员工为中心，关注其重要时刻。例如：
+
+  
+
+** ● 入职第一天：  ** 提供清晰的福利全景图，营造友好的职场氛围。
+
+** ● 人生关键节点  ** （如成为父母）：推出“新手父母支持计划”，打造家庭友好型职场。
+
+** ● 职业挑战期：  ** 提供心理辅导（EAP）和职业发展资源，帮助员工突破瓶颈。
+
+  
+
+这些举措让员工感受到企业的温度，从而增强归属感与忠诚度。
+
+  
+
+联想的福利理念是  **
+致力于创造安全、健康、包容的工作环境，为员工及家人提供丰富多元的全面健康支持，以提升员工幸福感，激发员工潜能，帮助其在工作和生活中成为更好的自己。  **
+
+  
+
+** 全面、丰富的福利计划  **
+
+联想秉持“让工作和生活都美好”的理念，构建了覆盖五大健康维度的福利体系，即  ** 全面健康五支柱  ** ：
+
+  
+
+** 身体健康  **
+
+包括体检、健康测评、补充医疗保险、健身设施（如健身房、攀岩壁、操课厅）、健康活动（如健步走、免疫力挑战赛）等内容。
+
+  
+
+** 心理健康  **
+
+从预防筛查到疏解支持、知识支持，为员工准备了完备的支持项目。且还有亲子沟通加油站、新手爸妈支持计划等定向人群的支持项目，为大家的心理健康保驾护航。
+
+  
+
+** 社交健康  **
+
+联想关注员工的工作和生活平衡，为大家准备了15-21天全薪年假。在联想工作每满五年，都会获得公司精心准备的长期贡献奖。此外，公司内部还有工会认证的多个兴趣社团，帮助大家在业余时间找到志趣相投的“兴趣搭子”。
+
+  
+
+** 财富健康  **
+
+为员工提供中长期理财储备，包括企业年金、重疾险、员工购股计划，还为员工提供旅游休假津贴、餐补、交通补贴等众多财富保障项目，为员工提供定期财富健康讲座，学习规划财富健康。
+
+  
+
+** 自我实现板块  **
+
+专门为大家准备全薪年假基础上的全年4天全薪志愿者假期，帮助大家灵活安排时间，参与社会公益事业和志愿者活动。
+
+  
+
+** 科学设计福利方案的方法论：从需求洞察到精准设计  **
+
+福利设计的核心是以客户为中心去解决员工的实际需求。
+
+** 用户画像  **
+
+由于员工的多元化，要做好用户画像，了解员工群体的年龄、地域分布等特征。
+
+** 需求定位  **
+
+根据不同的员工群体定位他们的需求。
+
+** 方案设计  **
+
+制定定制化、针对性的福利方案。
+
+  
+
+由于员工需求不同，要为他们提供多重福利需求保障。对于  ** 共性需求  ** ，要作为福利核心去设计，进行普惠性基础保障；对于  ** 个性需求  **
+，强调跟员工共担成本，做更加灵活的差异化选择；对于  ** 隐形需求  ** ，通过调研和行业报告可能会发现员工自己未意识到的需求，针对其做前瞻性教育引导。
+
+  
+
+** 体检优化案例：从“走过场”到“健康投资”  **
+
+在体检项目中，面临着套餐项目不够灵活（固定套餐导致弃检，如4%员工弃用胸片检查）、健康干预缺失（报告解读服务使用率不足20%）、员工感知价值低（满意度低）的痛点。
+
+  
+
+对此，项目组设计了一系列的优化措施。
+
+  
+
+** ◇ 定位员工需求  **
+
+设计科学精准的方案，例如体检方案根据企业整体的健康状况，采用“1+X”模式（基础套餐+自选项目），并配套健康教育的宣教。
+
+  
+
+** ◇ 高效协同的治理模式  **
+
+统一集采，整合集团与子公司需求，增强议价能力。
+
+  
+
+** ◇ 打造生态化的全面健康氛围  **
+
+全年开展健康训练营、医生驻场报告解读、慢病管理等持续性活动。
+
+  
+
+最终取得了到检率提升至87%，员工满意度达90%，家属参与度显著提高的成效。
+
+  
+
+** EAP优化案例:从“低频使用”到“精准支持”——联想家庭支持者帮助计划  **
+
+** ▋ 背景与挑战  **
+
+随着职场心理健康意识提升，企业对EAP（员工帮助计划）的投入逐年增加，但普遍面临“  ** 高投入、低使用率  ** ”的困境。联想在内部调研中发现：
+
+◎ 员工平均年龄36岁，50%为职场父母；
+
+◎ EAP咨询案例中，  ** 家庭关系问题占比超30%  ** ，尤其是“家庭支持者”（承担主要家庭责任的员工）压力显著；
+
+◎ 传统EAP以个体心理咨询为主，缺乏对家庭场景的针对性支持，员工感知价值不足。
+
+  
+
+** ▋ 解决方案：从“个人疏导”到“家庭赋能”  **
+
+项目组围绕“家庭支持者”这一核心群体，推出“  ** 家庭支持者帮助计划  ** ”，通过三步实现精准干预：
+
+** 需求定位  **
+
+** ◎  ** 调研发现，员工家庭压力集中于亲子教育、夫妻关系、老人照护三大领域；
+
+◎ 隐性需求：家庭支持者常忽视自身情绪管理，导致职场效率下降。
+
+** 方案设计  **
+
+◎ 专属心理咨询：为员工配偶、子女提供免费心理服务，覆盖家庭全成员；
+
+◎ 主题工作坊：开设“亲子沟通加油站”“夫妻关系共建”等线下活动；
+
+◎ 社群支持：搭建家庭支持者线上社群，分享减压技巧，形成互助圈子。
+
+** 沟通升级  **
+
+◎ 摒弃传统“病态化”宣传（如“心理问题求助”），改用积极语言（如“赋能家庭幸福力”）；
+
+◎ 通过内部APP推送场景化内容，如“孩子开学焦虑？3招教你平稳过渡”“如何与青春期子女有效沟通”。
+
+  
+
+** ▋ 成效：从“冷门项目”到“高口碑服务”  **
+
+◎ 咨询量提升200%，  ** 家庭议题咨询占比达45%；  **
+
+◎ 社群活跃人数超100人，活动满意度100%；
+
+◎ 员工反馈：“终于有一个能解决实际家庭问题的福利，而不只是泛泛的心理热线。”
+
+  
+
+** ▋ 启示：EAP需要“场景化”创新  **
+
+◎ 精准人群：识别高压群体（如职场父母、新晋管理者），提供定向支持；
+
+◎  去标签化：用“成长赋能”替代“问题修复”，降低使用心理门槛；
+
+◎ 家庭视角：将员工视为“家庭中的角色”，而非孤立个体，扩大福利辐射范围。
+
+  
+
+这一案例证明，EAP的价值不仅在于危机干预，更可通过前置化的场景设计，成为员工家庭健康的“守护者”和企业人文关怀的“放大器”。
+
+  
+
+  
+
+  
+
+  
+
+** 有效沟通策略驱动员工体验升级  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGKboy8vKfeT3iaLj5XiaibPfIJN1icXNKd8RYpBmKW6kzmQl16K5kfcYYbw/640?wx_fmt=gif&from=appmsg)
+
+  
+
+有效的福利沟通是提升员工体验的关键环节，直接影响着福利项目的实际效果。不仅能够提高员工的参与度，让员工感受到福利的价值，增加对企业的认同感和归属感；良好的沟通更是企业文化和雇主品牌建设的重要载体。在福利管理领域，存在着一个普遍现象：企业投入大量资源设计优质福利，但员工感知度却往往不尽如人意。传统福利沟通往往陷入"企业说不清，员工记不住"的困境。联想通过重点优化沟通效率的三大关键要素——时机选择、渠道适配和内容设计，在发布信息时充分考虑员工阅读习惯，从而显著提升了福利沟通的整体效率。
+
+  
+
+** 差异化沟通策略示例  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGuYk3jS8aElOF0F2icON4P7G6EbQJN94Ce1lNX2kZwMIBgVm80rjqFFQ/640?wx_fmt=png&from=appmsg)
+
+在制定差异化沟通策略时，我们需要根据福利内容的性质和沟通目的，选择合适的表达立场和方式：
+
+  
+
+对于福利政策发布和制度调整类沟通,需要我们站在雇主立场，通常通过企业内网、红头文件等官方渠道进行发布，采用标准格式和严谨措辞，例如年度福利政策更新公告这类重要信息，确保信息的权威性和准确性，为员工提供明确的政策依据。
+
+  
+
+对于一些福利活动的推广和宣传，站在伙伴立场沟通则更有效。结合热点话题设计活动宣传，通过员工论坛、APP或视频号等轻松渠道传播。例如给Junior群体的新型关爱活动，视觉设计采用了活泼色彩，同时聚焦热点话题，注重互动性和亲和力，能够有效提升员工的参与度和接受度。
+
+  
+
+对于一些需要专业解读或知识普及的福利内容，则需要我们站在专家立场，侧重于专业价值的传递。比如在企业学习平台开设专题课程，邀请专业讲师进行系统讲解，如"家庭财富规划"系列讲座等形式，能够为员工提供专业、深入的福利解读。这种沟通方式特别适合需要专业知识支撑的福利项目，帮助员工更好地理解和使用相关福利。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGlzgbhFCe9VSWmWCItwyRh6sy5keapicFGjFG3icbHlqPM48fR9VOJdlQ/640?wx_fmt=png&from=appmsg)
+
+图3 青年员工关爱活动
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGBLYeibBP1eD48ETor9ZpbWLamLkAWgzuibeB6DbObByzrpusnKqxorBw/640?wx_fmt=png&from=appmsg)
+
+图4 高层专题讲座
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGibg8iagick26N6oZXYL51yuaY753uajxLEK4DnPYwwzqBudggibwemQSnQ/640?wx_fmt=gif&from=appmsg)
+
+  
+
+  
+
+  
+
+** 总结  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGuYk3jS8aElOF0F2icON4P7G6EbQJN94Ce1lNX2kZwMIBgVm80rjqFFQ/640?wx_fmt=png&from=appmsg)
+
+在当前降本增效的大环境下，福利设计的核心在于价值最大化而非简单削减。优秀的福利方案应当突破传统成本思维的局限，通过精准的需求洞察和创新的设计理念，将有限的资源转化为员工可感知的价值体验。这要求福利管理者既具备严谨的成本管控能力，又掌握人性化的沟通技巧。当福利设计超越成本博弈，成为连接企业与员工情感的桥梁，便能用有限资源创造无限价值。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGibg8iagick26N6oZXYL51yuaY753uajxLEK4DnPYwwzqBudggibwemQSnQ/640?wx_fmt=gif&from=appmsg)
+
+  
+
+  
+
+注：文章整理于2025年6月  ▌
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGeatAia372wr2icBrd2j9TWibkiaxXVlJohL9B5tpF3jGiatFBwvrsubiaHpA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTDrvze1eTAgI6zuTbGC3YGnjHnGAEVfeRbaLtb52kXhjbPhB9w9vuGic3QCN92PiaTaMwPDEUg884A/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TR4ASHcUl0iaYVZlHWttkCUEnNq9v03qIFCwfOq4Lgv4EE8WxDibu9pu7yTkSB5Y1no9mP4ehxOYdRQ/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TQs6S0sAJTfHRibv9UOalxH8op0QNYk3Wz4pKAGmoK3gsZiblzDcQFSonB4KjoS4iadPd8lQoK9KPXwA/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 获奖案例从节流到开源绿城中国HRSSC价值定位的进化之路
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TShCCm4LrCvCykT0r68JqbyUHblya8LE79KUmNEgVPDWH8qW7LznaNRev1TxTKxPfWe6QAfpwpg0A/0?wx_fmt=jpeg)
+
+#  获奖案例 | 从节流到开源：绿城中国HRSSC价值定位的进化之路 
+
+原创  人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月26日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：吴涛 | 绿城中国 | 人事共享中心负责人 
+
+本案例荣获“2025智享会人力资源共享服务中心价值大奖”创新变革奖
+
+  
+
+在多数企业中，HRSSC（人力资源共享服务中心）长期被定义为“事务处理中心”——其核心使命是降本增效、提升合规与满意度。它以集约化实现效率，以流程化确保规范，以数字化支撑标准，也因此被视为HR三支柱中最容易“量化见效”的支柱。
+
+  
+
+然而，随着数字化建设的不断深入，这一角色的边界正被重新定义。越来越多的企业开始反思：  ** 共享中心的价值，是否只能停留在“节流”？  **
+
+  
+
+绿城中国在推进HRSSC建设的过程中，并未止步于“降本提效”的传统逻辑，而是通过系统重构、产品思维与数据智能的融合，使HRSSC从后台执行者跃升为  **
+价值共创者与数据驱动者  ** 。
+
+  
+
+在绿城中国的实践中，HRSSC不仅在标准化与体验感上实现了新突破，更成为了推动组织数据化管理、支撑管理决策的重要平台。这是一场从“节流”到“开源”的价值进化——一次从“事务中心”走向“智能平台”的体系跃迁。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRibsehDjR5CEYAwq2GY67pg9j6ycsHZ8QZpDVwkLcAwdNFXWdibyRNJhrQODTR2lDuNMZMkAHZjSLQ/640?wx_fmt=png&from=appmsg)
+
+  
+
+**_ PART.  _ ** **_ 1  _ **
+
+** 从“后台支撑”到“赋能业务”：  **
+
+** 绿城中国HRSSC的成长坐标  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgmj2ZWX6lG9ia9kmzIX7Nln7c1ItA7JO5pTny9QicFzQZBcpLmIic44Ofw/640?wx_fmt=gif&from=appmsg)
+
+绿城中国HRSSC自2020年正式建设以来，历经五年多探索，已成长为覆盖全国400余家法人、服务员工超过1万人的运营中枢。团队规模30余人，以“远程服务模式”实现高效覆盖。
+
+  
+
+服务范畴横跨全人力链条——从事务性服务、薪酬、福利、数字化与AI、雇主品牌、敬业度管理、人力资本分析（PA），到供应商、合规管理（ER）、员工体验设计等。
+
+  
+
+这一布局，使其在企业内部的定位，从“事务中心”跃升为HR的“效率引擎、数据平台与战略支点”，成果同样令人瞩目：
+
+  
+
+  
+
+** 服务交付  **
+
+  
+
+员工满意度达99.7%，400+法人薪酬准确率100%；合同续签产品实现“无人值守”；入职产品以“游戏化+场景化”实现“员工端温暖、业务端轻盈”；入司纪念等场景实现“千人千面”的情感化触达。
+
+  
+
+  
+
+** 运营管控  **
+
+  
+
+合规控制点全面线上化；累计推进“减事提效”专项1000+项；流程线上化率91%，系统开发效益比超10倍。
+
+  
+
+  
+
+** 决策支撑  **
+
+  
+
+BI看板150+覆盖全HR场景，数据准确率99.6%，业务使用渗透率90%以上；高频用户年均使用超200次/人。
+
+  
+
+这些数字背后，是绿城中国对HRSSC角色的重新定义——从传统的“节流型中心”，进化为兼具效率、体验与洞察的“开源型中台”，实现从“支撑”到“引领”的跃迁。
+
+  
+
+  
+
+**_ PART.  _ ** **_ 2  _ **
+
+** 节流与开源：  **
+
+** HRSSC价值定位的“进化逻辑”  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgmj2ZWX6lG9ia9kmzIX7Nln7c1ItA7JO5pTny9QicFzQZBcpLmIic44Ofw/640?wx_fmt=gif&from=appmsg)
+
+在HR三支柱模型的初始阶段，HRSSC的核心使命是“节流”：通过流程集中、标准统一、操作自动化，释放BP与COE的时间与精力，让组织运行“又快又稳”。
+
+  
+
+随着RPA、智能工单、电子签署、在线客服等数字化工具的引入，HRSSC实现了“事务数字化”与“操作智能化”。但这些创新，本质仍是  ** 成本逻辑的延展
+** ——让人力投入更少、出错率更低、效率更高。
+
+  
+
+当数字体系逐步成熟，数据资产不断沉淀，HRSSC的角色开始发生根本性转变。它不再只是成本控制中心，而成为价值创造支撑。
+
+  
+
+就像一家餐厅在完成线上化后，不仅优化了点单与收款流程，更通过数字平台影响顾客体验与购买决策，最终推动销售增长。
+
+  
+
+同理，具备数据驱动能力的HRSSC，能够以数据洞察员工需求、优化人力配置、预测风险、辅助决策——从“节流工具”转变为“开源平台”，成为推动组织成长的核心中枢。
+
+  
+
+  
+
+**_ PART.  _ ** **_ 3  _ **
+
+** 三阶段进化：  **
+
+** 从节流1.0到开源3.0  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgmj2ZWX6lG9ia9kmzIX7Nln7c1ItA7JO5pTny9QicFzQZBcpLmIic44Ofw/640?wx_fmt=gif&from=appmsg)
+
+绿城中国HRSSC的发展历程，是一部“价值进化史”——从关注节流的1.0，到体验导向的2.0，再到数智赋能的3.0。
+
+  
+
+** 1.0阶段：以标准化为核心的“节流型中心”  **
+
+建设初期，绿城中国HRSSC立足于“从零到一”的体系搭建，核心任务是通过  ** 流程标准化与集约化  ** 实现效率与合规的双重保障。
+
+  
+
+这一阶段的三项关键动作：
+
+**_ 组织层面  _ **
+
+构建覆盖全集团的共享运营体系，实现HRSSC业务覆盖率100%，运营效率提升100%。
+
+**_ 制度层面  _ **
+
+制定数十项统一标准与认证机制，建立HR系统操作考核体系；推动流程再造与标准统一，使操作时效提升90%+。
+
+**_ 系统层面  _ **
+
+搭建HR门户等5大系统，横向打通17个业务接口，为后续产品化与数智化奠定坚实基础。
+
+  
+
+通过“标准化”锁定当下最优解，通过“精益化”寻找未来最优解。
+
+  
+
+** 2.0阶段：以产品化为导向的“体验型中心”  **
+
+当标准化成熟后，绿城中国HRSSC进入“以用户为中心”的2.0阶段，此阶段核心理念是：“  ** 服务即产品  **
+”。HRSSC将运营理念转化为产品逻辑，重构了多个核心场景：
+
+** 合同续签产品  **
+
+  
+
+系统自动识别到期员工并触发续签流程，员工可移动端自助签署，全程无人值守。最快签署仅58秒，30分钟内完成率50%，100%实现自动化。
+
+  
+
+** 员工体验产品  **
+
+  
+
+如“入司纪念”模块，推送个性化成长档案（含成长轨迹、组织回声、未来启发），以视频、图文与荣誉互动等形式强化归属感。
+
+  
+
+** 合规助手产品  **
+
+  
+
+事前预防95%以上的用工风险，合理降低30%以上的沟通成本，HRBP合规技能门槛大幅降低，人力资源管理效率大幅提升。
+
+  
+
+同时，绿城中国HRSSC进一步深化精益六西格玛应用，建立持续改善机制；在运营指标背后强化“精益思维”，实现从流程执行到效率经营的跃升。
+
+  
+
+这一阶段，HRSSC不再是“后台执行者”，而成为员工与组织之间的  ** 情感连接器与体验设计者  ** 。
+
+  
+
+** 3.0阶段：以数智化为驱动的“开源型中台”  **
+
+当前，绿城中国HRSSC正处于3.0阶段，聚焦“管理自驱、员工自驱”的新目标。
+
+  
+
+** 数据智能成为核心驱动力。  **
+
+**  
+** 绿城中国通过系统间数据打通与AI算法嵌入，实现了HRSSC从“事务处理者”向“决策支持者”的转型。
+
+  
+
+** 管理自驱  **
+
+基于人力资本分析（PA）构建“组织驾驶舱”，以离职预测、绩效趋势与人才画像等支撑业务决策。
+
+  
+
+** 员工自驱  **
+
+以“自助发起、自主闭环”为理念，构建新人理想之旅、荣誉墙、第二生日账单等产品，激发员工内生动力与参与感。
+
+  
+
+这一阶段，HRSSC的价值逻辑已彻底转变：
+
+它不再是成本中心，而是HR战略的数智中枢。
+
+  
+
+  
+
+**_ PART.  _ ** **_ 4  _ **
+
+** 实施路径：  **
+
+** 三维共振，驱动HRSSC进化  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgmj2ZWX6lG9ia9kmzIX7Nln7c1ItA7JO5pTny9QicFzQZBcpLmIic44Ofw/640?wx_fmt=gif&from=appmsg)
+
+绿城中国HRSSC实现从节流到开源的转型，依托于“三位一体”的能力体系：  ** 标准化、产品化、数智化。  **
+
+**  
+**
+
+** 标准化：以集约化实现合规与效率最优  **
+
+绿城中国HRSSC根据业务实际，设计了独具特色的“提质增效转换漏斗”，包括三层结构：业务集约化、流程精益化、施工数字化。
+
+  
+
+业务集约化
+
+以“有核心、无边界”为原则，积极承接所有集约化业务流程，通过专人对接与周期复盘，确保集约落地。
+
+流程精益化
+
+导入ECRS（消除、合并、重排、简化）方法，结合精益六西格玛理念，全员分层培训，提升流程速度与质量。
+
+施工数字化
+
+实现“少人化与可视化”，将操作过程从“黑箱”变为“透视图”，以数据实时监控流程质量。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgNp4E7x4v89FW3APsK7NIdicbKXibVeaXribcdhxSTEVznticQ7ythZTIRA/640?wx_fmt=png&from=appmsg)
+
+图1 转换漏斗
+
+  
+
+** 产品化：以体验驱动数据沉淀  **
+
+绿城中国HRSSC通过产品思维打通服务触点，使每一次交付都能留下数据印记。
+
+  
+
+产品成为连接员工体验与数据资产的桥梁。
+
+  
+
+从合同续签到入职闯关、从纪念档案到合规助手，每个模块既是服务体验，也是数据入口——它让HRSSC摆脱事务执行，成为洞察员工需求、优化组织体验的  **
+数据化服务平台  ** 。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgnNSBH1jzy7sQ2MFwDCA6ffAohkibVBNeVFjVGf88wHSjwnKzJzd9sqQ/640?wx_fmt=gif&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgEUb1jKbSMJz63ibWia894jDNuWGhsfyUw1uPXQHBqZ6ZWk20QE2ZXWRg/640?wx_fmt=gif&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgatXP9tGp5ffnxrlsFm1SjBmjnNuRiaNXrAdrYW05KMlOofwEbJ6f4bA/640?wx_fmt=gif&from=appmsg)
+
+图2 体验产品
+
+  
+
+** 数智化：以智能分析支撑决策升级  **
+
+基于“对象—过程—规则”三层数字孪生逻辑，绿城中国HRSSC打造了可模拟、可预测、可优化的管理数字世界。
+
+  
+
+对象数字化
+
+建立组织与员工的数字镜像，整合基础、行为与底层数据，支撑全景洞察。
+
+过程数字化
+
+实现HR业务全线上化，形成实时作业数据流，使系统从“记录工具”升级为“作业平台”。
+
+规则数字化
+
+以标签体系结构化定义业务逻辑，实现自动判断与风险预警，减少人工干预。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgdTfz4kDDqEWTmPVWd6N3PmrwvOZvqhw8gbx2WHECq54tloBV7mCG5w/640?wx_fmt=png&from=appmsg)
+
+图3 数字逻辑
+
+  
+
+例如，绿城中国HRSSC通过开发“调薪助手”这一数智化产品，使业务管理者能够获取高质量、可落地的调薪建议名单。产品以调薪矩阵为基础进行价值定位，结合历史绩效趋势和人才盘点结果进行动态修正，同时融入离职预测、文化契合度和动力意愿等维度，实现潜在风险的提前识别与管理。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgw0iad1uDIByDK8D7rfHDVGgIcoDVM7277zG0kstFXEISqmtkzpYuPng/640?wx_fmt=png&from=appmsg)
+
+图4 调薪助手
+
+  
+
+这一体系使管理者能在虚拟空间中看到“组织的运行状态”，提前识别风险，主动调优策略。
+
+  
+
+  
+
+** 从“做得快”到“想得远”  **
+
+HRSSC的建设与价值呈现，不止于“做得好”，更在于“想得远”。它从标准化中构筑秩序，从产品化中强化链接，从数智化中释放潜能。当AI与HR深度融合，HRSSC不再是事务中心，而是价值创造的数智中心。
+
+  
+
+在绿城中国的HRSSC探索中，AI与HR的结合，不是技术叠加，而是认知跃迁。
+
+  
+
+HRSSC的未来，不是终止于自动化，而是开启于智能化。
+
+  
+
+** 2025智享会人力资源共享服务中心价值大奖  **
+
+智享会人力资源共享服务中心价值大奖陪伴大家走到了第十个年头。十年里，我们迅速从0到1搭建了行业评选的专业标准、参考维度、评选流程，并通过五届评选的沉淀不断完善评审细则、优化流程。我们一直坚守初心，始终以“汇聚优秀企业，发现最佳实践，引领人力资源行业发展”为目标，打造权威、专业、具有公信力的人力资源奖项。
+
+  
+
+在这样的坚持下，我们看到，智享会人力资源共享服务中心价值大奖得到了越来越多业内人士的认可，品牌影响力不断扩大。一方面，更多业内资深专家加入评审阵容，为评选带来更专业、严谨的视角；另一方面，参与评选的企业逐年增加，带来行业内更多领先案例。
+
+  
+
+十年是一个重要的节点，也是一个崭新的起点。在此，我们也与大家许下一个全新的“十年之约”，希望未来能够继续与各位携手共进，不断优化评选体系，挖掘更多在人力资源共享服务中心领域中真正具有价值的优秀案例，并通过价值大奖的平台向行业内的精英人士们展示。
+
+  
+
+** 主办方  **
+
+** 全程合作伙伴  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRibsehDjR5CEYAwq2GY67pg3rt7LS4ffAn79BgE4CEKHI6LwhLe17w690ibVM5piaxTQiamr6WF7sic8g/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgtq8xb9z1P7Osecc7YwGAMibybx5PyknjhHombeU37vfKnbXC9d4icToQ/640?wx_fmt=png&from=appmsg)
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgHLFgL51MlNrlllSHwxjyBAvQ7bQhDbNoGhicyd23mzmpB1FiaJmz275w/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgrplIZJf4BxawUyPwpA5wfaF2BXOlk0eSJSOLKgfu7Zw353GOPrAzUA/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRibsehDjR5CEYAwq2GY67pgN7HRLt5J2akJzTEdByj73H3EFwmrK0JL33jj6tZrluqicdfK5aqqOQw/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TROaDKDeOuSoYJoyMzlhSSxMam0rc5A1JRjvYeDGibXiaO74CzJicUYWo0rQIvs1EBmjDAtBdooOYM1g/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 获奖案例玛氏人力资源共享服务中心的创新实践
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TTMgp8rbic1GQEvvT6Oxw9GVqHxwJwt3ibwMQPSDWm5lEibIph9ouIUVcO22YDSW9lgC9yOKFRpp1Geg/0?wx_fmt=jpeg)
+
+#  获奖案例 | 玛氏人力资源共享服务中心的创新实践 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年01月16日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+本案例荣获“2025智享会人力资源共享服务中心价值大奖” 创新变革奖
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHI6ZdR5rmG9NRq0icicDn9xXw8kuBIg0hHib6LHe7CSNTV7rD1uZ0Y5xKw/640?wx_fmt=gif&from=appmsg)
+
+玛氏是一家传承百年的家族企业，秉持着“未来始于当下”的企业愿景，玛氏不断为消费者提供多样且高品质的休闲食品、食物以及宠物护理产品与服务。玛氏公司打造了包括德芙®（DOVE®）、益达®（EXTRA®）、M&M’S®、士力架®（SNICKERS®）、绿箭®（DOUBLEMINT®）、彩虹®糖（Skittles®）、脆香米®（CRISPY）、大大®（TaTa®）、皇家宠物食品®（ROYAL
+CANIN®）、美士™（NUTRO™）、希宝®（SHEBA®）、爱肯拿™（ACANA™）、原始猎食渴望™（ORIJEN™）在内的全球广受喜爱的品牌组合。
+
+  
+
+玛氏已正式进入中国36年，目前在华拥有7家工厂、4个创新中心、1个全球食品安全中心、47个分支办公室及30多个休闲食品和宠物食品品牌，致力于为中国消费者、宠物和地球创造一个更美好的世界。
+
+  
+
+玛氏人力资源共享服务中心倡导“同事概念”和“五大原则”，专注于提高效率，提升服务的有效性和创造更好的同事体验。贯彻“持续改善”的运营理念，坚持创新变革，持续探索招聘自动化，通过AI技术革新招聘流程，提升招聘效率和候选人体验；建设数字化学习平台“玛上学”，赋能人才培养和发展；升级迭代HR智能聊天机器人，推进系统流程自动化，多措并举，助力业务增长和组织发展。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHBoCXmnnXcy5JTZjPENv1iaXJ17iaQibSp9kyl6IjRj9d89K62DgzDibglw/640?wx_fmt=gif&from=appmsg)
+
+  
+
+** PART 01  **
+
+** 玛氏人力资源共享服务中心介绍  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHnfT37jBhSICHv3TN6anoygDajvquFUtbrIuwGZrqkjR4XjbVIveImg/640?wx_fmt=gif&from=appmsg)
+
+2016年，玛氏全球启动人力资源三支柱模式转型，经过两年的时间逐步实现全球21个国家的共享人力资源服务覆盖。玛氏全球共享服务中心采用“大共享”模式运营，提供包括人力资源共享在内的多板块共享服务，为全球21个国家，8万名同事提供人力资源服务。
+
+  
+
+** 业务板块  **
+
+** 01  **
+
+** ●  运营中心与同事体验  **
+
+为同事和业务部门提供有效的、高效的端到端体验和解决方案，如人力资源数据维护等；
+
+●  ** 同事关系  **
+
+通过有意义的联系和文化脉搏，与业务携手合作，使同事和玛氏茁壮成长；
+
+●  ** 人才招聘  **
+
+负责端到端招聘，雇主品牌策略制定以及社交媒体运维等，通过招聘合适的人才来满足当前和未来的业务需求，为玛氏提供竞争优势；
+
+●  ** 人才流动  **
+
+负责跨国家人事派遣，为同事及其家人的国际调动提供支持，以支持玛氏的人才发展和业务目标；
+
+●  ** 人事数据与分析  **
+
+确保同事数据是可信和可访问的，以实现客观和数据驱动的业务决策，并改善同事体验；
+
+●  ** 学习与发展  **
+
+扎根中国的学习习惯和学习需求，致力于创造一种新的学习文化和改善学习者体验，以增强玛氏的创新能力和在市场上取胜的能力；
+
+●  ** 薪酬运营  **
+
+通过提供薪酬年度回顾流程，对玛氏的薪酬进行评估、构建和调整，同时确保其薪酬合理且具有竞争力，以吸引人才、留住人才并推动绩效。
+
+  
+
+** 发展旅程  **
+
+** 02  **
+
+自2016年成立起，玛氏人力资源共享服务中心开展数字化探索，优化改进系统、流程以及服务，从而提高效率，提升用户体验。
+
+  
+
+** Stage1 2016-2017  **
+
+  
+
+2016年，玛氏在中国成立人力资源共享服务中心（简称“MyP&O”）。此前，HR分散在各事业部，公司各事业部内存在小型的SSC及HR专家。成立之初，共享服务团队严格按照玛氏全球制定的标准流程提供标准化的服务，关注本地政策和流程的标准化及稳定运营。
+
+  
+
+** Stage2 2018-2020  **
+
+  
+
+在标准流程、服务的基础上，共享服务团队开始探索通过发展数字化解决方案提升效率，提供高效的服务和更好的用户体验。这一阶段陆续上线电子签系统、考勤系统、离职小程序等；同时与IT部门合作开发AI招聘聊天机器人。
+
+  
+
+** Stage3 2021-2023  **
+
+  
+
+为满足最新的业务需求，共享服务团队大胆革新，对人事相关的流程系统以及组织架构进行变更，用时17个月完成玛氏全球人事标准流程以及人力资源共享服务中心架构的重塑，实现Workday在全球77个国家同步上线，服务约65,000个同事。
+
+  
+
+** Stage3 2024至今  **
+
+  
+
+承接此前的数字化转型发展成果，共享服务团队不断优化人事主数据系统Workday与其它协作团队所用系统的整合。与此同时，拥抱AI，引入GenAI推动数智化，将AI技术应用到实际的业务场景中提效。
+
+  
+
+** 满意度调研  **
+
+** 03  **
+
+玛氏人力资源共享服务中心关注同事体验，有完善便捷的满意度调研机制，及时响应收集到的反馈并进行聚焦与处理：
+
+  
+
+** ●  ** ** 问卷调查  **
+
+✔
+客户满意度调查问卷：每位发起人事请求表的同事都会收到定制的客户满意度调查问卷，问卷中包含满意度、人力资源共享服务中心响应速度、是否会推荐给其他同事等内容。对于反馈分数较低的问卷，共享服务团队会进行回访，了解同事的实际想法和感受，然后有针对性地寻求改善的方式。数据显示，2024年整体的客户满意度为4.71分（5分满分），平均回复率为6.4%。
+
+  
+
+✔
+人事调查问卷：面向所有同事开放，所有同事都可以在公司人事门户网站、人事系统或人事部门沟通邮件等渠道获得问卷并填写，匿名分享对人事流程、人事服务、人事系统的整体反馈或想法。
+
+  
+
+** ●  ** ** 人事意见领袖社团  **
+
+由玛氏全球来自不同国家的同事代表自愿组成的社团。成员可以在社团中持续分享自己对人事流程等的反馈和想法，接收人事改进和各类流程变化的一手资讯。
+
+  
+
+** ●  ** ** 与业务部门紧密联系  **
+
+人力资源共享服务中心会定期发布服务报告，便于业务部门及时了解人力资源共享服务中心的动态和工作进展，并且定期向各个业务部门的负责人收集反馈意见和需求，从而有针对性地提升服务水平和质量。
+
+  
+
+** ●  ** ** 同事体验团队  **
+
+2021年人力资源共享服务中心成立“同事体验团队”，关注同事的需求，以同事职业生命周期为旅程图，关注各个重要节点的服务交付带给同事的互动和体验。
+
+  
+
+** PART 02  **
+
+** 玛氏中国人力资源数字化旅程  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHnfT37jBhSICHv3TN6anoygDajvquFUtbrIuwGZrqkjR4XjbVIveImg/640?wx_fmt=gif&from=appmsg)
+
+** AI在招聘领域的革新  **
+
+  
+
+自2019年开始，人力资源共享服务中心尝试招聘自动化，陆续上线聊天机器人（2018）、AI智能语音面试+面试智能预约视频（2019）、语音面试AI智能评分（2020）、视频面试AI智能评分（2021），从候选人简历筛选开始，逐步实现电话面试、视频面试、小组面试等招聘环节AI全程参与赋能。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHol4YpwRRwib6ptv6mo6XAB3t4WEaib5xja2sJWmAZ1kQfXjmx8JGhY0A/640?wx_fmt=png&from=appmsg)
+
+图1 AI赋能招聘
+
+  
+
+在AI视频面试过程中，团队预先设置问题和随机出题顺序，给到候选人进行回答。基于视频回复，AI会根据候选人的音频、文字等多维度信息进行语音文本解析，结合生成式AI给出的答案建议，进行智能打分。AI视频面试节省了候选人的答题时间。视频面试能够随时随地开启，高效、顺滑的面试体验带来了较高的候选人满意度。数据显示，上线AI视频面试后，候选人体验和申请数量均有所提升，满意度达到4.6分（总分5分），候选人申请数量年增长率达到15%。
+
+  
+
+** AI在校招场景中的应用探索  **
+
+考虑到校园招聘岗位的同质化和可预测性程度较高，且公司对校招管培生岗位有明确的人才画像和清晰的能力模型，因此，团队积极尝试在  ** 校招  **
+场景中利用AI赋能简历筛选、视频面试。为保证面试结果的高信效度，团队采取以下动作：
+
+  
+
+** ◇ 持续监测数据有效性以及潜在的偏见  **
+
+公司非常重视AI简历筛选以及评估打分的客观性，为此采取了严格的校对流程。在简历筛选环节，设置人工校对组，对AI筛选的结果进行抽查，以确保结果的准确性。并且根据最终招聘结果反推筛选环节的合理性和偏差范围，从而校对算法；在视频面试环节，同样设置人工校对组，持续监测面试打分的信效度，并对AI筛选中可能存在的偏见（性别、生源地、职业经理等）进行分析，如发现候选人表现与AI评分不符，人工校对组会向合作的供应商进行反馈，优化评分维度及各维度占比。
+
+  
+
+** ◇ 给予候选人清晰的技术指引和及时支持  **
+
+确保候选人在出现技术问题时知道如何解决；设置求助热线。面试完成后，收集候选人的反馈并提供给供应商，用于后续系统UI、互动设计等方面的优化改进。
+
+  
+
+** ◇ 多维度防反作弊机制  **
+
+针对面试作弊，团队建立防作弊机制：一方面，不断升级迭代AI面试系统防作弊机制，更高效地识别屏幕行为异常、疑似大模型生成的答案以及候选人行为异常等；另一方面，不断监控提升防御机制，鉴于生成式AI信息存在一定滞后性，团队及时迭代题目，结合近期热点事件随机组合出题以提高信效度。结合后续进入面试和获得录用的候选人在AI面试轮的表现，人工调整AI打分配比，更符合公司的筛选关注点。此外，监督社媒平台，提醒候选人撤销面试题目相关分享。
+
+  
+
+数据表明，候选人对AI面试的接受度很高，超过75%的候选人选择接受AI面试，这其中95%的候选人完成了测试。而在AI面试筛选环节中，AI打分的可信度超85%。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHI6ZdR5rmG9NRq0icicDn9xXw8kuBIg0hHib6LHe7CSNTV7rD1uZ0Y5xKw/640?wx_fmt=gif&from=appmsg)
+
+  
+
+** 数字化学习平台与创新型学习方案  **
+
+  
+
+** 玛氏中国数字化学习平台的缘起  **
+
+2019年，玛氏全球数字化学习平台My Mars
+U登录中国，由于防火墙等技术连结方面的瓶颈，中国同事在使用过程中遇到加载速度慢、成功登录率低、用户体验差的问题，无法获得正常的学习体验。在玛氏大学全球管理层的大力支持下，中国团队积极探索更适合中国同事的数字化学习平台。2021年，
+** 玛氏中国一站式数字化学习体验平台“玛上学”（China My Mars U）  ** 成功上线。
+
+**  
+**
+
+玛上学是玛氏中国唯一覆盖全体8000名同事的线上学习平台。平台紧密结合中国能力需求，构建了全方位多样化的内容和形式，不仅包含了来自全球总部关于组织关键能力建设等学习资源，也包括中国开发的本土学习资源。同事可以根据个人需求通过APP、企业微信端、网页端随时随地按需学习。
+
+  
+
+截至2024年，94%的玛氏中国同事已激活使用玛上学平台，季度活跃用户达到63%。2024年已激活用户中平均每人学习6.5门课。自上线以来，玛氏企业大学充分运用玛上学平台不断迭代的技术打造创新的学习解决方案，
+** 支持组织关键能力建设，加速管理人才培养，赋能职能专业能力发展  ** ：
+
+  
+
+** 01  **
+
+** 数字化领航员  **
+
+“数字化领航员”是玛氏大学与业务于2022年联袂打造的创新型能力提升方案，支持业务数字化能力建设，建设数字化创新组织。项目基于70-20-10法则，以玛上学为平台，分为三大板块：①精心设计的数字化学习旅程（10%），集合内外部优质学习资源；②社交学习（20%），搭建5个商业领域的学习社群，促进同事间的学习与分享；③实战黑客松大赛（70%），以实战案例和竞争机制来激发数字化实践的应用，并对大赛中的最佳实践进行沉淀，形成黑客松经典案例。
+
+  
+
+该项目广受好评，截至2024年共有4600+人参与，满意度为4.8分（总分5分），沉淀了100+门课程和200+黑客松案例，其中有10%的案例成功推广。在推动数字化文化的同时，加快了组织数字化转型的步伐。
+
+  
+
+** 02  **
+
+** 高影响领导力训练营  **
+
+高影响领导力训练营是玛氏大学为支持中国管理人才发展而自主研发的创新学习项目，通过刻意练习，即时反馈和辅导，以及社交化学习，提升高管关键能力，真正实现从“知道”到“做到”的领导力跃升。每期训练营长达4-7周，第一期训练营于2021年上线。截至2024年，推出高影响力沟通和高质量决策两个主题，共六期训练营。
+
+  
+
+团队依托玛上学平台，创新多元化的学习形式，提高学习解决方案的有效性。项目的成功源于“三高”的设计理念：
+
+** → 高相关的学习内容  ** ：精准抓住业务痛点，学习场景与业务场景高度融合，设计实用工具，确保即学即用；
+
+** → 高频次的学习活动  ** ：通过数字化学习地图中轻量但高频的学习活动，让高管每日沉浸在“学-练-反思”的循环中，不断促进行为改变；
+
+** → 高参与度的学习体验  ** ：通过多样化的社交化学习形式激活“互相学习和分享”，通过社交化的学习运营和游戏化激励机制激发高管“自卷”“互卷”。
+
+  
+
+截至2024年，累计有211高管人次参与，净推值达到94，高管技能水平提升23-31%。项目也为业务带来积极影响，期间高管们共展开了2465+次工作实践，节省沟通成本28,944小时，显著提升组织运营效率。
+
+  
+
+** 03  **
+
+** 职能学习频道  **
+
+职能学习频道是基于玛上学平台，以提升部门职能能力建设为目标的定制化学习方案。2024年，经过与职能部门的合作共创，学习发展团队共上线8个职能频道，其中包括市场部的学习地图设计与实施、财务部6
+Sigma学习频道、令人心动的种草项目等等，覆盖7200+同事，活跃度达到100%，有效支持部门能力建设个性化需求。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHI6ZdR5rmG9NRq0icicDn9xXw8kuBIg0hHib6LHe7CSNTV7rD1uZ0Y5xKw/640?wx_fmt=gif&from=appmsg)
+
+  
+
+** 在共享服务中心运营领域的革新  **
+
+  
+
+自2018年起，人力资源共享服务中心便启动了HR智能聊天机器人的实践，从初期的对话应答，逐步拓展至整合上下游系统数据的自动化应用，积累了丰富经验。
+
+  
+
+** HR聊天机器人  **
+
+** 03  **
+
+HR聊天机器人通过持续升级迭代，已打通知识库、人事系统主数据和电子签平台，实现7x24  _
+小时人事服务多渠道触达，提供人事信息自助查询、证明开具自动化、信息提醒推送功能服务。以证明开具为例，同事可以通过聊天机器人  _
+7x24小时自动获取加盖公司电子签的工作证明、收入证明和签证证明，满足工作和生活需求。截至2024年，同事与聊天机器人产生了38,000+对话量，其中92.8%的问题可以通过聊天机器人解答，有效缓解了人工咨询压力。
+
+  
+
+** 自动化工作流  **
+
+** 03  **
+
+为促进高效协同，提升工作效率，共享服务中心基于人事主数据系统流程管理、数据报告和下游系统对接功能，结合微软Power
+Automate工作流自动化平台，实现“工单创建自动化、人事数据系统自动化检验提醒、微软工作流自动化”多个场景的自动化工作流。
+
+  
+
+** ●  工单创建自动化  **
+
+当同事或上级经理在Workday平台发起需要人事部门跟进的各类请求时，自动化流程便开始启动，借助Workday与ServiceNow的深度对接技术，Workday能够精准捕获这些请求信息，并自动填充至工单模板中。信息填充完毕后，系统会自动触发工单创建流程，这一过程无需人工干预，极大地提升了工作效率。
+
+  
+
+** ●  人事主数据系统自动化检验提醒  **
+
+当同事或上级经理在Workday提交请求时，系统会根据预设规则对提交内容自动展开全面检验。如果提交内容与规则不一致，系统会以直观清晰的形式提醒提交者数据中存在的问题，并附上对应的规则说明，便于提交者及时对数据进行更改，有效避免因数据错误导致的流程延误。
+
+  
+
+** ●  微软自动化工作流  **
+
+运营团队通过与微软以及Workday平台的数据报告对接联动，实现定制化邮件、数据检查、信息收集等，提升运营效率和同事体验。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHI6ZdR5rmG9NRq0icicDn9xXw8kuBIg0hHib6LHe7CSNTV7rD1uZ0Y5xKw/640?wx_fmt=gif&from=appmsg)
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHI6ZdR5rmG9NRq0icicDn9xXw8kuBIg0hHib6LHe7CSNTV7rD1uZ0Y5xKw/640?wx_fmt=gif&from=appmsg)
+
+自成立以来，玛氏人力资源共享服务中心坚持全球视野和本土创新相结合，通过数字化转型和技术应用落地，实现人力资源服务的高效、精准与定制化。玛氏HRSSC在招聘自动化、学习平台建设以及流程自动化等方面的持续探索和实践，为同事发展、组织进化提供源源动力。“未来始于当下”，玛氏HRSSC将继续加快数智化脚步，拥抱AI，加速人工智能与人力资源服务的深度融合，助力玛氏全球活跃发展。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHBoCXmnnXcy5JTZjPENv1iaXJ17iaQibSp9kyl6IjRj9d89K62DgzDibglw/640?wx_fmt=gif&from=appmsg)
+
+  
+
+** 2025智享会人力资源共享服务中心价值大奖  **
+
+智享会人力资源共享服务中心价值大奖陪伴大家走到了第十个年头。十年里，我们迅速从0到1搭建了行业评选的专业标准、参考维度、评选流程，并通过五届评选的沉淀不断完善评审细则、优化流程。我们一直坚守初心，始终以“汇聚优秀企业，发现最佳实践，引领人力资源行业发展”为目标，打造权威、专业、具有公信力的人力资源奖项。
+
+  
+
+在这样的坚持下，我们看到，智享会人力资源共享服务中心价值大奖得到了越来越多业内人士的认可，品牌影响力不断扩大。一方面，更多业内资深专家加入评审阵容，为评选带来更专业、严谨的视角；另一方面，参与评选的企业逐年增加，带来行业内更多领先案例。
+
+  
+
+十年是一个重要的节点，也是一个崭新的起点。在此，我们也与大家许下一个全新的“十年之约”，希望未来能够继续与各位携手共进，不断优化评选体系，挖掘更多在人力资源共享服务中心领域中真正具有价值的优秀案例，并通过价值大奖的平台向行业内的精英人士们展示。
+
+  
+
+** 主办方  **
+
+** 全程合作伙伴  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHREmoA25Ls2GPz1GPWSEUBdR3YoZyTCiakXNh4oTk5ibHZlyZrPfWcntA/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHDz0z4lcJQN9Uz2qiboU4DhfDxZqDm4iaklcsP44EicrC0y0icZRh9qElKw/640?wx_fmt=png&from=appmsg)
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHySwMc6A58HKhta5K3xiaSib3DytNjs76ibV1Qk1EicK92ibagvQaL5k8G7Q/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHh1eJfxyPAuW9ZCvD7n5YR3jBIY5ILUuxRB0rc65v5Tk2Rlrq8sk03A/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TSEbgZmO5Jjh3gnJDY7nqqHmwEtexeKxc7O1bGwZ3GkvTWLvMCscHxotPytticElic4aCTuD6HWt4iaQ/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRTamuy9BnES9AdDTwnrHZwMsjERotKa258O7LZGko6PZj3J22WRgKxCQg4bwIyLVyno4dnJKDiaAA/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 获奖案例祥盈企服HRSSC的创新实践
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSYFd3TBh0sVSRpjTL1FG9KQjnKKDwzVficW6BArQEa4eetl9IC0dATZyguTVmxRYJFhMjvew5durg/0?wx_fmt=jpeg)
+
+#  获奖案例 | 祥盈企服HRSSC的创新实践 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年11月10日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+** 本案例荣获“2025智享会人力资源共享服务中心价值大奖” 创新变革奖  **
+
+  
+
+祥盈企服是一家致力于为企业提供员工招聘、人力外包、业务流程外包等服务的综合现代服务运营商，前身是万科集团的共享中心（包括人力、财务、IT、呼叫中心等）。祥盈企服人事远程交付中心成立于2015年，扎根本土市场，凭借灵活机制与深厚文化积累优势，依托E-
+HR（电子人力资源管理系统）、SHR（战略人力资源管理系统）等数字化平台，结合社保机器人、RPA（机器人流程自动化）及BI（商业智能）技术的智能支撑，构建了高效精准的人力资源服务体系，持续为万科内、外客户提供兼具效率与品质的人力资源解决方案。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8ASYPKb2WWDJriaradLfeTBV5aiafLdaHQVHmKbl5icJsA2HickKkR0Ru75A/640?wx_fmt=gif&from=appmsg)
+
+  
+
+** HRSSC概览  **
+
+** 祥盈企服人事远程交付中心  **
+，自成立以来稳步发展，先后经历了数字化运营1.0、全面市场化阶段。随着2024年数字化系统2.0上线，人事远程交付中心进入数字化运营2.0发展阶段，累计服务超22.5万客户，覆盖170+城市，最高服务人效达1018人（仅统计服务万科体系内效率情况）。
+
+** 组织架构&人员架构  **
+
+人事远程交付中心拥有自有员工215人，由人事运营、社保服务、薪酬服务、数据服务、业务支持、驻场管理、产品服务七大部门构成：
+
+  
+
+** ● 人事运营  ** ：入职调任操作、商业保险申报、劳动合同管理、全国权限管理、职务职级规则迭代
+
+** ● 社保服务  ** ：账户开立、增减变动、基数调整、待遇申领、政策咨询
+
+** ● 薪酬服务  ** ：薪酬核算、税务管理、奖金发放、成本核算、薪酬数据支持、外部算薪业务
+
+** ● 数据服务  ** ：数据看板搭建、提效工具开发、平台开发支持、数据支持
+
+** ● 业务支持  ** ：行政后勤工作、档案管理、固定资产管理、员工活动、招聘培训
+
+** ● 驻场管理  ** ：一汽红旗SDC驻场服务、深圳总部驻场服务
+
+** ● 产品服务  ** ：灵活用工服务、残保金服务、背景调查服务、市场运营
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8ASYPKb2WWDJriaradLfeTBV5aiafLdaHQVHmKbl5icJsA2HickKkR0Ru75A/640?wx_fmt=gif&from=appmsg)
+
+  
+
+** HRSSC服务介绍  **
+
+** 服务场景  **
+
+人事远程交付中心梳理出13个服务场景：招聘、入职/再入职办理、劳动合同及协议、转正、调配管理、外事管理、社保个税、假勤管理、薪资核算、员工服务、员工信息管理、离职管理、退休管理，场景覆盖员工全职业生命周期。
+
+  
+
+** ● 招聘  ** ：招聘需求发布、简历初筛、面试安排、Offer管理、招聘预入职申请
+
+** ● 入职/再入职办理  ** ：发起入职、入职预约、信息审核、资料验收、入职跟踪
+
+** ● 劳动合同及协议  ** ：发起电子签署、员工确认信息、核验结果、合同归档
+
+** ● 转正  ** ：发起转正、转正问询、转正申请
+
+** ● 调配管理  ** ：发起兼职申请、发起调动申请、工作交接
+
+** ● 外事管理  ** ：证照管理、因公出国申请、因私出国申请、不出境证照申请
+
+** ● 社保个税  ** ：社保申报、社保计算、专项附加扣除数据获取、个税计算、个税申报
+
+** ● 假勤管理  ** ：请假审批、排班管理、考勤核算
+
+** ● 薪资核算  ** ：薪资数据提报、薪资核算、发布工资条
+
+** ● 员工服务  ** ：HR政策问询、HR事务自助办理、员工福利配置
+
+** ● 员工信息管理  ** ：员工信息维护、员工信息检视
+
+** ● 离职管理  ** ：发起离职、离职结算、离职证明
+
+** ● 退休管理  ** ：发起退休申请、退休手续办理……
+
+** 服务定价  **
+
+针对不同的服务/产品类型，人事远程交付中心采用“计件定价+计量定价+产品定价”的组合定价模式：
+
+  
+
+** ☞ 人事基础事件管理  **
+
+包括转正管理、调动管理、组织管理等，采用计件定价，服务费=发生单量x流程单价；
+
+** ☞ 人事薪税服务  **
+
+如薪酬审核、社保服务、工资运算等，采取计量定价，服务费=服务人数x人月单价；
+
+** ☞ 独立封装产品  **
+
+对标行业报价模式，以背景调查为例，服务费=产品项定制套餐x使用份数。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8ASYPKb2WWDJriaradLfeTBV5aiafLdaHQVHmKbl5icJsA2HickKkR0Ru75A/640?wx_fmt=gif&from=appmsg)
+
+  
+
+** 运营&监管模式  **
+
+人事远程交付中心采用“远程+属地”空地一体化的人事运营模式，采用“三化一体”的服务模式，即服务集约化、专业化、标准化及属地管理和集中管理为一体，为客户组织提供人力资源服务。人事远程交付中心负责人事运营各模块（人事运营、社保服务、产品运营、薪酬服务）的系统化、流程化操作，同时数字化赋能业务交付，开发数字化平台及工具，提升运营效率和准确性；属地驻场服务聚焦客户体验及即时需求响应，由属地公共服务中心提供，现已建立52+个公共服务中心，170+个城市触点。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8APPajeicz6CS7gtiaJ5m2WKGX5Lu9wQ1LiaLNYNbYaibYh4wr9A5Fib5EpYQ/640?wx_fmt=png&from=appmsg)
+
+图1 人事运营模式
+
+** 1  **
+
+** 交付标准（SOP）  **
+
+业务制定覆盖人事远程交付中心所有业务服务模块的标准SOP，并根据实际业务的操作流程，按季度进行更新迭代，确保资料更新提供的及时性和准确性。SOP内容覆盖业务模块定义、运营流程图、职责分工、操作说明及注意事项、业务相关附件，能够有效规范人事远程交付中心各业务标准操作，提升各项业务操作及运行效率。
+
+** 2  **
+
+** 服务质量衡量指标及优化  **
+
+** 交付准确性、交付及时性以及服务满意度  **
+是衡量服务质量的核心评价指标，人事远程交付中心从运营服务、薪酬服务、数据服务、客户满意度四个维度出发进行考核。其中，依据BG人力资源部制定的各项人事业务规则标准衡量交付准确性；根据业务类型制定T+XX日标准以衡量交付及时性；面向总部COE、各业务HR负责人以及属地HRBP，开展季度满意度调研，问卷包含人事运营流程的评价、对远程服务及时性、准确性的评价及对本季度远程服务的建议或评价。基于问卷结果，进行业务整体复盘以及远程服务的改善优化。
+
+  
+
+人事远程交付中心通过事前监控-事中监控-事后检核持续优化提升服务质量。
+
+** 事前监控  ** ，制定检核流程、检核标准及清单，确保工作启动前完成工作交付的流程监控。
+
+** 事中监控  ** ，配合数据巡查机制，从过程实时监控，形式日检、周检、月检等机制，进行追踪、修正、复核闭环。
+
+** 事后检核  **
+，收集交付业务数据，采取业务组同学AB模式互检、上下游流程同学交叉检核、业务组组长抽检。检核贯穿交付全流程，确保员工在远程工作环境中保持高标准的服务和效率。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8ASYPKb2WWDJriaradLfeTBV5aiafLdaHQVHmKbl5icJsA2HickKkR0Ru75A/640?wx_fmt=gif&from=appmsg)
+
+** 系统&数据治理与应用  **
+
+** 系统  **
+
+人事远程交付中心使用E-HR系统、社保业务交付平台、RPA自动化工具、BI可视化数据管理平台、背景调查交付平台，提供人力资源服务。
+
+  
+
+_** ▍  ** _ ** E-HR系统  **
+
+为公司内部员工提供全生命周期人事运营流程模块，包括组织管理、人事事件管理、薪酬核算、个税管理、社保管理等，并打通上下游招聘系统、考勤排班系统、电子合同系统、商业保险系统等形式全生命周期管理。
+
+  
+
+_** ▍  ** _ ** 社保业务交付平台  **
+
+联合外部开发，依托数字化SAAS平台，利用人+机器系统模式完成智能交付，实现社保业务的远程承接、高效作业。
+
+  
+
+_** ▍  ** _ ** RPA自动化工具  **
+
+通过自主或外部合作方式开发RPA自动化工具，实现人机协同的交付形式，提高人均效能。
+
+  
+
+_** ▍  ** _ ** BI可视化数据管理平台  **
+
+对日常业务运营、部门关键KPI指标、各类统计分析报告进行实时监控，提供数据监控报表。
+
+  
+
+_** ▍  ** _ ** 背景调查交付平台  **
+
+集成招聘系统、身份验证系统、E-HR系统和话务系统，实现从创建订单到身份验证、背调报告生成一体化交付，为客户提供全方位入职风险拦截，并内置“抢单”模式及实时BI看板，动态监测业务人员作业情况，保证交付时效。
+
+** 数据治理与运用  **
+
+** 在数据治理方面  **
+，人事远程交付中心整合集团人力资源管理过程中所产生的数据流，打造由数据存储系统、数据检核系统、数据展示系统组成的数据应用管理三层架构，构建从数据治理到业务决策的价值传导链，通过将数据质量管控与业务改进深度绑定，使数据真正成为驱动决策优化的基础设施。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8Axx37mzSTMiaLrQJIfNYxzBULPCzBHBcsCAkKGWmvde8yM04sRcC1WMA/640?wx_fmt=png&from=appmsg)
+
+图2 数据应用管理架构
+
+** 梳理底层标准  **
+
+制定业务标准、技术标准和管理标准，统一人力资源管理的业务语言和口径。根据现有数据字段逐一梳理字段逻辑，制定标准，并与各相关部门打通信息与标准，形成“上下呼应，相互补充，协调一致”的数据治理标准。
+
+** 数据标准应用  **
+
+在组织内针对制定的数据标准对业务人员进行培训和宣讲，促进数据标准在组织内达成一致，并通过数据检核系统和数据展示系统实现“日巡检”“周检核”“月复盘”；通过可视化BI看板晾晒各业务组数据健康度情况，并结合自动化技术将具体明细错误推送邮件至各交付员工，指导业务优化。
+
+  
+
+** 在数据运用方面  **
+，人事远程交付中心充分挖掘人力资源数据的潜在价值，通过数据整合与共享、自动化管理、科学决策支持、资源优化配置以及提升透明度与公平性，支持企业的管理和业务决策。
+
+  
+
+** 数据挖掘与决策支持  **
+
+借助数据挖掘算法，助力企业实现人力资源配置的精准化以及管理决策的科学化；打破数据壁垒，以明确的数据标准、集成的数据平台、规范的数据服务，实现数据全生命周期管理，在集团层面实现人资主数据、核心业务数据的统一管理使用。
+
+** 数字化转型  **
+
+搭建和上线E-
+HR主系统与子系统，实现人力资源数据的线上化；将传统报告升级成线上BI看板，实现看板实时更新；引入机器人流程自动化（RPA）技术，提升数据处理的自动化水平。
+
+** 推进数智化进程  **
+
+开发运用提效引擎、数据看板、HR能力助手等，让数据“说话”，为人力资源决策提供支持。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8ASYPKb2WWDJriaradLfeTBV5aiafLdaHQVHmKbl5icJsA2HickKkR0Ru75A/640?wx_fmt=gif&from=appmsg)
+
+** 创新与变革  **
+
+人事远程交付中心积极推进创新，持续优化流程、服务以及人才培养，取得社保机器人技术应用、背调平台全流程数字化、计价模式创新、人才发展体系重构四大创新成果。
+
+** 社保智能机器人“祥盈盈宝”  **
+
+通过结合硬件设备和私有云技术，实现社保公积金业务流程的一键自动化处理，包括账户管理、社保缴纳以及政策信息的实时更新，为企业和员工提供便捷、高效的社保管理体验。社保智能机器人具有人机协同模式、自动化解决方案以及数字化支持体系三大创新亮点：
+
+** 人机协同模式  **
+
+人工整理信息，机器人自动核验异常数据。由于机器人能够模拟人工操作，并且通过多渠道反馈结果，因而减少了纯人工操作可能带来的错误，有效降低风险。
+
+** 自动化解决方案  **
+
+机器人能够一键执行跨城市、多账户的社保任务，简化复杂操作；7*24小时不间断工作，显著缩短处理时间，并提高数据处理效率；智能调度任务，优化资源分配效率。
+
+** 数字化支持体系  **
+
+机器人具备数据驾驶舱功能，能够实时同步业务进度与运营状态，赋能管理者全局管控，提升决策效率。
+
+** 背景调查平台  **
+
+集前台背调需求汇集、中台集约交付、后台精益运营于一体的背景调查交付系统。基于NLP自然语言处理技术，以提升效率、加强管控为目标，为
+“走出去”打牢坚实基础，有四大亮点：
+
+** 全流程线上化处理  **
+
+对内，打造内部招聘系统（MOKA），实现背调业务端到端线上处理，提升效率与用户满意度；对外，设立门户功能，支持外部客户通过门户快速下单、进度查询及报告接收，增强自助服务能力。
+
+** 自动化和量化管理  **
+
+工单化闭环管理覆盖接单到交付全流程，减少人工操作，降低成本；支持候选人自主录入信息+线上电子签，提升数据准确性与候选人体验。
+
+** 大数据技术探索应用  **
+
+应用区块链技术，保障数据不可篡改与安全性，增强平台信用度；云资源扩容+话务系统集成，提升系统稳定性与响应速度。
+
+** 资源库支撑  **
+
+自动存储工单中联系人公司及联系方式，累计10万+数据资源，为自主寻访业务提供高效数据支持，强化数据驱动的背调能力，提升业务扩展性。
+
+** 流程转移与新模式计价  **
+
+** 业务流程转移与重构  **
+
+通过作业价值分析开展全流程梳理，精准识别提效节点，并针对性优化审批流程，推动业务整体运营效率提升。2024年已完成120项流程的标准化再转移，持续释放流程优化效能。
+
+** 计价模式创新  **
+
+以“事”为基础，以“流程”为核心，以“工时”为衡量标准，通过流程远程转移，试点以月度发生频次与总量打包  ** “计件+计量”组合模式  **
+定价、结算。经测算，2024年远程承接属地业务累计工时转化为远程交付后，较远程承接成本年度提效降费30%。
+
+** 人才培养模式创新  **
+
+人事远程交付中心以“精准赋能、多维成长”为核心理念，创新构建人才培养与发展体系。通过业务技能竞赛激发自主学习，以数据实操培训革新学习模式，依托双轨制能力训练营分层培养人才，结合能级认证标签动态优化梯队建设，四大举措形成闭环，不仅提升了员工的专业技能与职业素养，更推动人才与岗位的精准匹配，为组织的可持续发展注入强劲动力，实现从“人才储备”到“人才赋能”的跨越式升级。
+
+** 业务技能竞赛  **
+
+通过竞赛激发员工自主学习，促进技能交流，显著提升业务水平，后续月度考试合格率大幅提高，实现知识与技能的快速夯实。
+
+** 数据实操培训创新  **
+
+采用“面授+分组互动出题+团队比拼”模式，增强培训趣味性与参与度，培训后作业成绩较传统模式提升近30%。
+
+** 能力训练营体系  **
+
+包含储备训练营和进阶训练营两部分。储备训练营是员工转岗/晋升前的必经环节，通过岗位画像选拔，强化职业技能与素养；进阶训练营，适用于在岗一年的员工，深化技能并培养业务导师，结合实战场景模拟确保能力达标。
+
+** 能级认证标签制度  **
+
+推行新手、熟手、能手三级标签体系，通过定期评估与实景演练复核，动态更新标签，确保员工能力与岗位需求实时校准。能级标签直接关联交付质量与计件工资，激发员工的成长动力。
+
+人事远程交付中心积极探索外部市场，基于现有服务产品，全力市场化，持续创新变革，为更多的外部客户提供好产品、好服务，当前外部客户已经有66家，触及制造、医疗、物业、万物云生态企业等。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8ASYPKb2WWDJriaradLfeTBV5aiafLdaHQVHmKbl5icJsA2HickKkR0Ru75A/640?wx_fmt=gif&from=appmsg)
+
+** 建设成效  **
+
+自2015年成立以来，祥盈企服人事远程交付中心历经10年的稳健发展，通过内部流程精益，RPA开发等数字化手段，不断提升服务效率，服务规模由成立之初的5万人发展到超20万人，人均服务能力持续增强。作为三支柱的重要组成部分，2024年人事远程交付中心积极配合公司推动职能业务标准化、共享化、远程化、智能化，提升职能服务效率与响应速度，助力业务降本增效，3年实现提效40%的目标。此外，由人事远程交付中心研发的社保智能机器人取得较好的应用效果，目前智能机器人已覆盖全国50多个地区，为400余家企业13万余员工提供高品质服务，成功斩获“2024人力资源科技产品奖”，赢得行业认可。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8ASYPKb2WWDJriaradLfeTBV5aiafLdaHQVHmKbl5icJsA2HickKkR0Ru75A/640?wx_fmt=gif&from=appmsg)
+
+未来，祥盈企服人事远程交付中心将向AI融合和全线市场化两大方向发展，业务变革和技术升级两手抓，通过AI赋能，全力迈进HRSSC3.0时代，推进组织管理、背景调查、人事业务、资料审核、人才供应、数据分析六大AI+HR场景落地应用，打造更多的行业前沿产品，提高外部市场分额，主动出击，获取更多客户的信任与合作，赋能组织、业务的发展。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8ASYPKb2WWDJriaradLfeTBV5aiafLdaHQVHmKbl5icJsA2HickKkR0Ru75A/640?wx_fmt=gif&from=appmsg)
+
+  
+
+** 2025智享会人力资源共享服务中心价值大奖  **
+
+智享会人力资源共享服务中心价值大奖陪伴大家走到了第十个年头。十年里，我们迅速从0到1搭建了行业评选的专业标准、参考维度、评选流程，并通过五届评选的沉淀不断完善评审细则、优化流程。我们一直坚守初心，始终以“汇聚优秀企业，发现最佳实践，引领人力资源行业发展”为目标，打造权威、专业、具有公信力的人力资源奖项。
+
+  
+
+在这样的坚持下，我们看到，智享会人力资源共享服务中心价值大奖得到了越来越多业内人士的认可，品牌影响力不断扩大。一方面，更多业内资深专家加入评审阵容，为评选带来更专业、严谨的视角；另一方面，参与评选的企业逐年增加，带来行业内更多领先案例。
+
+  
+
+十年是一个重要的节点，也是一个崭新的起点。在此，我们也与大家许下一个全新的“十年之约”，希望未来能够继续与各位携手共进，不断优化评选体系，挖掘更多在人力资源共享服务中心领域中真正具有价值的优秀案例，并通过价值大奖的平台向行业内的精英人士们展示。
+
+  
+
+** 主办方  **
+
+** 全程合作伙伴  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8A1Ooe2mpXwZ3libZibibU4SibqZ4ZJXUngicDAaRTVEQget7ek2oa84uAyfQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8A47vqcOFiaQVjibJzWHRAA9ysOMIXrdevib8wdZyMHIl1JdG5uVWMnczRQ/640?wx_fmt=png&from=appmsg)
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8ACYdlEhiccJYDDpv7z7yMRjH5e2VbmicJzJq3jlrMC5b5kuZ1yicTicibNaQ/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TTVWibxxMTb7ibQ7Y4M9xxm8ATxXawXW2TV3IAWt3ynvkUXwuYpu3Q9udOcAvOkF3EeML2HRynUAUtw/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TR4ASHcUl0iaYVZlHWttkCUEnNq9v03qIFCwfOq4Lgv4EE8WxDibu9pu7yTkSB5Y1no9mP4ehxOYdRQ/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRoLsug2vprwvy8vsBnwHgMEibQRPVvEiaGX7XDeRmRxLup5wMgNepexjOoMibDLy41ArMnpq8ONxsyg/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+---
+
+## 调研邀请2026智享会人力资源技术供应商知名度与用户推荐度调研
+
+![cover_image](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtAGCGzdUk3JgYV7f3qV1gjwVcPia7Vfke9l3PwPFGFwc2TrY0dGOFALewvJ6nR4SIlEu2PJ9fFhwRXJhnynsjGIjEWshL3nLGD0/0?wx_fmt=jpeg)
+
+#  调研邀请 | 2026智享会人力资源技术供应商知名度与用户推荐度调研 
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年03月25日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+  
+
+** 调  **
+
+** 研  **
+
+  
+
+  
+
+  
+
+为帮助企业HR在市场上找到真正有价值的人力资源服务商，  ** 2026智享会人力资源技术供应商  ** ** 价值大奖  **
+将秉承一贯的“公平、公正、公开”原则，以“汇聚优秀供应商，推广最佳服务，引领人力资源行业发展”为目标，全程不收取任何费用，相信必将又是一次万众瞩目的盛事。
+
+  
+
+目前我们已收到共  ** 64  ** ** 家优秀服务商  ** 的参选申请，通过此次调研，我们从会员及人力资源工作者的调研中了解中国主要  **
+人力资源技术供应商  ** 品牌知名度及用户推荐度。
+
+  
+
+  
+
+** 参调福利  **  
+
+  
+
+  
+
+如果您是企业人力资源专职人员，我们诚挚的邀请您参与本次调研，完成有效问卷，您将获得：
+
+  
+
+  * ** 29  ** ** 元瑞幸咖啡电子代金券1张  **
+
+  * ** 智享学堂专栏课程 三选一  ** （法律法规优秀实践系列二、人力资源共享服务中心优秀实践系列、人才管理优秀实践系列） 
+
+  
+
+** （我们将于问卷截止后，预计4月20-24日统一发送）  **
+
+  
+
+_ 问卷收集数量有限，额满即止 》》》》》》  _
+
+  
+
+我们的问卷很简短，仅需约6-8分钟（我们谢绝非人力资源专职人员的参与）
+
+  
+
+** 抓紧点击阅读原文参调吧！  **
+
+![](https://mmbiz.qpic.cn/mmbiz_svg/Q3auHgzwzM7MA1P1ibjUFlylr9tC0Ph45SuhF2VBz20fXzGODZb87Hf7M6f7KTZ6LWRj7zoxNuDTYF3aMJm8rOJ9ZGpp9OiaoUpcnwb7k3YA3Rwj4yssdmgg/640?wx_fmt=svg&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_svg/Q3auHgzwzM6wpUCEwtxdnNkm9hZo7WDlNtiaO1cHMFbibHiazHuXgibgq4Eib16v1Cp5vicPewrPdRQmx8wyMcOQ4zdOrtbTaoFC3eAOsPJ46yg1tLNkFPUxed0A/640?wx_fmt=svg&from=appmsg)
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 走进太平洋保险薪酬激励机制与员工福利创新构建有温度有竞争力的人才生态系统
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TSrCHXwias9Tg4ibUpeL5DpBoBHriagCo573jHvcC33hHqCG5ZQQKxPonLxrNBicvicIBCwcib4D9DmiaFgA/0?wx_fmt=jpeg)
+
+#  走进太平洋保险——薪酬激励机制与员工福利创新，构建有温度、有竞争力的人才生态系统
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月18日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+2025年12月11日，  人力资源智享会携手中国四大保司之一、隶属上海国资委监管的太平洋保险，成功举办了“  **
+走进太平洋保险——薪酬激励机制与员工福利创新，构建有温度、有竞争力的人才生态系统  ** ”主题活动。
+
+**  
+**
+
+  
+
+  
+
+** 关于太平洋寿险  **
+
+** 关于太平洋寿险  **
+
+太平洋寿险是中国太保旗下专业寿险子公司，集团连续14年入选《财富》世界500强，为超1.8亿客户提供全方位风险保障、财富规划和资产管理服务。公司以客户需求为中心，提升产品创新能力、客户体验和运营效能，为客户提供覆盖全生命周期的综合解决方案。
+
+  
+
+  
+
+** 活动现场  **
+
+  
+
+_** 签到  ** _
+
+  
+
+本次探访活动吸引了众多来自不同企业的HR代表。太平洋与智享会的工作人员热情地迎接每一位到场嘉宾，并引导大家进入会议厅，正式开启一场精彩纷呈的活动之旅。活动现场，参会者不仅享受到了市级安保标准与专属领导接待的高规格礼遇，更通过一系列精彩纷呈的分享与交流环节，深入剖析了高管薪酬设计与财富规划管理的精髓，为参会者提供了全面而深入的学习体验。
+
+** 欢迎致辞  **
+
+叶楠-中国太保
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TT0loxHymrEYp1kEIRbh1gY6spqkp8sucfA7euawR0SdaDHjsCvAicyKNDNQGEhWibR8XeONP52hnww/640?wx_fmt=jpeg&from=appmsg)
+
+**_ 汇客展厅参观  _ **
+
+** 专题分享:高净值人群的个人及家庭财富规划新主张  **
+
+于眉-中国太保
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TT0loxHymrEYp1kEIRbh1gYwlYbyOqnD4U7NLG8y18TibvzLIibMr2EV0bHYFP3gWCo5vy1tFC4HiaDw/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+
+  
+
+  
+
+_** 专题分享:企业薪酬激励模型设计与实践  ** _
+
+杭瑜-中国太保
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TT0loxHymrEYp1kEIRbh1gYXyp3xm3H6ePtiasPFvFI8HEtu4Ba7UrGRKxDGvmcIshs0DAdwUkSl5w/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+
+** 专题分享:最新员工福利政策解读与案例分享  **
+
+杭瑜-中国太保
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TT0loxHymrEYp1kEIRbh1gYQCBOWOmmGdLicImdciaNwR6icz1nyQEUIU2AZPhOQkfIicP2p5iaZ4drGtw/640?wx_fmt=jpeg&from=appmsg)
+
+**_ 互动与讨论  _ **
+
+**_ 合影  _ **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TT0loxHymrEYp1kEIRbh1gYnqUy4UWqNndxpRsictavLSJ7xXUweccX7tNZvtAFYMColTyYJ85Vhww/640?wx_fmt=jpeg&from=appmsg)
+
+  
+
+  
+
+  
+
+  
+
+  
+
+  
+
+  
+
+  
+
+  
+
+** 未来展望  **
+
+  
+
+智享会作为行业内的权威组织，始终致力于促进企业之间的交流与合作，共同探索行业发展的新趋势和新模式。此次“走进太平洋保险”主题活动的成功举办，不仅彰显了智享会在推动企业交流与合作方面的积极作用，也为参会企业提供了一个学习先进经验、探索行业新趋势的重要平台。
+
+  
+
+通过此次活动，参会者了解到太平洋保险在薪酬激励机制与员工福利创新方面的先进做法，活动中的分享与交流环节，让参会者对高管薪酬设计、企业薪酬激励模型以及最新政策解读有了更为清晰和深入的认识。
+
+  
+
+未来，智享会将继续发挥桥梁作用，促进企业间的深度交流与合作，共同推动人力资源管理领域的创新发展。
+
+  
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 邀您参与北京发布会韧性即竞争力员工心理韧性与企业发展白皮书线下发布会
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCLcqC3j3tdLwz9JNxVb9ialuopNx4I7gUMriaN8mGjJ5ia2f8ricSEy566z4j7MJyQsjrbOgxetRl70LeNb7qCln1yj54tHDFeGRI/0?wx_fmt=jpeg)
+
+#  邀您参与北京发布会：《韧性即竞争力：员工心理韧性与企业发展白皮书》线下发布会
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年02月09日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+智享会与安赞咨询联合开展了  ** 《韧性即竞争力：员工心理韧性与企业发展白皮书》线下发布会  ** ，3月26日将邀请到  **
+应用心理研究所所长，中央财经大学 赵女士  ** ** 、安赞企业管理顾问（北京）有限公司总经理 明女士、泰邦生物集团共享服务中心总经理&人力资源总监
+夏女士  ** 在北京带来线下分享。  
+
+  
+
+** 活 动 概 要  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtDF23b41k18FKqowfufKInVVibwDaaiauZ2a7rPPWYcJwDnI8aM4ESIgrWqwEFwRq0NyaoCK5ZeF7ibICe5dxsict8ww3yUNbtQFZE/640?wx_fmt=png&from=appmsg)
+
+** 《韧性即竞争力：员工心理韧性与企业发展白皮书》线下发布会  **
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAyOrBLtd4HXkxLHBqE8sOysPrX6sQia5RceEB6hlxx161UOkjiaDQeblpMNy7csb9NvNUKdrjQp5yPDB8COedATiccuHDia6P9CDk/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCeIon5qjeZTfze1LjbLlGnryqPZAkPPLbnwUTzcv9nvHeuicys6827aYoClXMh3dxCSjMtDYmYtD9jhjthAkVxampV5VdUMxd0/640?wx_fmt=png&from=appmsg)
+
+** 时间：  ** 3月26日（周四） 9:00-16:00
+
+** 地点：北京线下  **
+
+** 费用: 0 RMB  **
+
+** 参会对象：企业HR职位  **
+
+（*人力资源服务商性质企业谢绝参与）
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtDYbibXD4Af1ISjG1AiakbXXqrv01BcvF3tp751EboqpPQymHChmobibIyFTFDEybfYuWJsIVf5pRM7jbEDiaGn3znNc7ltr0aRplw/640?wx_fmt=jpeg&from=appmsg)
+
+** 报名方式  **
+
+** 只要您是人力资源职能职位  **
+
+（非人力资源服务商性质企业）  ，
+
+** 即可免费报名！  **
+
+  
+
+►►►
+
+** 研究背景  **
+
+  
+
+当前，国内外经济正处于深度调整阶段。企业经营环境日益呈现出“碎片化、高频变、难预测”的新常态。全球经济增速普遍放缓，贸易壁垒持续上升，国内也面临GDP增速回落、消费与投资动力不足等挑战。内外挑战交织，对企业营商环境造成持续考验。
+
+外部压力持续传导至企业端，市场竞争加剧、人才流动性上升，使组织仅依靠传统效率优化已难以应对系统性风险。在此背景下，组织亟需构建一种能够在冲击中持续适应、恢复并实现反超的核心能力——组织韧性。
+
+在影响组织韧性的诸多因素中，“人”始终是最核心的变量。稳定的组织结构、完善的运行流程为组织的风险抵抗提供了基础，而领导力、团队协作以及员工的认知与情绪能力则构成了组织复苏与超越的内在动力。这些软性因素是影响组织韧性水平的关键。
+
+据美国心理学会等相关文献研究与实践观察可知，  **
+员工心理韧性是上述软性能力的底层支撑，其重要性日益凸显。它不仅关乎个体在压力下的情绪稳定与行为效能，也深刻影响团队的心理安全氛围与协作质量。  **
+
+由此，一系列现实问题亟待厘清：组织对员工心理韧性的需求与员工实际表现之间，究竟存在怎样的关系？员工的真实心理状态如何？企业现有的心理支持体系，其定位、资源与运作方式是否匹配？二者之间如何互动？当前体系对提升心理韧性是否真正有效？如果效果不彰，将对组织产生何种影响，又该从何处突破？
+
+**
+为此，智享会联动安赞咨询开启了《韧性即竞争力：员工心理韧性与企业发展白皮书》调研研究。本白皮书旨在为企业系统梳理韧性理念，并针对心理韧性议题，整理提升心理韧性的系统性提升方案。
+**
+
+  
+
+►►►
+
+** 活动安排  **
+
+09:00—09:30 签到
+
+09:30—09:35 主持人开场
+
+09:35—10:05  ** 光照进来的地方：浅谈韧性与危机干预  **
+
+赵女士｜应用心理研究所所长 中央财经大学
+
+10:05—10:35  ** 《韧性即竞争力：员工心理韧性与企业发展白皮书》报告解读  **
+
+明女士｜总经理｜安赞企业管理顾问（北京）有限公司
+
+10:35—10:50 茶歇时间
+
+10:50—11:20  ** 组织韧性生长计划：筑牢心理契约，激活团队动能  **
+
+夏女士｜集团共享服务中心总经理&人力资源总监｜泰邦生物集团
+
+11:20—11:50 来自京东的分享
+
+11:50—12:20 来自鼎源万家的分享
+
+12:20—14:00 午休时间
+
+14:00—16:00 四大分会场：京东、安赞、大美心田、鼎源万家
+
+  
+
+►►►
+
+** 关于嘉宾  **
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtD1bBoIEkseYvia1p1XAWz6HVsXvftJicADcVoTkuDXgWrku7dde17akk3TSqDKs1cEbwv9ySuWTSSpV9PZJjSomVb8qZw2l8Pw8/640?wx_fmt=jpeg&from=appmsg)
+
+** 明女士：安赞咨询CEO、中国人民大学心理系专硕校外导师  **
+
+** ·  ** 美国马里兰大学ICISF个体/群体危机干预认证/德国Cevey领导力潜能认证教练
+
+** ·  ** 中国人民大学心理系专硕校外导师/中国心理学会会员
+
+** ·  ** 国际EAP协会中国分会理事/亚洲EAP协会理事委员
+
+** ·  ** 中国社会心理学会员工与组织社会心理援助专业委员会理事
+
+  
+
+明女士拥有超过20年的大型跨国公司高层管理经验，其中包括COMPAQ、甲骨文等财富500强跨国公司高管工作经验，并有超过15年的心理咨询与EAP行业从业经验，曾担任过亚太地区领先的EAP供应商-
+天力亚太公司大中华区执行总监，带领该公司成为中国最知名的EAP服务商，曾服务员工超过百万。
+
+2018年底创立安赞咨询，为践行
+“职场不‘心’苦”的初心，致力于多元化企业EAP解决方案的研发与定制，擅长以组织视角提升EAP价值，用最新的IT技术，改善和提升EAP服务效能。
+
+在过去多年的EAP专业服务中，明女士将先进的组织危机管理理念和实践带入到中国的EAP服务之中，无论是在组织变革还是重大的危机事件中，为组织提供专业的心理支持和保障。
+
+在明女士带领研发的《危机管理顾问认证课程》不但获得了国家版权著作权认证，也成为国际EAP协会中国分会的首个关于危机管理专业顾问技术的认证课程。
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtDMkbyCZBjj7qW8S2V3aNcZEuVExKoWj7LvZCibL1nycMt3OaH6vxbuCG5zOQbUibH3RJIPoJicksuCic9c6IBy2rRiaXicZibcPKeHq8/640?wx_fmt=jpeg&from=appmsg)
+
+** 赵女士：中央财经大学企业与社会心理应用研究所所长、心理系教授、研究生导师  **
+
+** ·  ** 中国心理卫生协会理事，EAP专业委员会主任委员、妇女健康与发展专业委员会副主任委员、后现代专业委员会副主任委员
+
+** ·  ** 中国心理学会员工心理促进工作委员会副主任委员
+
+** ·  ** 中国社会心理学会理事、员工与组织社会心理援助（EOA）专业委员会副主任委员
+
+** ·  ** 国际员工帮助计划协会（EAPA）中国分会名誉主席 l中国心理卫生协会首批认证督导师、中国心理学会注册系统督导师
+
+  
+
+赵教授长期致力于员工帮助计划（EAP）、组织行为学、健康心理学、心理教练技术、焦点解决短程咨询/教练实践与研究。
+
+2005年，赵教授将焦点解决方法论从美国带入国内EAP领域，促进了焦点解决在中国的应用与发展，不仅加深了国内对此方法论的理解和应用，也为心理健康服务提供了有效的工具和方法。经过近20年的探索与实践，赵教授将焦点解决应用到企业管理、职场沟通、家庭教育等多领域，充分发挥焦点解决的积极应用价值。
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCRlbiaAcVYgNSQHC20J7SUUKayBHXayK90HJqPqtWcUbzAutDiaVFaAF9D7jE1ibe6PMgLMeF6s4n79lkWlVdwtBMfho8pic1Z0to/640?wx_fmt=png&from=appmsg)
+
+** 夏女士：泰邦生物集团 集团共享服务中心总经理、人力资源总监  **
+
+** ·  ** 历任可口可乐公司、中粮集团、加多宝集团、某大型生物医药集团等多家知名企业人力资源及企业运营高管职务
+
+** ·  ** 北京中外企业人力资源协会常务理事
+
+** ·  ** 中商企业协会人力资源分会特邀理事
+
+** ·  ** 中国人力资源开发研究会智库专家  **  
+**
+
+** ·  ** 中国人民大学商学院MBA、劳动人事学院专业硕士企业实践导师  **  
+**
+
+** ·  ** 毕业于北京大学，应用心理学专业硕士学位
+
+** ·  ** 36年人力资源专业管理及实践经验，22年世界500强企业、大型央企、民营企业等多家知名企业人力资源及综合运营高管实践经验  **  
+**
+
+** ·  ** 丰富的组织变革管理及组织重构、人力资源变革管理等实践经验
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtB1maMl3HB7oxXtRqT0gvdOaUdJQTrKFWqn9PAv3KgRvudLnv5IlIBfKnwHXHOK5VYyNUy4ibZ8VGmbaaZBN8jhDROCt7xN7cAQ/640?wx_fmt=png&from=appmsg)
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 重磅直播限时免费低绩效员工管理
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXLHHgqexxrs3IiazC4LibSqQD8g5NXgibkfMVFuJKs9vyHxy009KWgSUdw/0?wx_fmt=jpeg)
+
+#  【重磅直播，限时免费】低绩效员工管理
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2025年12月12日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXicAobY7aBvgauJKklTcNroU5OicSA5ac29Vnpt12FR5rSw62S4YY56LQ/640?wx_fmt=png&from=appmsg)
+
+  
+
+** 线上直播课  **
+
+  
+
+** 低绩效员工管理  **
+
+  
+
+** 活动时间：12  ** 月17日  ** ** （周三）  ** **
+
+** 下午13:45  ** ** -15:15  **
+
+** 活动地点：线上  **
+
+  
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXPIn4F2QK47KHyOLkdtF3NlwP40IMqk6YPKoZoKkHjcaoc8gMWZQInQ/640?wx_fmt=gif&from=appmsg)
+
+** 活动简介  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXPIn4F2QK47KHyOLkdtF3NlwP40IMqk6YPKoZoKkHjcaoc8gMWZQInQ/640?wx_fmt=gif&from=appmsg)
+
+作为对员工价值的核心评价指标，“绩效”一直备受关注。经济形势的变化导致企业愈发重视降本增效，“低绩效”员工的调岗调薪与解雇管理，也因此显得更为重要。然而由于“低绩效”员工管理在现实中存在着沟通更具挑战性、法律规定严苛、证据保存困难、劳动争议高发且极易败诉等种种困难，企业在实际操作中亦容易引发各类风险，导致承担不必要的成本。
+
+针对上述问题，本次课程将从完善低绩效管理制度防控体系出发，深入探讨低绩效员工管理的各个发展阶段之实操技巧和风险预防，结合操作实务，与大家分享低绩效员工调岗调薪与解雇中的最新挑战和应对策略，以期帮助企业有效防控风险，提升管理效能。
+
+•低绩效的法律内涵与制度体系设计
+
+•低绩效员工调岗调薪的路径与措施
+
+•低绩效员工的沟通谈判与合同解除
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXg9IkgybUaSqic8bxqEk3hnWzypBouQ6wXPFAKAcnGWKUOxHtnWvibYcw/640?wx_fmt=jpeg&from=appmsg)
+
+** 直播获取方式  **
+
+扫码关注  ** 智享学堂  ** 服务号
+
+对话框回复  ** 关键词  ** ** “1”  **
+
+** 免费  获取直播链接  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXPIn4F2QK47KHyOLkdtF3NlwP40IMqk6YPKoZoKkHjcaoc8gMWZQInQ/640?wx_fmt=gif&from=appmsg)
+
+** 活动安排  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXPIn4F2QK47KHyOLkdtF3NlwP40IMqk6YPKoZoKkHjcaoc8gMWZQInQ/640?wx_fmt=gif&from=appmsg)
+
+13:45-14:00 接入电话
+
+14:00-14:05 开场介绍
+
+14:05-15:05 分享
+
+** 低绩效员工管理  **
+
+** 周律师 |  ** ** 合伙人律师 | 江三角律师事务所、北京劳动法三中心主任、高级经济师、国有企业二级法律顾问（副高级）  **
+
+15:05-15:15 问答
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXEJWWtLbCON18Q1a1IxGG0zn6LbcUia4OFcEy4DZVt3w2S7JPs9uCwpg/640?wx_fmt=jpeg&from=appmsg)
+
+** 周律师  **
+
+合伙人律师 | 江三角律师事务所、北京劳动法三中心主任、高级经济师、国有企业二级法律顾问（副高级） 
+
+** 嘉宾介绍：  **  
+
+周律师，江三角合伙人、北京劳动法三中心主任，高级经济师，国有企业二级法律顾问（副高级），主要执业领域为劳动与雇佣、争议解决、合规。
+
+周律师有16年以上大型国有企业、民营企业、上市公司人力资源管理经验，精通劳动法律关系以及企业人力资源管理方面的法律规定和实务处理，积累了大量的经验，主导过数万名员工的分流安置、群体性协商谈判、减员增效项目；解决过数千名员工的各类长期病伤、休假待岗、历史遗留问题；处理过四千余名劳务派遣员工的劳动关系转型与调整；代理过百余起各类典型的劳动争议案件。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXPIn4F2QK47KHyOLkdtF3NlwP40IMqk6YPKoZoKkHjcaoc8gMWZQInQ/640?wx_fmt=gif&from=appmsg)
+
+** 直播福利  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXPIn4F2QK47KHyOLkdtF3NlwP40IMqk6YPKoZoKkHjcaoc8gMWZQInQ/640?wx_fmt=gif&from=appmsg)
+
+直播间惊喜不断，加入直播狂欢，
+
+即刻有机会享受，
+
+**** ** 智享学堂课程  ** 限时  ** 半价  ** ** 优惠  ** 福利!
+
+让我们一起在知识的海洋中遨游，
+
+共同提升职场竞争力！💪
+
+  
+
+**  
+**
+
+** 关于  ** ** 智享学堂  **
+
+智享学堂是智享会旗下品牌，旨在满足广大HR个人学习者的学习需求。在线课程及活动覆盖劳动法律法规、人才管理、组织发展、学习发展、薪酬福利、绩效管理、招聘任用、员工关系、HRBP、HRSSC等人力资源细分领域。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/iah345Lgn8TRQIFH8iagkNBSVnnT6VmkcXg9IkgybUaSqic8bxqEk3hnWzypBouQ6wXPFAKAcnGWKUOxHtnWvibYcw/640?wx_fmt=jpeg&from=appmsg)
+
+** 直播获取方式  **
+
+扫码关注  ** 智享学堂  ** 服务号
+
+对话框回复  ** 关键词  ** ** “1”  **
+
+** 免费  获取直播链接  **
+
+  
+
+预览时标签不可点
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 重视AI招聘技术应用背后的算法歧视问题
+
+![cover_image](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtA8CNg2drOqEQpMYrgNqmHyJibicjCMVUo1wL8Fx7iaNlNAJZYHOYrGIFXkn8ibHYU4NPbdPYNbm2Iia54MGPVbdfhOZydZgiab8ibwuQ/0?wx_fmt=jpeg)
+
+#  重视AI招聘技术应用背后的算法歧视问题
+
+[ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年02月25日 17:20_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+内容来源：邹羽 | 时任亚太人才吸引&招聘总监 | 开利总部 
+
+  
+
+** AI招聘技术发展如火如荼，算法歧视问题值得关注  **
+
+  
+
+当前环境下，AI对人们的工作、生活的介入已经不可避免。就人力资源的选、用、育、留来看，AI技术都能够在其中找到可赋能之处，并且助力我们工作的开展更为便利、高效。其中，招聘场景因其刚需性强、重复批量化事务多、交付结果显性化的特点，往往是企业率先会考虑进行AI技术试点应用的场景。
+
+  
+
+但企业在将AI技术落地应用于招聘场景时，却往往存在着一定的顾虑，首先，AI面试时，候选人普遍感知因为缺乏社会存在感（Social
+Presence）而导致公平感下降，同时伴随解释缺失和控制感缺失等情况。而算法歧视（Algorithmic
+Discrimination）是企业会普遍存在的顾虑之一——算法歧视问题若无法得到较好的解决，会直接影响到招聘工作开展的公平性、合理性。算法歧视具有三种表现形式：显性歧视（explicit
+discrimination,隐性歧视（implicit discrimination）和差别性影响（disparate
+impact），其中又以隐形歧视和差别性影响让人防不胜防。
+
+  
+
+算法歧视问题的出现，究其原因主要来自于两个方面：一方面，AI技术背后的模型因数据量不足或应用面不够广而缺乏成熟度；另一方面，在给AI进行训练并投喂人才画像数据时，若管理者原本在招聘时存在偏见、歧视，且对这样的偏见与歧视缺乏意识，那招聘的底层逻辑便不够公平、公正，而AI目前只能将这样的逻辑复现，无法纠偏。甚至如果借鉴莱普利·普鲁诺（Lepri
+Bruno）的观点，使用算法本身就可能是一种歧视。
+
+  
+
+  
+
+** 为什么我们需要重视算法歧视问题  **
+
+  
+
+很多情况下，事实上是该企业数据中预先已经存在的偏见导致算法歧视，此类歧视通常在此类企业构建人力资源体系和公司文化时前就已存在，算法只是将其反馈出来。
+
+  
+
+对于那些规范的，具有雇主品牌影响力的企业，因企业自身雇主品牌对候选人有较强吸引力，
+AI面试和使用和算法问题，未必存在过多的挑战。这些企业在利用AI技术进行人员筛选时，即使因为算法歧视导致一定的误伤或误判，很可能表面上不会影响最终的人才获取。但是长远来看，对于该企业的雇主品牌将会有极大的影响。
+
+  
+
+而对尚在生存线附近“挣扎”的企业而言，AI技术的定位更多是一种提效的工具，从而在未来进一步实现招聘成本的节约。大部分公司还沉浸在“高科技”“时代红利”的光环中，大量企业尚未真正重视算法歧视的问题。但从长远来看，算法歧视的问题会造成的危害仍需要企业引起足够的重视：
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/KNlRbic3WUtCwtPySQ3m3R2DhXyPqVDSBCMy2jjFdUUpqVCRF9LzfPmEA8vIZjldfLcen3icb69pwWX5dAhEEsUu6EIOH0zYoJEx5tGJMia4iaQ/640?wx_fmt=gif&from=appmsg)
+
+** 复制并放大偏见，加剧社会不平等与群体排斥  **
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCWWO75EHESBgjgAKzZVyvqorP7DZDT5icGqooZnScdQNZNOuhy7BicOJkXvzeE50hwKLvm0hu3xdVVRz4Uw35Ckj1fibxicRiaV77s/640?wx_fmt=png&from=appmsg)
+
+许多招聘算法是基于历史招聘数据训练的，而这些数据往往反映了过去不公正的用人决策。算法“学习”了这种模式，继续筛除这些群体，形成“偏见循环”，系统性地排除某些群体，尤其是处于劣势的群体，如女性、少数族裔、年长者和残障人士。从而加剧职场中的结构性不平等。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/KNlRbic3WUtCPYqBNm9dn8lhycrtzZibBK20vibCW6kPHy19QpprvKuQ31RS7bNgQWHgYibpicLD1Pmhs4TibtYSicxHUcibZg6jGsjYy9bDIrPmDic8/640?wx_fmt=gif&from=appmsg)
+
+** 决策错误造成的影响会被几何级放大  **
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtC9NabEzEefg3kefD5fjLZsLiaMwoJmUSlH403MCo79PqCjk2AM0WrkMuAcxkjBr9EeO0SUUic1PrUYt0Fxr0nRiacy4m8n5NThibk/640?wx_fmt=png&from=appmsg)
+
+在过去，招聘决策的落地需要一定的时间与流程，很多问题的出现是较为单点且偶发的。随着AI工具的介入，从决策到落地的链条缩短了，事务的开展也更为高效。此时，如果有决策上的错误，其带来的损失将会呈几何量级增加。
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtASJqlJbC2E2ekjBR3JoQSELInqdnLNHoCpDVwibhMwYI8WTqskxv5OFPGiciaZRmA4pkZ4KmNqETQfWXpia9y7dCfkTTsSpfKngRE/640?wx_fmt=gif&from=appmsg)
+
+** 将AI工具化会让招聘工作更难了解真实的候选人情况  **
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtDc7HrCicCTgQ9YTRvox6MMcicZsNMeRiaUetJrx7jZrP8KWDY0eiaxUsJibpTkBM3uNVGm4YW05E2B85x0GndY7Ja7c3r53cscsxyU/640?wx_fmt=png&from=appmsg)
+
+Deepseek横空出世后，中国企业应用AI的成本与门槛有所降低，未来可以预见会有越来越多的企业将AI应用到招聘工作中。但无论是否应用AI技术，用人方与求职者之前的关系都是平等的。当候选人意识到企业在利用并不公正的算法筛选候选人，而非真正关注、尊重每个候选人的能力、经验时，短期内用人方与求职者的不平等会被进一步加大，且随着技术的发展，候选人也可以利用算法来生成简历，“应付”企业的招聘。久而久之，算法并没有帮助企业筛选到合适的候选人，反而增加了识别人才的困难。
+
+  
+
+  
+
+** 企业如何避免算法歧视问题  **
+
+  
+
+在意识到算法歧视问题的重要性后，企业若需要进一步避免算法歧视问题未来在企业内发生，可以从以下几个层面着手：
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtBeia31uhJUmMetfv0Z9HqoRAInpDq2hYBDnTMgJVictUHQ1kx8hsFicNp0btFkYcwv4IoEiaKoHHaM2ejZctBwjKNtwXmUmibd5dVc/640?wx_fmt=png&from=appmsg)
+
+** 技术上,优化算法设计和数据模型  **
+
+目前国内的算法技术还不成熟，我国仅停留在倡导“算法也应具备良好的价值伦理”层面。只有从根本上优化算法，科学公平的设计好模型，从能从根本上杜绝算法歧视。
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCmicIIibWGHA7Fxhosp9yibKhPxicx1jRPjdxOffaSEAdBrYgHvy8KSlzQRQ97XsrLzNsQxlNSnKpYM8iaHDkZdJy82WvAWmQSaCXA/640?wx_fmt=png&from=appmsg)
+
+** 监管上，建立制度与流程保障  **
+
+企业应定期对AI招聘系统进行内部审查与外部审计，确保其公平性和合规性。实现人机系统，定期检查，建立申诉通道，允许求职者对AI决策结果提出质疑并获得解释。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtBeVLycoicMpC0VDXo5RIlOPeSeoozv69Dc24DN81271jq0YODwAC7xwlVic6CN741SUxY1ljalpNpNahEia4kia8rUgicfYibicdwDS8/640?wx_fmt=png&from=appmsg)
+
+** 功能上，设置AI伦理官职能  **
+
+相比较于技术研究，科技人员的伦理意识的培养则更为重要。作为新生的、跨边界的职能，AI伦理官既需要具备AI、IT相关的知识，又需要了解人力资源，并且要让企业内的AI实践符合企业文化倡导的大方向（如：是否注重多元、平等、包容，等等）监管算法歧视问题。避免在大模型中出现歧视性字段：如性别、年龄等可能会涉及歧视问题的字段可以在招聘大模型中不做设置，从而使得这些字段不参与具体的运算与决策，从技术层面避免歧视问题的产生。
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtAP28mUH049UOMp4dXiak1pTVuMlP6NuL6yeozTQWqanDiclJ5G2lFeYibic63znDExXEO3s7CxfXf2IrhicsS68HhhDaQ4H45FuDG8/640?wx_fmt=png&from=appmsg)
+
+** 实操上，提升HR和技术人员的伦理培训  **
+
+实现以及对HR进行算法基础培训，提升其对AI输出结果的判断力都可以提升保障能力。实现AI负责初筛与结构化评估，HR负责深度面试与最终决策，避免算法“一言堂”。
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtCsm8TJtCo5n4ColYofb64dFO7OlcOhTz6OW0lJfkchka8v5qkbafbibicCLibZ6ibo1AibYmuVjc1WU99r7GaRHa4BsR17ibO2Zibl8A/640?wx_fmt=png&from=appmsg)
+
+** 法律上，推动合规和规范化，审慎评估组织是否已经做好了数字与人共存的准备  **
+
+这样的准备不仅仅是指技术层面的，还指从决策的底层逻辑来看，是否有足够成熟的机制确保AI伦理、算法公平，而非仅仅将AI作为一种提效的工具。
+
+  
+
+  
+
+综上，AI技术在招聘领域的深入应用，无疑为企业带来了显著的效率提升与流程优化。然而，伴随其发展而来的算法歧视风险，如同一把悬顶之剑，时刻警示着我们：技术赋能不应以牺牲公平公正为代价。当模型的不成熟与潜藏的社会偏见叠加，其产生的歧视性决策不仅会误伤个体、损害雇主品牌，更会因决策链条的加速而将负面影响几何级放大。长远来看，若放任算法筛选替代人与人之间的真实评估，不仅会加剧劳资关系的不平等，更可能催生候选人利用技术“反制”的博弈困境，最终使得招聘的精准度不升反降。
+
+  
+
+算法在招聘中的应用本意是提升效率与公平性，但若缺乏适当的监管与偏见控制机制，反而可能放大社会偏见、损害个体权益，并破坏组织与社会的公平基础。推动算法透明化、可解释性和公平性建设，是当前AI招聘系统亟需解决的关键问题。因此，重视并解决算法歧视问题，已非简单的技术优化，而是关乎组织伦理、社会责任与可持续发展的核心议题。企业亟需超越“工具化”的思维，从底层逻辑审视招聘的公平性，通过设立AI伦理官、剔除歧视性字段、构建成熟的伦理监督机制等系统性举措，将多元、平等、包容的理念真正融入算法血脉。
+
+  
+
+唯有如此，我们才能驾驭技术的力量，让人工智能在解放人力、提升效率的同时，成为促进人才市场更开放、更公平、更具人文关怀的积极力量，而非固化偏见、加剧鸿沟的无形壁垒。技术的未来应是“向善”而行，招聘领域尤其如此。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtBWtCecv9icSibKZznibmqu3JPgD8IrkXibRyM63eEepY7aA3f42ArAcEjk1QH9HiaHPuqxN7QJX7AEyqTdzBnrXhy7j5WQdSwiaMoIg/640?wx_fmt=png&from=appmsg)
+
+  
+
+注：文章整理于2025年7月  ▋
+
+来源：  智享会&易路|图谱《Smart TA Applicaitions——AI在招聘领域的应用》
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtARhDnNURMHQunABic9EZSNou8FibB4FmT0BibmAuB42nglibIVfMaH5m5MvX3QITiao2ibs9icmlNxpFdszdGyoCiaTMMibichUgYM1qckM/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtASB4JvDJhU8gR6KQGjUF1icasumm7FYK7n9GT5PcsEYJYAFZEPs96gN9XLicicONcF9X7xCE0aLjKedgbyv35FEeZSpwuarBxUCU/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/mmbiz_gif/KNlRbic3WUtD4loiallgzThPU8jHFpodyhPZRLSUoKw2G9Fxsd5TTu7yiaCGJO9wVpeGQzaMYxc451ib0dxBeEGe0UeI7uRJqQlxC3MYq3VzNlc/640?wx_fmt=gif&from=appmsg)  
+  
+
+** ★相关推荐★  **
+
+  
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBPV9VSgydxxicTmAsN54GAv6zUYGXH03urP6U2Ibs65MHDNgr5AnxtThGibQFLiccayPyVSP0T6ibILf5iajs4ibj0jiaZat8COWs6Eo/640?wx_fmt=png&from=appmsg)
+
+  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+
+
+---
+
+## 黄仁勋GTC现场说了哪三点让HR坐立不安Al浪潮席卷人力资源行业的三个确定性信号
+
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCRK37whibP9DzuIPCGKn4D17eeLnO8icDGBV7lLouLt7JuogIQqA997jcTOoa1HHnQsLxAQzjezDBNom5w49Amx2eCj49sT7d0g/0?wx_fmt=jpeg)
+
+#  黄仁勋GTC现场说了哪三点，让HR坐立不安——Al浪潮席卷人力资源行业的三个确定性信号
+
+原创  人力资源智享会  人力资源智享会  [ 人力资源智享会HREC ](javascript:void\(0\);)
+
+_2026年03月25日 17:21_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtDZmdgmiaZJCdDyUQib7ItK74M2Zxbk6BY9u8VhPbDDD0YaIpyMeFEglo3KMZpjxqMZTwicx7d3iaUTyoibp8qX2UBjtdiaK6kOf9mSY/640?wx_fmt=jpeg&from=appmsg)
+
+** 撰稿人：智享会CEO章承诚  **
+
+_** AI这波浪潮，  ** _ ** _ 不是狼来了，是狼已经进了门  _ ** _ 。  _
+
+**_ 黄仁勋在GTC现场释放的信号，  _ **
+
+**_ 正在改写整个人力资源行业。  _ **
+
+**_ 不是辅助，不是加分项，而是  _ ** **_ 底层逻辑重构  _ ** **_ 。  _ **
+
+_** 这3个确定性趋势，每个HR都必须看清。  ** _
+
+  
+
+  
+
+上周在加州圣何塞，黄仁勋又站在了GTC的舞台上。
+
+  
+
+如果你过去几年一直在关注AI关注老黄，大概率会对这种场面感到越来越麻木——老黄穿着皮夹克，PPT里全是漂亮的增长曲线，然后科技媒体纷纷刷屏"AI改变世界"。一个半小时之后，一切照旧，该干嘛干嘛。
+
+  
+
+但这一次，我觉得有点不一样。
+
+  
+
+3月18日，黄仁勋在GTC现场面向金融分析师举行了闭门问答会——这才是我真正关心的信号。公开主题演讲是给市场看的，闭门问答才是真刀真枪。分析师们会问什么？钱、回报率、竞争壁垒，以及——
+** 谁会被颠覆  ** ** ？  **
+
+  
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtB8bG7tOFZbODBmd4Yf1ibYfLdSVLk6cHvaPrSZMQuGLsborpaMZ2OQmBnQjbqWZrM1saOFILhlhRAAZeVnz5shvU5pM4iagF16s/640?wx_fmt=png&from=appmsg)
+
+图源AI生成
+
+  
+
+** Agentic AI：  **
+
+** HR不再是"执行者"，而是"裁判员"  **
+
+GTC 2026最热的词叫"Agentic AI"——翻译成人话就是：  _**
+AI不再只是你让它做什么它就做什么的工具，而是可以自己制定计划、调用多个系统、在无人监督下完成复杂任务的"数字员工"  ** _ ** 。  **
+
+  
+
+市面上已经有不少文章在讨论AI Agent能做什么——帮你写邮件、查数据、做PPT。这些讨论没有错，但都没有触碰到最核心的那一点。
+
+  
+
+** 真正的问题是：  ** ** 当AI可以“自主”完成任务时，HR的工作逻辑会发生什么变化？  **
+
+  
+
+我见过的HR文章里，几乎没有人提到这一点，但我认为这是最深刻的转变：
+
+  
+
+** HR将被迫从"执行者"变  ** ** 成"裁判员"。  **
+
+**  
+**
+
+为什么？
+
+  
+
+过去的HR工作，有大量内容是"受人委托，执行任务"。如下图：
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtBT3rkaUSxF4Q7BWa0HUB4kGLTeicnbKyfNQnE3uDHBdwWgEIIWiaahtBbRLrRAbB7wftVfEY7x6iatv01M7blv05t8zCFv3kRCN4/640?wx_fmt=png&from=appmsg)
+
+图源AI生成
+
+  
+
+这些工作的共同特点是：  ** HR是任务的发起者和执行者，责任链条是清晰的。  **
+
+  
+
+但当AI
+Agent介入之后，这个链条断裂了。AI可以在你不知情的情况下自动与候选人沟通、筛选数千份简历、生成面试评估报告、甚至直接发放offer——而HR的角色，变成了设定规则、监督过程、审核结果。
+
+  
+
+** 这意味着什么？意味着你不能再躲在"我只是照章办事"后面了。  **
+
+  
+
+当AI产出了一份评估报告，你作为HR，是这份报告的"背书人"。
+
+当AI筛选出了一个你不满意的候选人，你的解释成本大幅上升。
+
+当AI在无人监督的情况下群发了一轮裁员通知——我是说如果（但这完全可能发生的，而且我们可能很快就能看到这样的案例），最让人不安的是——  ** 谁来负责？
+**
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBbfx2VgRMIuxz6BiazTH8BYkUicRhrfYSxbOrEUYb70B3Y0suNBjVK7W3Y5eSib9yyhzVH83uVTpEO9wbThkIZm5YumnTKWG1vXM/640?wx_fmt=png&from=appmsg)
+
+图源AI生成
+
+  
+
+这就是"Agentic AI"对HR最深层的改变：  ** 它剥夺了执行者的"免责借口"，把裁判员推上了前台。  **
+
+你设定的规则，你监督的过程，你审核的结果——你必须对AI的输出负责。而要有效履行这个职责，HR必须比以往任何时候都更深入地理解业务、理解组织、理解人本身。这不是技术能力的提升，这是
+** 责任结构的重构  ** 。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtCMQ0RqM761oQCvjvgC62HA9ibMEHvFjJPXCKAf1IBuUlIZibur5O3tBYsfszGqNiaWwdtK4AXIpIToAjUtoiaobibZh8uOiabp9xrbU/640?wx_fmt=png&from=appmsg)
+
+图源AI生成
+
+  
+
+** Physical AI：  **
+
+** 蓝领岗位消失的速度，可能比你想的快  **
+
+![](https://mmbiz.qpic.cn/mmbiz_jpg/KNlRbic3WUtAZK9Mv3OfCibpIw1vzica83jljMTvs1ZFIGjFULF8Q3kXe0awJDLhU71EmBBWvicBiahNhkXGN4N2hTe9m22sOsFfoxT0Fzox1ySA/640?wx_fmt=jpeg&from=appmsg)
+
+图源网络
+
+  
+
+GTC 2026的另一个重磅消息，关于  ** 机器人  ** 。
+
+  
+
+过去我们以为，AI替代的岗位首先是流水线上的重复性工作，然后是客服、录入这类白领重复劳动。但这次GTC展示的内容，让这个预判显得过于保守。
+
+  
+
+黄仁勋展示了最新的人形机器人技术——机器人能够完成与人类环境高度交互的任务，不是在仓库里搬运箱子，而是  **
+在办公室、在医院、在酒店、在家庭场景中与人类协作  ** 。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtD6k5583WyJWWA3x0yHicLqsqLGmnstHPiaaoY9iamplduZH0MH7YUFDNtaH4Pv8CN96mSTstYTichlgxvZaM7x5C2fO0licxXthWqI/640?wx_fmt=png&from=appmsg)
+
+图源AI生成
+
+  
+
+这意味着什么？
+
+  
+
+** 意味着  ** ** "需要体力劳动"这个护城河，正在被快速填平  ** ** 。  **
+
+  
+
+过去HR在规划劳动力结构时，一个隐含的假设是：总有一些岗位，因为需要物理操作能力，短期内不会被AI替代。这个假设正在失效。
+
+  
+
+更值得HR警觉的是：  ** 这一波冲击不会先冲击"大企业"，而是会从"能用得起机器人的企业"开始。  **
+当机器人的采购和运维成本下降到某个临界点，中小企业将有能力用机器人替代部分服务岗位。而这些重体力低成本岗位的从业者，恰恰是劳动力市场中教育水平相对较低、转型能力相对较弱的那一群人。
+
+  
+
+** HR即将面对的难题是：如何处理一个大量岗位快速消失之后的劳动力再配置问题。  **
+
+  
+
+这不是"给他们做做培训"能解决的事情。当某个岗位类别在五年内消失50%，受影响的人不是靠一门新课程就能重新就业的。"  ** 再培训  **
+"这个词，在很多场景下，将变成一种安慰剂。
+
+  
+
+** 真正需要HR思考的问题是：  **
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtA7Ll9LsrtibeNstpaJL9mDvCj697zvU6MLkWhjm24GX01FklcgzGzic0S8RWSLGE6ETH0RsEr2tdLMQgSpyXyLMXxS5QiaBcm3D8/640?wx_fmt=png&from=appmsg)
+
+图源AI生成
+
+  
+
+这些问题，HR没有答案，但HR必须开始问。
+
+  
+
+** AI普惠化：  **
+
+** HR科技创业的窗口，以及陷阱  **
+
+GTC 2026还有一个容易被忽视的信号：  ** 开源生态正在让AI能力变成免费公共资源。  **
+
+**  
+**
+
+黄仁勋在GTC上主持了一个圆桌讨论，参与者包括多家开源AI公司的领袖。NVIDIA的核心框架——包括机器人开发平台、视觉-语言-
+动作模型——都在开源或即将开源。
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtDeh3cUEzGRNgTH2Jdpdkh4uNpYhh7rjznkBd6ibUV6tw60n5enutcvnETAABxBknw9ibr51ZFb8Iy9YgPMYxXvUicIhVkjCE5O8E/640?wx_fmt=png&from=appmsg)
+
+图源AI生成
+
+  
+
+翻译成人话：  ** AI的基础能力，正在变得像水电一样随手可得。  **
+
+  
+
+这对HR意味着两件事。
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtAcs4dqHY94udFsbcJTYywhChn4C1O79vcWibQwic7PjW0zMmWMgNJtbg0uq6UQDF0qOrgibGTucHo7EGiby35oKN0bPez0MppgAM0/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtB1zPgNImEIGJlZJ2SiaAVnoeEDmyBib9KN2Zwf84OK74fw62KINj7t0ib7W9HmPwK037RZlZ0qDlhK8j7ELrfRPyONfW8HakFXEs/640?wx_fmt=png&from=appmsg)
+
+** HR科技领域的创业窗口期，  ** ** 正在快速关闭  **
+
+  
+
+过去要做一个有竞争力的HR
+AI产品，你需要数据、算法、工程能力——门槛很高。但当基础能力成为免费资源，垂直场景的理解和用户体验设计将成为核心竞争力。这意味着：真正懂HR业务、拥有HR场景数据积累的团队，将在接下来的窗口期里占据优势。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtA1eQBQTSct3ZnONDdaKe64Lc4OjyYjuE6OdYnF0ib43uT78EpADeYRSqtDVw4hL5ricjMjPyPfCvfibXJPYHHSZ7kYa7wzzBjkxI/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtDDBoFxyXqvr51zFicj3GwTHf8V5NKgv4zpQePvOWnCicxHic5ybeXqfnsbHmgzztNLBiaOpUhRXSZuCJTK4kASjvIe5CE8cGLxtz0/640?wx_fmt=png&from=appmsg)
+
+** AI工具的泛滥将让"工具选择"变成HR的新负担  **
+
+  
+
+当每个供应商都在宣称自己的AI"革命性地提升了招聘效率"，HR将面临前所未有的筛选困境。哪个是真的，哪个是噱头？哪个适合我们这个行业、这个规模、这个发展阶段？这种判断能力，将成为HR的新刚需。
+
+  
+
+  
+
+** 写在最后：  **
+
+** AI不会淘汰HR，但会淘汰不想清楚的HR  **
+
+  
+
+我不想把这篇文章写成又一个"AI来了，HR要失业了"的耸人听闻之作。
+
+  
+
+事实是，HR这个职业的核心价值——理解人、激励人、发展人、留住人——在任何技术变革下都不会消失。  ** 但完成这些工作的方式，将会彻底改变。  **
+
+  
+
+那些能够率先看清这一波AI浪潮本质的HR——不是去追每一个新工具、新概念，而是去思考：
+
+AI重构了什么样的责任结构？
+
+什么样的能力变得更重要？
+
+什么样的风险正在积累？
+
+——这些人，将成为未来组织里真正不可或缺的角色。
+
+  
+
+而那些继续躲在"我只是按流程办事"后面的HR，  ** AI Agent不会淘汰你们——但会让你们的存在价值，快速趋近于零。  **
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtBHr1AIVKTalg9O756xIebvNNQl0icu1Libao0EEuiaTiboC3r9fXjo1EhoqNe3OgUyjtBa4kiaZvlLgg8U9RCafhTD7KC3FsgXianHw/640?wx_fmt=png&from=appmsg)
+
+图源AI生成
+
+  
+
+黄仁勋在GTC上说了一句话，大意是："AI的下一阶段，不是让机器更像人，而是让人机协作达到前所未有的密度。"
+
+  
+
+我希望这句话，能让每一个HR从业者，认真想一想：  ** 在这个人机协作的新世界里，你打算站在哪里？  **
+
+  
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtAGBrIiaLicbxULibGB6a4iay22UEpNwricO6GnfTzRKrROZ1QPucEfAqEQUdt8ZGTZHErydwLJqPCIMaLtgjdL1FRl6iaRcc1zdJwe4/640?wx_fmt=jpeg&from=appmsg)
+[
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/KNlRbic3WUtCKUtKP8jd6cETqXYpSVpcgJSu5NQIaCLoVSffu7kTxibnT4VXW7YStrxLU5MvGYa1e00txH4sSpIhC5Dj92C74yVKw7gFXwgZ8/640?wx_fmt=jpeg&from=appmsg)
+](https://mp.weixin.qq.com/s?__biz=MjM5NTQ3MjM4MQ==&mid=2649479921&idx=1&sn=910d65d5df8765bd38a2c34b7c9cf79d&scene=21#wechat_redirect)
+
+点击图片查看原文
+
+  
+
+** 2026 HR 人工智能高峰论坛报名即将截止  
+欢迎扫描二维码，添加客服咨询  **
+
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtC8GOLjsG26Lgz1vMCfZiaZknibNxEncs1fickUKWhibicyst8LicqzEn5TmLZ1xON9WhSXX0DyWcqcm652OEfq6Jef7p34iaebV4kPkU/640?wx_fmt=png&from=appmsg)
+
+  
+
+  
+
+来源：人力资源  智享会
+
+注：本文系智享会原创文章，如需转载请事先联系并注明来源，谢谢！
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/KNlRbic3WUtB6q7t9QLs55SaQ4iaicvSZ0Wj0IeRuJ4xfESbFeRQLI1ybXF5cn2y1BOtaWw0Mx4LicuhxJV4cux6fvwziceKHZChxGmyoI5E5t2g/640?wx_fmt=png&from=appmsg)
+![](https://mmbiz.qpic.cn/mmbiz_png/KNlRbic3WUtD8rSZ7LkFbW4EibNQnWcVbNq2AjkJAVcS6RZVJeibfsNZNxFScd0orRf9D1bq1bicjgrS1tYT4BJGF8u1LRWPkmAsRuYp653xIyc/640?wx_fmt=png&from=appmsg)
+
+人力资源智享会（HREC）是高端、专业、广具影响力的，面向中国人力资源领域专业人士提供会员制服务的企业。  截至2025年6月30日：
+智享会付费会员企业逾4500家，已进入中国的世界500强和全球2000强企业中，逾90%享受智享会各项服务。
+智享会的产品和服务覆盖人力资源全领域，且形式丰富、立足前沿、全方位满足人力资源人士的“学习需求，采购需求，激励和认可需求”。
+
+  
+
+** 关注我们  **
+
+** 获取更多精彩资讯  **
+
+** ↓↓↓  **
+
+  
+![](https://mmbiz.qpic.cn/sz_mmbiz_gif/KNlRbic3WUtBs3NsT5eEo9RtYYjAtaLtuXhdRwJBZRmibRyahcibGv4YmPtVA7kbz5ZokPmgZ6edWIB6CgOgXySLPVHvGHaou6lS9v6potV7hU/640?wx_fmt=gif&from=appmsg)  
+
+预览时标签不可点
+
+[ 阅读原文 ](javascript:;)
+
+阅读
+
+修改于
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+

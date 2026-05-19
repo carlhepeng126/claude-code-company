@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in American Samoa follows relational rather than rigid scheduling. The fa'a Samoa (Samoan way of life) prioritizes people and communal obligations over clock-driven precision. Meetings often begin after greeting exchanges and informal conversation, which build the trust needed for productive discussion. A gathering scheduled for 9am might start closer to 10am, not from carelessness but because relationship-building comes first. Rushing through social rituals to meet a start time can read as disrespectful or transactional. If you're working with colleagues who expect meetings to begin at the stated time, explain that the opening exchanges serve a professional purpose, establishing rapport that supports the work itself.
+
+Flexibility increases in village settings and family-run enterprises, where communal events and extended family responsibilities can reshape a day's plans without prior notice. A colleague may delay a meeting to fulfill a matai (chief) obligation or attend to family needs. These are not interruptions to work but core responsibilities that sustain the social fabric enabling collaboration. In contrast, formal government offices and businesses with international ties maintain tighter schedules, though even here, relationship considerations influence timing.
+
+Deadlines are met when they involve clear external accountability, such as contracts with overseas partners or regional government commitments. Internal timelines are more fluid, particularly when decisions require consensus across family or chiefly networks. A colleague from a culture where individual accountability drives fast turnarounds may misread this as inefficiency. From an American Samoan perspective, the slower pace reflects thoroughness and respect for collective input, ensuring decisions hold when implemented.

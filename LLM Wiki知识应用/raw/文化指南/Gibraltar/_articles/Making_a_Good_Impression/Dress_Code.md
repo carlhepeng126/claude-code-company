@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Gibraltar's workplace dress standards reflect its dual character as both a British territory and a Mediterranean hub. Offices lean formal, especially in the dominant financial and legal sectors where suits remain the daily norm for men and women alike. This formality draws from British corporate tradition but also from the territory's self-awareness as a small jurisdiction where professional reputation is closely guarded. Looking polished in client-facing roles reinforces credibility in a place where business networks are tight and personal impressions travel quickly.
+
+Outside the financial district, dress codes relax slightly but rarely disappear. In government offices and established firms, smart dress is still expected, even if a full suit is not required every day. Tech startups and smaller creative businesses allow more flexibility, but the shift is toward smart casual rather than informally casual. The Mediterranean climate plays a role here. Summer heat softens expectations, and lightweight fabrics or short sleeves become acceptable, but shorts and flip-flops do not make it into the office. If you are meeting a client or attending a formal event, return to the suit regardless of the season.
+
+Generational differences are emerging, particularly among younger professionals who have studied or worked abroad and bring back more relaxed norms. Even so, the instinct to dress up rather than down when in doubt remains strong. In a culture where personal connection underpins professional trust, how you present yourself is read as a signal of how seriously you take the relationship. Dressing with care communicates respect, and that continues to matter across age groups and sectors.

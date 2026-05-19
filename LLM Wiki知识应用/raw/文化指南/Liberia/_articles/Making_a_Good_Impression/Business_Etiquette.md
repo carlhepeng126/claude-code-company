@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Greetings in Liberia do real social work. Taking time to greet properly, ask after wellbeing, and acknowledge elders or anyone present acts as basic recognition, a way of saying "I see you; you matter." Rushing past this to reach the business discussion can suggest that the relationship itself has no value. Once trust begins to form, many Liberians show warmth openly, using humor and emotion to build connection. The initial reserve is not distance; it is assessment. People hold back while they decide whether you can be trusted, and once that question is settled, the tone shifts.
+
+Public dignity shapes how conflict and correction are handled. In tight-knit communities, public embarrassment can damage not only a person's standing but their relational networks. Critique delivered in front of others, even when justified, may be read as an attack rather than feedback. The Palava Hut tradition offers a helpful reference point here: it frames difficult conversations as structured repair, a forum for truth-telling, apology, and reintegration rather than blame. When tension arises, the instinct is often toward conversation that restores rather than confronts. A colleague from a culture where directness and speed are valued may read this as avoidance, while a Liberian counterpart may see bluntness as socially reckless and relationship-damaging.
+
+Some topics are coded as private or sacred, not open for casual discussion. Traditional societies like Poro and Sande carry the idea that not all knowledge is public, and that permission and context determine what can be shared. Asking about these areas without invitation can feel intrusive. Respectful curiosity means waiting for the other person to open the door.

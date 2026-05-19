@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Greenland usually take place in small teams, often around a table where everyone is expected to contribute. The size of most organizations means that meetings tend to be informal in tone, even when the purpose is serious. Hierarchy exists but is rarely emphasized in how people speak or behave. Titles are used less often than first names, and the chair of a meeting is more likely to facilitate than dictate. This reflects a broader cultural preference for consensus and collective input rather than top-down instruction.
+
+Expect meetings to start with a brief, friendly greeting, though not necessarily extended small talk. Greenlanders tend to move into the agenda without lengthy preamble, but the pace once discussion begins is often slower than counterparts from faster-moving business cultures might anticipate. People take time to think before responding, and silence between contributions is common. For a colleague from a culture where decisions are made quickly and verbally, this can feel hesitant or uncertain. For a Greenlandic participant, the same colleague's rapid responses may seem shallow or insufficiently considered. Allowing space for reflection without filling every pause helps the group reach decisions that everyone can stand behind.
+
+Decisions are rarely made by one person in the room. Even where a senior manager is present, the group will usually discuss options together, and agreement is sought rather than imposed. If a decision is rushed or appears to bypass quieter voices, it may not hold once the meeting ends. Follow-up is often informal, with key points confirmed in person or by short email rather than through lengthy minutes or protocols.

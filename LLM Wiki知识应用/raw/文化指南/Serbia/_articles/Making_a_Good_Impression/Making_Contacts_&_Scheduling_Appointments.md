@@ -1,0 +1,11 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Serbia, making a new contact often feels like asking to be placed within a network of people rather than simply added to a professional list. Trust here tends to come through connection: who you know, who can vouch for you, and whether you show up consistently over time. A warm introduction from someone already trusted can change the entire tone of an approach. That person acts as a bridge, transferring some of their own standing to you. Without that, a cold email or call may be met with polite reserve or outright skepticism, especially if the recipient has no way to locate you within their own web of relationships.
+
+This preference for personal referral is rooted in a society where family ties, long friendships, school cohorts, and neighborhood bonds still shape how people verify belonging. Business meetings are often face-to-face from the start, with real time spent understanding who each person is before any deal is discussed. If you're reaching out without an introduction, expect to invest more effort upfront. A brief personal note that signals steadiness and genuine intent, followed by consistent follow-through, will do more than a formal pitch alone.
+
+Regional variation adds another layer. In Vojvodina, where multilingual and multiethnic textures are more common, social cues and contact-making styles may reflect that diversity. In Sandžak, where Bosniak communities and Islamic life are more present, local calendars and community rhythms may shape scheduling in ways that differ from the rest of the country. It's worth asking lightly about constraints or local observances rather than assuming one national template.
+
+When setting appointments, schedule a couple of weeks ahead and reconfirm closer to the date. Avoid back-to-back bookings. Meetings can start late, run long, or be joined by unexpected participants, and adapting to this without visible frustration shows you're taking the relationship seriously, not just the transaction.

@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Azerbaijan follow what looks like a clear hierarchy but happen through quieter channels before any formal announcement. The legacy of the Soviet period, where individual initiative could invite trouble, still shapes how accountability is understood today. Managers and officials prefer not to stand alone when decisions are made. A choice with political cover, alignment to national priorities, or collective backing from key people feels far safer than an individual judgment that might later be criticized if circumstances shift. This means that what appears as a top-down pronouncement has often been preceded by careful sounding out of family members, political patrons, or trusted experts. The formal decision confirms what has already been shaped behind the scenes.
+
+When seeking decisions, identify who else needs to be comfortable and help your counterpart build that quiet coalition. Framing a proposal in ways that offer shared responsibility makes it easier to move forward. References to national strategy, similar work with credible partners, or alignment with known priorities give managers room to say yes without feeling exposed. Pushing for speed or presenting the decision as urgent can trigger caution instead, as it removes the time needed to confirm support.
+
+Soft answers like "We will consider" or "Let's see" reflect a genuinely fluid situation. The person may be interested but needs more information, better timing, or reassurance that the proposal fits broader expectations. Treat these responses as invitations to refine your case or stay engaged, rather than as polite refusals. Following up with adjusted proposals or clearer detail can shift a provisional "maybe" into commitment, provided the relationship and the groundwork support it.

@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information flow in Bosnia and Herzegovina moves through personal relationships more than formal channels. Colleagues often share updates and context with people they know and trust, holding back in wider forums or with new contacts. This is rooted in a history where political and ethnic divisions made discretion essential. During and after the 1990s conflict, what you said and to whom could have serious consequences. That caution has shaped workplace habits. People are careful about what they share until they know you and your intentions.
+
+Within organizations, information often stays within close teams rather than flowing freely across departments or between the country's two main political entities, the Federation and Republika Srpska. Colleagues may be reluctant to escalate problems or share setbacks openly, especially in mixed ethnic settings, where maintaining dignity and avoiding confrontation carry social weight. A direct request for transparency may be met with polite agreement but little follow-through. Instead, building a relationship first opens access. Regular informal contact, showing that you honor confidentiality and follow through on commitments, makes colleagues more willing to share what they know.
+
+A colleague from a culture where information is shared proactively across teams may find this approach slow or withholding. Meanwhile, a Bosnian counterpart may see that same openness as naive or politically unaware, exposing issues before trust is in place. If you want fuller information, invest time in one-to-one conversations and show that you listen without judgment. Trust unlocks access, and trust in Bosnia and Herzegovina is earned through reliability over time.

@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Successful teamwork in Brazil rests on interpersonal trust built through relationship, not just role clarity or shared goals. Indigenous, Afro-Brazilian and rural traditions emphasize community support and shared labor, while many Brazilians grow up in strong family and friendship networks where loyalty and mutual aid are expected. These traditions shape workplace expectations: colleagues often socialize outside office hours, and teams that bond socially tend to collaborate more effectively. Investing time in informal conversation and check-ins builds the foundation for high performance.
+
+Roles and responsibilities are valued as starting points, but flexibility is equally important. What is agreed at the outset is open to adjustment as circumstances change. Team members expect to participate in decisions but may not voice suggestions in group settings. It is more common to offer input privately to a manager, preserving face and avoiding public exposure. A colleague from a culture where open debate during meetings is the norm may read this as disengagement, while a Brazilian team member may see immediate challenge in front of the group as unnecessarily confrontational.
+
+Feedback and recognition require care. Singling out an individual for public praise or criticism can shift relationships within the team. Colleagues expect equality and discretion. Recognition is often better shared across the group, and critical feedback given one-to-one. Regional and class differences shape communication style: some teams embrace lively debate, others prioritize harmony. In urban centers, where teams are ethnically and socially mixed, establishing explicit norms around communication and feedback helps avoid misunderstandings rooted in different backgrounds.

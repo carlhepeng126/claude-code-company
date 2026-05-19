@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In French Polynesia, making business contacts often depends on who you know and how you know them. The islands have a small, interconnected population where personal ties and family networks shape access and trust. Cold calls or emails to people you have no connection with rarely lead to meetings. Instead, most professional introductions come through mutual acquaintances or colleagues who can vouch for you. This pattern reflects a deeply relational culture where reputation travels quickly and endorsements from trusted sources open doors that formal credentials alone may not.
+
+Taking time to build rapport before discussing business is expected. A first conversation might focus on where you're from, who connected you, or your impressions of the islands. These exchanges establish goodwill and signal respect for the person, not just the transaction. Moving too quickly to business topics can feel abrupt and may create distance rather than momentum.
+
+Scheduling meetings works best when done with flexibility in mind. Confirm appointments a day or two in advance, and be prepared for changes. Timing can shift due to family obligations, weather, or other priorities that arise. A colleague from a culture where punctuality and fixed schedules are non-negotiable might read this as disorganization, while a French Polynesian counterpart may view rigid scheduling as inflexible and disconnected from the realities of island life. Allowing space in your schedule and responding calmly to adjustments demonstrates respect for local rhythms and strengthens the relationship over time.

@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Uruguayan audiences respond to calm reasoning and grounded clarity, not spectacle. Decades of public secular education have shaped a professional culture at ease with structured explanation and reasoned critique. Audiences will listen for coherence and feasibility, testing ideas through quiet scrutiny rather than immediate applause. Present with a clear narrative that includes concrete assumptions and realistic trade-offs, not hype. The persuasive power lies in the structure of your thinking, not the energy of your delivery.
+
+Credibility builds through transparency. Uruguay's experience under dictatorship left a sensitivity to opacity and heavy-handed tone. Being straightforward about risk, timescale, and constraints actually strengthens trust. Audiences appreciate a presenter who treats them as capable of assessing complexity, not as people to be convinced through glossy simplification. If your project faces regulatory or implementation uncertainty, name it clearly rather than glossing over it. Questions after a presentation often reflect genuine engagement, not resistance, so invite them and respond with the same candor.
+
+Humor can be effective, but only when used respectfully. The murga tradition shows that wit can convey critique and insight without aggression. In a professional setting, this means a light touch is valued, but sarcasm or pointed irony will likely jar. Keep the tone composed and the humor brief. End with crisp next steps and remain available for individual follow-up. People may want to ask clarifying questions privately, especially if they're testing feasibility or surfacing concerns that feel premature to raise in front of a group.

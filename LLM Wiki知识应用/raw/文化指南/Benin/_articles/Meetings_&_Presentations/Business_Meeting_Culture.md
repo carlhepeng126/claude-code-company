@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Benin follow a rhythm shaped by respect for seniority and the value placed on building trust before advancing business. Decisions rest with senior figures, so invitations must reach the appropriate level of authority. If the person with final say is not in the room, the meeting becomes a preliminary conversation rather than a decision point. Scheduling tends to be flexible, though urban professionals and those working with international partners increasingly plan further ahead. Confirming arrangements a few days before helps ensure all parties are aligned.
+
+The meeting itself often opens with a period of personal exchange. This is how participants assess character and establish a foundation of ease. Skipping this stage to move straight into proposals can feel abrupt and suggest a transactional mindset that undermines rapport. Once the agenda begins, the tone remains courteous but attentive. Questions may be indirect, especially where challenge or disagreement is involved, as maintaining harmony and preserving dignity are central to how Beninese professionals navigate discussion. A colleague from a culture where dissent is voiced openly may read this as evasiveness, while a Beninese counterpart may perceive direct pushback as unnecessarily confrontational and damaging to the relationship.
+
+Expect the pace to be deliberate. Consensus takes time, and pressing for a quick resolution can suggest you undervalue the relationship or the gravity of the decision. Follow-up after the meeting is equally deliberate, with agreements often confirmed through multiple touchpoints rather than a single formal document.

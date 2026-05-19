@@ -1,0 +1,11 @@
+# Dress Code
+
+## Making a Good Impression
+
+Workplace dress in South Africa functions as a form of context literacy. Because the country contains sharply different social and economic environments in close proximity, clothing choices signal awareness of the setting you're in. Urban corporate offices in Johannesburg or Cape Town expect formal business dress: suits and ties for men, tailored suits or dresses for women. Government and traditional sectors maintain conservative standards. Tech, creative industries, and some rural settings allow for more relaxed styles, but even here, people dress with intention. Reading the venue and sector correctly before you arrive avoids missteps. If you're unsure, choose polished formality and adjust downward only after observing the room.
+
+How you present yourself also registers emotionally in ways shaped by South Africa's post-apartheid inequality. Conspicuous displays of wealth can feel out of tune in some contexts, while understated professionalism built on neatness and fit communicates respect without friction. Let seriousness come through in how your clothes are kept and chosen, not through luxury markers alone. In settings where formality does signal investment in the relationship, matching that effort becomes part of showing you take the occasion seriously.
+
+Climate and movement shape daily choices more than visitors often expect. Johannesburg's highveld winters require layers, while coastal humidity in Durban calls for lighter fabrics. Many offices are heavily air-conditioned, so bringing a jacket even in summer makes practical sense. Meetings may involve walking between venues or traveling to locations outside the city center, so comfortable shoes and weather-appropriate layers avoid being caught unprepared.
+
+Cultural pride surfaces quietly through locally made fashion, national colors worn during sporting events, or traditional textiles in some communities. These are expressions of identity, worn with everyday ease rather than as performance. When symbols appear, especially around rugby or soccer, participating lightly and respectfully by mirroring the mood fits better than standing out or trying too hard to join in.

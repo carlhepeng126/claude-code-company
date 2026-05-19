@@ -1,0 +1,11 @@
+# Dress Code
+
+## Making a Good Impression
+
+In Venezuela, appearance has long been understood as a form of credibility. The concept of *buena presencia* (good presence) appears directly in job postings and recruitment language, describing someone who looks put-together, groomed, and composed. This is more than a preference for neatness. It reflects a deeper cultural reading: that the care you take with your appearance signals the seriousness you bring to your work and the respect you hold for those you meet.
+
+Venezuela's beauty pageant tradition has helped shape everyday grooming standards in distinctive ways. Miss Venezuela has been a major national institution for decades, and its influence has normalized high attention to hair, skin, scent, and finishing details across daily life. This means "normal" presentation in professional settings often sits at a more polished baseline than visitors from other cultures expect. Looking well-finished is not reserved for special occasions. It is part of the everyday standard, and people notice when someone falls short of it.
+
+Appearance also communicates class and background, and Venezuelans read these signals quickly. There is a rich vocabulary for recognizing style markers, such as *sifrino*, which describes a polished, upper-class look sometimes associated with pretension. This does not mean everyone is trying to project wealth, but it does mean that clothing choices are observed and interpreted socially. At the same time, discretion tempers display. In Caracas and other urban areas where personal security is a concern, flashy jewelry or visibly expensive accessories are often avoided. Looking polished and looking conspicuous are treated as different things.
+
+Choose clean lines, neat grooming, and a looked-after feel over casual or ostentatious extremes. Treat grooming as part of professional respect: hair, shoes, and overall finish often communicate seriousness more effectively than brand names. If you are unsure of the setting, aim for a tidy, intentional midpoint and adjust once you have observed the local baseline.

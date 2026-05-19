@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Fiji work best when they feel collaborative rather than prescriptive. Fijian professional culture values humility and respect for collective input, so even if you're the one leading the session, avoid positioning yourself as the sole authority. Frame your content as something being offered for consideration, not imposed. A direct, hard-sell approach can come across as arrogant or dismissive of others' views. Instead, emphasize partnership and invite feedback throughout. Phrasing like "we'd like to explore this together" or "your input would help shape this" signals the right tone.
+
+Relationship comes before content. If your audience doesn't yet know you well, spend time early in the presentation acknowledging the people in the room and the broader context of the collaboration. Reference previous conversations or shared goals. This isn't filler, it's how trust gets built. A colleague from a culture where presentations move quickly through data and conclusions may feel this slows things down, while a Fijian audience may find a purely transactional style abrupt or even disrespectful.
+
+Expect fluid participation. People may arrive late, step out to take calls, or join partway through. This reflects the relational fabric of Fijian workplaces, where attending to multiple commitments simultaneously is normal. Welcome latecomers warmly rather than pausing awkwardly. If senior figures are present, defer to them before moving between sections or concluding. Silence after a question doesn't mean confusion, it often reflects thoughtful consideration or respect for hierarchy. Give people time to respond without filling the gap yourself.

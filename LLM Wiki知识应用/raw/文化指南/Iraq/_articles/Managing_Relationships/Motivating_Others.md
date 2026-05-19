@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+After decades of war, sanctions, and displacement, many Iraqis bring work lives shaped by loss and the need for basic security. Motivation often begins with tangible safety: steady income, secure conditions, and the chance to support family without the daily indignities of checkpoints, corruption, or collapsing infrastructure. A reliable salary and respectful treatment are not background conditions for motivation here — they are its foundation. When framing a role or project, connect it clearly to what people can count on: stable pay, physical safety, and the dignity of being recognized in their community as someone doing meaningful work.
+
+In Shia and some Kurdish contexts, narratives of sacrifice and service run deep. Work that rebuilds destroyed areas, helps displaced families return, or honors those who died in conflict resonates far more powerfully than efficiency metrics or growth targets. When appropriate, describe what a project achieves in terms of service, not just results. Saying "this helps families return to their homes" or "this restores what was lost" connects the work to values people already hold, and positions their contribution as something noble rather than transactional.
+
+Younger Iraqis, especially, move between frustration and fragile hope. Many are weighing whether to stay or leave, and they read opportunities carefully for signals of real progression or another short-term contract before emigration. Offering genuine learning, visible growth, or a path that lets them fix something in their own country without abandoning it can be a far stronger draw than routine pay increases. Public recognition also matters, but it should be framed in Iraqi terms: local respect, the moral weight of the contribution, and acknowledgment from figures people already trust — not just international awards or external validation.

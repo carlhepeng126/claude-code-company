@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Decades of party-line communication under Hungary's socialist past taught people to treat official messages with caution. Formal memos, ministry statements, or project descriptions are often regarded as "felszín" (surface level), while the real story travels through trusted journalists, closed Facebook or Telegram groups, and someone's friend inside the agency. This habit of reading between the lines persists across generations. When you share information, expect colleagues to cross-check it against their own networks and media sources. Clarity and consistency over time will build credibility where a single polished announcement may not.
+
+Information diets can differ sharply depending on political alignment. Some follow government-aligned television and newspapers, others rely exclusively on independent outlets or foreign media. The same policy reform can be described as nation-building in one bubble and corruption in another. This fragmentation means colleagues may enter meetings with fundamentally different baselines. Grounding your communication in concrete, verifiable details rather than broad claims helps bridge those gaps.
+
+Sensitive topics rarely appear in explicit terms over email. Corruption rumors, political pressure, struggles around Roma inclusion, or union activity surface as coded phrases such as "you know how this region works" or "vannak érdekek" (there are interests). When a colleague flags something as "érzékeny téma" (sensitive topic), follow up offline to understand what's actually at stake. Pushing for everything to be documented can close down the very channels that reveal unwritten constraints. Offering smaller, safer formats for conversation will surface concerns you would never see in writing.

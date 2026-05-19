@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+The British Indian Ocean Territory operates under a highly restricted governance structure that shapes every aspect of how information moves. Access to the territory is tightly controlled by the British and American military presence, and only authorized personnel with security clearance work there. This creates an environment where information sharing follows strict protocols rooted in security requirements rather than conventional workplace culture. What might seem like unusual caution or formality reflects the operational reality of a military-administered space where confidentiality and clearance levels determine who can know what.
+
+Communication within this context tends to be compartmentalized by role and need-to-know basis. Personnel from different contractors, military branches, or government agencies may work alongside each other without full visibility into each other's projects or responsibilities. This segmentation means that building a complete picture often requires navigating multiple approval channels. A colleague from a civilian organization accustomed to open information flow across teams may find this compartmentalization frustrating, while territory-based staff may view broad information requests as procedurally inappropriate or outside established protocols.
+
+The small, transient population also affects how knowledge gets transferred. With rotating deployments and short-term contracts common, institutional memory can be fragmented. When planning work or seeking context, assume that background information may not be readily accessible and that documenting decisions clearly becomes especially valuable. Building relationships with longer-serving personnel can help bridge gaps, though always within the boundaries of what security protocols allow.

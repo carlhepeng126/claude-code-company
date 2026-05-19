@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information flows through personal channels in Guinea-Bissau, shaped by a context where informal networks often prove more reliable than formal institutions. Trust develops through direct relationships, and people share more openly once they know who you are and where you stand. In early meetings, colleagues may offer polite but general responses until they feel confident about your intentions and reliability. This caution reflects practical experience, not reluctance to collaborate. Sharing sensitive information with someone unproven can create unnecessary risk in an environment where reputation and personal connections underpin professional life.
+
+Within organizations, information often stays within trusted circles rather than circulating automatically across departments or hierarchies. Colleagues may not volunteer updates or challenges unless directly asked, and even then, the depth of what is shared depends on the relationship. Face-to-face conversations and informal settings tend to yield more substance than formal reports or emails. A colleague from a culture where transparency is expected as a professional norm may feel they are being kept in the dark, while a colleague from Guinea-Bissau may view unsolicited disclosure as premature or indiscreet.
+
+Reciprocity unlocks access. Sharing first, demonstrating discretion, and following through on commitments signal that you can be trusted with more. Patience and consistency build credibility over time, and once that foundation exists, information flows more freely and partnerships deepen.

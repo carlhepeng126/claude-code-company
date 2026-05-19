@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in the Central African Republic is deeply shaped by the country's emphasis on preserving dignity and maintaining social harmony in workplaces that often rely on close-knit relationships and limited formal structure. Direct criticism, especially if delivered bluntly or in front of others, can damage trust and create lasting tension. Managers tend to raise concerns privately and frame them in ways that acknowledge the person's circumstances or external pressures, rather than implying personal failure. This approach reflects a broader cultural understanding that a person's standing in their workplace is inseparable from their reputation in the wider community. If you need to address underperformance, frame the conversation around support and problem-solving rather than fault. Ask what obstacles the person is facing before naming what needs to change.
+
+Praise, by contrast, can be shared more openly, though it should feel genuine and be grounded in specific contributions. Public recognition strengthens morale and reinforces group cohesion, but avoid singling someone out in a way that elevates them too far above their peers, as this can generate discomfort or envy. A manager from a culture where individual achievement is celebrated publicly may read Central African colleagues as overly modest or reluctant to claim credit. In return, someone from the Central African Republic working in a more individualistic environment may find the focus on personal accolades isolating or at odds with their sense of collective effort.
+
+Given the instability and resource constraints many organizations face, feedback is often given informally and in the moment, rather than through scheduled reviews or formal written systems. Colleagues may rely on verbal exchanges, trusted intermediaries, or casual conversations to guide one another. Building a relationship first makes coaching more effective.

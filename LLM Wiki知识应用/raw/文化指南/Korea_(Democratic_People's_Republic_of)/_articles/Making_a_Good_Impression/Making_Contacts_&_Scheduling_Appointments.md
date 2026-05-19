@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Making business contact in North Korea requires routing through official channels. The state controls access to organizations and individuals, and informal networking in the style familiar elsewhere is not how business begins. Foreign companies typically initiate contact through a relevant ministry, state enterprise, or trade organization, often with support from their own country's embassy or a specialized consultancy with established ties. Personal connections alone will not bypass this system. The structure reflects decades of centralized control and the state's role as gatekeeper to all professional activity.
+
+Once initial contact is made, scheduling happens through the organization rather than directly with individuals. Appointments are arranged well in advance, often weeks ahead, and flexibility is largely on the host side. Meetings may be rescheduled with little notice, and counterparts may not always explain why. This reflects both the layers of approval required internally and the priority given to domestic obligations that visitors cannot see. Colleagues from settings where schedules are fixed and visible may find this unsettling, while North Korean officials may view repeated confirmation requests as mistrust rather than diligence.
+
+Patience in this context means understanding that access itself is part of the negotiation. Visits are often tightly coordinated, with limited opportunity to step outside the agreed agenda or meet people spontaneously. Building rapport happens within these boundaries, so the time spent in scheduled meetings becomes the only real window for trust to begin forming.

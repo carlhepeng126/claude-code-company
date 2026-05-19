@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+The directness that defines Israeli professional life softens considerably outside the office. The colleague who challenged every assumption in the meeting room may extend a generous, unhurried invitation to dinner, or even to their home for Shabbat. This shift reflects a culture where personal warmth and professional frankness coexist without contradiction. Social occasions reveal a different register of Israeli life, one where relationship comes first and food serves as a genuine expression of community.
+
+Invitations during the working day tend to be practical. Long business lunches are uncommon. If a meal happens, it's more likely to be sandwiches in the meeting room or a quick coffee between discussions. Evening invitations are different. Being asked to join a colleague for dinner, particularly with their family, or to a home for Shabbat on a Friday night, signals real inclusion. It means you've moved from professional contact to trusted circle. These invitations should be accepted unless there is a clear reason not to, and even then, a polite decline with a brief explanation is expected.
+
+Food itself reflects the country's layered identity. Israeli cuisine draws from Ashkenazi, Mizrahi, Yemenite, Persian, and Mediterranean traditions, and sharing a meal is often about belonging as much as hospitality. Conversation over dinner may be opinionated, even intense, but it rarely stays narrowly focused on business. Topics range widely, and strong views are voiced without expectation of full agreement. For colleagues used to more reserved social interaction, this can feel confrontational. From an Israeli perspective, a polite but impersonal dinner might seem distant or transactional. The invitation is an opportunity to deepen trust, and investing time in these moments builds goodwill that formal meetings alone cannot achieve.

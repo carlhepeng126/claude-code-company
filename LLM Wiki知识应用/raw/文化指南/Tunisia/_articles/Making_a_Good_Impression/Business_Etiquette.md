@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Tunisian business etiquette draws on Amazigh and Arab traditions that emphasize respect and communal harmony, Islamic values that shape politeness and hospitality, and French colonial influence that introduced administrative formality and the use of titles. The result is a professional style that blends warmth with a certain procedural care, especially when hierarchy is involved. How something is done often reveals as much as what is done. Presentation and tone signal identity and respect in ways that matter to the relationship.
+
+Courtesy is foundational. Formal greetings, polite introductions, and a respectful tone establish trust and set the right tone for collaboration. Acknowledging senior figures or elders shows cultural intelligence and understanding of the social order. Public criticism or blunt confrontation can be read as disrespectful and may damage the relationship, so disagreement is typically softened or implied rather than stated outright. If a colleague's tone shifts or a pause lingers, consider what might be left unsaid. In a culture that values diplomacy and tact, reading between the lines becomes part of effective communication.
+
+Tunisians also value adaptability, but adaptability grounded in a clear sense of identity. Those who engage openly without losing their own footing tend to earn lasting respect. A colleague from a culture where directness is prized might interpret this blend of warmth and formality as evasive or overly cautious. From a Tunisian perspective, however, the same directness may feel abrupt or dismissive of the relational groundwork that makes collaboration possible. Staying open while staying yourself is the balance most appreciated.

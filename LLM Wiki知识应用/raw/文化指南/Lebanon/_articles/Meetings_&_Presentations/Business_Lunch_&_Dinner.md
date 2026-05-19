@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+In Lebanon, sharing food does relational work that email and formal meetings cannot. A mezze table exemplifies this: multiple small dishes arrive gradually, placed in the center for everyone to reach across and offer around. The format itself invites a rhythm of testing ease and character over several courses, building trust through small gestures of generosity rather than through explicit declarations. For a colleague from a culture where business meals are brief and agenda-driven, this can feel unstructured or inefficient. From a Lebanese perspective, a colleague who pushes toward business talk too early may seem uncomfortable with connection or overly transactional, which makes collaboration feel riskier.
+
+Timing and logistics are shaped by ongoing infrastructure realities. Power shortages and reliance on generators affect where restaurants can stay open, how late gatherings run, and what hosts consider feasible. If a meal shifts venue or starts later than planned, this reflects practical adaptation rather than poor planning. Building flexibility into your own schedule and following your host's lead on timing will prevent misreading circumstances as disorganization.
+
+Recent collective experiences, particularly the 2020 Beirut port explosion, remain close to the surface in public conversation. This shared reference point around loss, negligence, and accountability can affect what topics feel heavy or when the mood at the table shifts. Let your Lebanese colleagues set the tone on sensitive subjects. The meal is where trust becomes felt, not forced, and respecting that emotional temperature makes the work that follows more grounded.

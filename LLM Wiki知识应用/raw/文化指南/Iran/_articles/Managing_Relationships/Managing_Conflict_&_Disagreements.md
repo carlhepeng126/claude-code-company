@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Disagreements in Iran rarely surface as direct confrontation. In a context where political risks, office power plays, and personal dignity all overlap, people often comply outwardly while quietly undermining a decision they object to. A colleague may say yes in the meeting and then delay, reroute, or simply fail to execute. Hyper-politeness, a sudden shift to formal tone, or work that slows without explanation are all signs that a conflict has already begun.
+
+When someone frames a grievance in moral terms, using words like *zolm* (oppression), *bi-ensafi* (unfairness), or *adam-e ehteram* (lack of respect), the issue has moved beyond the technical. A sense of injustice has been triggered, and resolving it means addressing dignity and fairness directly. Acknowledging the unfairness and naming how you will correct it can shift the tone more effectively than defending the process itself. For a colleague accustomed to addressing conflict procedurally, this moral framing may feel disproportionate. From an Iranian perspective, procedural neutrality that ignores relational harm may feel cold or dismissive.
+
+If direct resolution stalls, the conflict may escalate through informal channels. A team member might approach a patron, a family connection, a former military contact, or a religious figure. The issue can suddenly gain new weight without any visible negotiation. Resolution may also arrive through symbolic gestures: a visit to someone's home, attendance at a family event, a gift of sweets or pistachios. These rituals restore the relationship without requiring an explicit debrief.

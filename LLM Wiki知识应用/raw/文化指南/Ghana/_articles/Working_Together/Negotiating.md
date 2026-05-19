@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+Bargaining is woven into daily life in Ghana, from roadside markets to business deals, and the social exchange is as meaningful as the price itself. The ritual follows a familiar form: a first offer, a counter well below that, a back-and-forth until both sides reach something workable. The ideal outcome leaves both parties feeling they've done well, and the final offer should come from the buyer so the seller doesn't lose face. This rhythm extends into formal negotiations, where the style can become lively and theatrical. Each side may express exaggerated disbelief at the other's proposal, but much of this is performance. Getting genuinely angry, however, breaks the unwritten code and causes real loss of face, so keep your composure even when the tone heats up.
+
+Silence during a discussion usually means your counterpart doesn't have an answer they can give without embarrassment or exposure. Filling the gap with more questions rarely helps. Move the conversation along and, if the issue is important, raise it privately later where face can be preserved and a solution found more easily.
+
+When negotiations involve land or community projects, you are entering systems shaped by stool lands in Akan areas, skins in northern chieftaincies, and family-held property. A signed agreement with one individual means little if key elders, family heads, or local youth groups feel bypassed. Budget time and resources for genuine stakeholder engagement alongside legal due diligence, and recognize that authority is often collective rather than held by a single decision-maker.
+
+Per diems, transport allowances, and sitting fees remain part of professional culture across many sectors, especially in workshops and consultations. Participants may judge your credibility in part by whether you honor these expectations fairly. Be clear from the start about what you can and cannot offer, and work with credible Ghanaian partners to navigate these norms without slipping into either exploitation or patronage. When someone says "my people will not understand this," take it seriously. They may be referring to party executives, clan elders, union members, church boards, or local youth, and the constraint is real, rooted in networks that hold genuine influence over outcomes.

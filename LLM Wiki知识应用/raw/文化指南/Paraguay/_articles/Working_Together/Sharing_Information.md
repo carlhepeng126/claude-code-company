@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information-sharing in Paraguay often moves through relational pathways rather than through documents alone. A history of authoritarian rule under Stroessner, combined with tightly connected social networks where reputations travel quickly, has shaped a lasting caution around disclosure. People may share gradually, watching for consistency and reciprocity before offering fuller transparency. This reflects a learned safety habit, not reluctance or secretiveness. Trust is established through repeated, reliable behaviour over time, and once that foundation exists, information flows more openly.
+
+Language choice affects how information is received. The same update can land differently depending on whether it is delivered in Spanish or in Guaraní and jopará (a mixed form blending both). Guaraní often conveys emotional directness, warmth, and moral weight, while Spanish tends to signal formality and institutional clarity. A message framed in Spanish may feel more defensible in a meeting, while the same content shared in Guaraní during an informal conversation can feel more human and trustworthy. Matching register to relationship distance helps avoid unintended signals of coldness or overreach.
+
+Oral transmission holds cultural credibility. Paraguay has strong traditions of knowledge passed through family teaching, market expertise, and community practice, including pohã ñana (medicinal herb knowledge preserved by yuyeras, traditional herbalists). In this context, knowing through people is culturally normal and often more trusted than knowledge that arrives only through formal channels. A colleague who asks questions in person or seeks confirmation through a known contact is not bypassing process, but following a deeply rooted way of validating information. Expect oral credibility to coexist with documentation, and recognize that the messenger can matter as much as the message itself.

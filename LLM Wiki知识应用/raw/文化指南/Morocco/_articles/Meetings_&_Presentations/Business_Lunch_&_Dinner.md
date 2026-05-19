@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+A business meal in Morocco often functions as collective ritual, where the sequence of food and tea service builds relationship over time. Couscous, recognized by UNESCO as knowledge and practice rather than simply a dish, anchors many shared meals in the cultural imagination of family and community gathering. Even in a professional setting, this framing shapes how a meal unfolds: the main course may be followed by tea service paired with sweets or fruit, poured and repeated in stages that extend the encounter. Lingering through this rhythm is part of the hospitality form, so leaving immediately after the final course can undercut the relational work the meal was meant to do.
+
+Timing and availability can shift around religious calendars. Friday often holds a distinctive feel tied to prayer and family rhythms, which can influence when people prefer to meet or how long they stay. During Ramadan, Morocco's institutional schedule changes to reflect fasting and the communal breaking of the fast at sunset, reorganizing both the timing and emotional tone of shared meals. A colleague scheduling a business dinner during Ramadan without adjusting for this may find attendance thin or energy low.
+
+Regional cuisines reflect Morocco's internal diversity. Rif seafood traditions, Fez's culinary prestige, Amazigh mountain staples, and Saharan influences each create different meal worlds. Assuming one national norm can miss the regional identity carried by food choices. A colleague used to standardized business dining may read this variation as inconsistency, while Moroccan hosts may read a lack of curiosity about regional dishes as disinterest in the deeper relationship the meal was meant to build.

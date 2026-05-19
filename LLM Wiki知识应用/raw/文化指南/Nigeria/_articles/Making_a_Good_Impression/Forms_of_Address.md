@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Titles in Nigeria often function as public acknowledgment of achievement, seniority, and social standing. They help order the interaction, especially in settings where hierarchy needs to be visible. Professional titles like "Doctor," "Chief," or "Engineer" are used consistently, and "Chief" can hold even greater social weight than academic qualifications. This reflects broader patterns of respect for earned status and authority. In professional contexts, using titles until explicitly invited to do otherwise shows awareness of how dignity is publicly maintained.
+
+Respect for elders is widespread, but how it is expressed varies regionally. In many Yoruba settings, deference can be highly ritualised, with strong greeting intensity and visible respect codes. In northern contexts shaped by emirate and Islamic scholarly hierarchies, rank and seniority often appear through formal address and restrained decorum. In many southeastern contexts, respect sits alongside directness and entrepreneurial confidence, creating a different balance. Addressing someone without recognizing their age or position, especially an elder, can cause real offense.
+
+Language also shapes how relationships are read. English signals formality, education, and national reach. Local languages signal intimacy, respect, and shared identity. Even brief use of someone's language can function as recognition of who they are and where they belong. In mixed-status settings, watch how others address senior figures and follow those cues. Moving to first names too quickly can feel like collapsing social distance before it has been established, especially with elders or community-respected individuals.

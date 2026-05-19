@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Denmark are made through consultation, and the expectation to be heard runs deep. The practice of *høring* (consultation), embedded in Danish public administration and political life, shapes how decisions are handled in organizations. People expect meaningful input before decisions that affect their work are finalized, and informing them afterward feels dismissive. Many Danes bring experience from school boards, union committees, or residents' councils, and they notice when consultation is performed rather than practiced. A rushed email with a 24-hour window for comment reads as going through the motions.
+
+The decision itself will often blend data with Danish priorities such as fairness, environmental concern, and regional balance. A technically sound proposal that places the burden on temporary staff while protecting senior roles, or that ignores environmental implications, will meet quiet resistance. Decision memos that acknowledge alternatives considered, who was consulted, and why one option prevailed buy commitment. Once the process feels fair, people generally follow through, even if the outcome was not their first choice. Grumbling happens, but active undermining is uncommon when the process felt respectful.
+
+Leaders function more as facilitators than final authorities, and decision-making power often sits lower in the hierarchy than colleagues from more centralized cultures expect. A relatively junior colleague sent to an early negotiation meeting likely has real authority to decide. For someone used to decisions flowing quickly from the top, the Danish process can feel slow or circular. From the Danish side, a decision announced without visible consultation, or a demand for speed, signals a lack of respect for the people who will implement it.

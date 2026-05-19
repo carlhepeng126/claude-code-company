@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Tanzania is understood as an expression of generosity and relational sincerity rather than a platform for negotiation. Offering food, time, or attention demonstrates openness and goodwill. Shared meals build familiarity and trust, and the gathering itself often holds more value than any explicit agenda. Tanzanians take their food seriously, and it is common to see a table eating in quiet appreciation. Conversation typically resumes once the meal is finished, a rhythm that reflects the cultural importance of both food and company.
+
+Lunch is the main meal of the day and the most common occasion for business entertaining. Power breakfasts are rare, partly because many people face long commutes, though morning coffee meetings are frequent. Business dinners tend to be lighter and earlier for the same reason. Colleagues may travel considerable distances to get home, so evening events rarely extend late. Spouses are sometimes invited to dinner but not usually to lunch. Hotel restaurants are a popular choice, often offering buffet-style international menus, though local restaurants are equally valued.
+
+Colleagues from cultures where business discussions begin early in a meal may find that topics are introduced later or not at all during the gathering. For Tanzanian hosts, steering the conversation reflects attentiveness to the relational tone, and raising business matters prematurely can feel transactional. Accept invitations graciously; declining without explanation can feel distancing. Reciprocating the hospitality, whether during the visit or on a future occasion, is appreciated and understood as part of a longer-term cycle of mutual regard.

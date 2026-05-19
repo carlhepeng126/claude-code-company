@@ -1,0 +1,11 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+British meetings draw from long-standing civic traditions of committees, parish councils, and school governors. The modern boardroom inherits that structure: formal agendas, careful minuting, a designated chair, and an expectation that views should be heard before decisions are finalized. The meeting itself becomes a forum for collective input, not simply a venue for announcing what has already been decided. Understanding this helps explain why meetings can feel talkative or procedural even when outcomes seem settled beforehand.
+
+Disagreement is rarely voiced bluntly. Instead of "you're wrong," you will more likely hear "I see it slightly differently" or "I'd be nervous about that approach." These phrases are real objections, phrased to preserve working relationships and avoid direct confrontation. Colleagues from cultures where disagreement is stated more openly may read this as agreement or indecision, while British participants may find blunt challenge abrasive or unnecessary. Recognizing these softer signals as substantive positions means asking clarifying questions when consensus seems assumed, and confirming who supports what before a meeting closes.
+
+Sensitive topics are often shaped outside the meeting itself, through corridor conversations and one-to-one calls beforehand, then finalized quietly afterward. The formal discussion you observe may represent only part of the decision story. If you need alignment on a joint initiative, invest time in pre-meeting conversations with key stakeholders rather than relying solely on what happens in the room.
+
+When tension rises, someone may defuse it with humor, often self-deprecating or directed at "yet another meeting." This can ease awkwardness but also postpone difficult conversations. For clarity, summarize agreed actions explicitly at the close and circulate accurate minutes quickly. For British colleagues, good minutes anchor trust and serve as the reference point when recollections differ.

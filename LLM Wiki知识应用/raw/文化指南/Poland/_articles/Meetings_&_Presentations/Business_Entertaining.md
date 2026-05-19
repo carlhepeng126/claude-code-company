@@ -1,0 +1,11 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Polish hospitality tends to be generous and actively expressed. Hosts often show care through abundance: more food offered than seems necessary, second helpings encouraged even after polite refusals, and a general sense that going without is unacceptable. This tradition reflects a deeper value around providing well for guests, particularly those who have taken the time to visit or build a relationship. Light declines may be gently overruled, so if you genuinely cannot eat or drink more, a clear but warm refusal works better than tentative signals. The aim is to let the host feel their care has been received, not rejected.
+
+Entertaining is usually a chance to strengthen the relationship, not to advance specific business points. Evenings may extend late, with conversation that ranges widely and becomes more personal as the night goes on. Invitations to someone's home, or to a favourite restaurant, should be treated as meaningful gestures. Accepting them signals you take the relationship seriously. Cafes are also common settings for more informal connection, particularly for daytime catch-ups over coffee and cake. Breakfast meetings are rare, and attempting to schedule them may feel slightly off-rhythm.
+
+Toasting is common, often with the phrase "na zdrowie," but alcohol itself functions more as a symbol of togetherness than a requirement. While drinking is culturally visible, not everyone participates, and modern hosting increasingly reflects that. If you don't drink, decline simply and without over-explaining. The goal is to keep the social flow intact, not to make your choice a point of discussion.
+
+Timing around the Polish calendar also shapes social availability. All Saints' Day in early November is a public ritual of remembrance involving family travel and cemetery visits, and it can slow professional and social life noticeably. The early May period known as majówka marks the informal start of outdoor and long-weekend culture, and scheduling around it avoids clashing with widely held plans.

@@ -1,0 +1,11 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Algerian workplaces are built on visible hierarchy, and managers are expected to lead with expertise and clear direction. Delegating widely without detailed instruction can be read as uncertainty or even weakness rather than empowerment. This expectation has deep roots. The legacy of French colonial administration, followed by decades of state-controlled industry, created a culture in which workers looked to institutions and managers as providers rather than partners. That shaped a cautious, compliance-oriented relationship with authority that persists in many organizations today. Employees generally wait for explicit instructions and are unlikely to take initiative outside their defined scope. The assumption is that if a task truly needs doing, the manager will ask for it directly.
+
+This means that detailed briefs are essential. When delegating, be specific about what needs to happen, by when, and why. A polite "yes" may be offered even if the details are unclear, since admitting uncertainty can feel like exposing a gap in competence. Checking understanding and inviting questions during the briefing reduces the chance that problems will stay hidden later. Similarly, consulting subordinates too openly when making decisions can undermine your credibility as a leader. If you need input, frame it as gathering expertise, not seeking approval.
+
+Public criticism damages honor and trust. Any correction should be raised privately, with care. A manager from a culture where feedback is given directly and openly may see this as inefficient. From an Algerian perspective, public correction shows poor judgment and disrespect. Conversely, an Algerian manager working abroad may find that withholding feedback in group settings is interpreted as avoidance rather than tact.
+
+Building loyalty takes time and requires showing genuine personal interest. The paternalistic manager who knows and cares about their people earns deeper commitment than one who manages at arm's length. Steady encouragement and regular check-ins tend to achieve more than distant oversight or rigid timelines.

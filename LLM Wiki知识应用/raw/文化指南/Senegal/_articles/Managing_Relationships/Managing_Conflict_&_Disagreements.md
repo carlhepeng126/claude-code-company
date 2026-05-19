@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Open confrontation risks damaging relationships and reputations in Senegal, where preserving face and social harmony take precedence over direct resolution. If a colleague suddenly falls silent or stops greeting you, or if their tone shifts, they may be signaling offense. Complaints often surface indirectly through jokes, satirical sketches, or songs that circle the same issue again and again. This is especially true among younger colleagues or in creative sectors, where discontent becomes art rather than argument. Dismissing persistent humor or satire as harmless cultural expression means missing the message. Instead, ask trusted colleagues what the underlying concern might be, and address it quietly before it widens.
+
+Workplace conflicts can escalate beyond the office if they tap into broader tensions around fairness, unemployment, or political injustice. A dispute over pay or promotion can move into union structures, family councils, or public protest if it feels emblematic of a systemic problem. For this reason, raising a problem early in a calm, private conversation makes resolution more likely. If tensions persist, involving a respected elder, union representative, or senior colleague as a mediator allows both parties to speak without direct confrontation and gives the conversation legitimacy.
+
+Resolution alone does not signal the end of a conflict. Senegalese colleagues often expect a symbolic gesture that makes reconciliation visible to others: a shared meal, a public handshake, or words spoken in front of the team. This is how trust is restored and relationships confirmed, not through closed-door agreements or HR documentation alone.

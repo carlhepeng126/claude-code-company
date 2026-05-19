@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Collaboration in Bhutan is grounded in deep-seated Buddhist values of collective well-being and the primacy of relationships over tasks. Teams form around connection and mutual care rather than role-based efficiency. Senior colleagues guide less experienced members indirectly, often through observation, storytelling, or quiet example rather than explicit instruction. This allows learning to happen without exposing anyone to judgment or loss of face, which would disrupt group harmony. A manager in a Bhutanese team is expected to show genuine interest in each person's well-being, not just their output. Authority is respected, but it must be exercised with warmth and attentiveness to individual circumstances.
+
+Decisions emerge through consensus and extensive consultation. This process can feel slow to someone from a culture where speed and directness are valued, and it may be read as indecisiveness. From a Bhutanese perspective, a rushed decision made without input risks undermining trust and cohesion, which are the foundation of any successful team. Taking time to include voices and build agreement is how good outcomes are secured, not delayed.
+
+Feedback is delivered with care. Praise is more often directed to the group than to individuals, reinforcing collective identity and avoiding the discomfort of singling someone out. Critical feedback is given privately and with sensitivity, because public correction threatens dignity and can fracture the relational fabric of the team. If you need to address performance, frame it as shared reflection rather than personal failure, and allow space for the person to adjust without exposure.

@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Indian audiences often respond to presentations that combine narrative with data. Numbers alone can feel abstract; wrapping them in concrete stories, analogies or examples gives them resonance. This preference reflects a thinking style that draws on context and connection rather than isolated facts. A well-told story about how a solution helped a similar organization, or an analogy drawn from everyday Indian life, makes a concept memorable in a way that a chart by itself may not. Emotion and relatability support persuasion here, especially when introducing new ideas or challenging existing assumptions.
+
+English proficiency varies widely, even within urban professional settings. While many colleagues are fluent, rapid speech, culture-specific idioms or slides dense with text can leave parts of the room behind. Speaking clearly, pausing to summarize key points and checking understanding periodically helps everyone stay engaged. Information-rich slides are often expected in corporate contexts, and minimalism can sometimes be read as a lack of substance. If you choose clean visuals, be prepared to add verbal depth and to have backup detail ready in appendices or extra slides for those who want to go further.
+
+Presentations in India are often interactive rather than linear. Mid-presentation questions, clarifying asides and brief side discussions are common and reflect genuine engagement, so waiting for a formal Q&A slot at the end is less typical. People may step out to take calls or join partway through, and this should be treated as normal. Building in flexibility and welcoming these interruptions as opportunities to deepen connection will make your delivery feel collaborative rather than rigid.

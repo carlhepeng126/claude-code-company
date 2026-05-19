@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Belarus, feedback is typically delivered sparingly, indirectly, and only when trust has been built. The workplace remains shaped by the memory of Soviet-era hierarchies where open criticism could have serious consequences, and where public correction was used as a tool of control. That history has left a strong preference for privacy and caution when addressing performance. Direct criticism, especially in front of others, risks damaging personal dignity and team morale in ways that take time to repair.
+
+Managers tend to offer feedback through careful, indirect phrasing or by sharing observations rather than making judgments. A phrase like "Perhaps we could consider another approach" leaves room for the individual to reflect without feeling exposed. Positive feedback is also given privately or in understated terms. Public praise can create discomfort, both for the person receiving it and for colleagues who may see it as singling someone out in a culture that values group cohesion and egalitarianism.
+
+Coaching relationships develop slowly and depend on personal connection. Advice is more likely to be heard when it comes from someone the individual respects and has worked with over time. Formal performance review processes imported from multinational systems can feel mechanical or impersonal, particularly if they bypass the relational context that gives feedback meaning. A manager from a culture where regular, structured feedback is expected may find it difficult to gauge how their input is being received. Belarusian colleagues, in turn, may read frequent feedback as micromanagement or a sign that trust has not been established.

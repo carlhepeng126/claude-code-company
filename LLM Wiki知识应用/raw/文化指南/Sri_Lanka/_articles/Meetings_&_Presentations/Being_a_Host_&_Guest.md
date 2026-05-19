@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hospitality in Sri Lanka is tied to dignity and moral standing. Offering refreshment, making someone comfortable, and showing genuine attentiveness communicate that the host is a decent person, not only that they like you. This means that accepting care graciously and complimenting the home or food sincerely become gestures of respect. When you decline tea or skip a meal without explanation, your host may feel that their decency has been questioned. If you arrive at a colleague's home and find shoes arranged by the door, remove yours too. Follow the host's lead on seating and when to start eating. These details anchor the interaction for both sides.
+
+Respect is calibrated through elders and roles, even when the atmosphere feels warm. In many households, who speaks first, who is served first, and who sits where still function as harmony mechanisms. A colleague from a culture where seating and speaking order are less encoded may find the structure formal, while a Sri Lankan colleague may read casual disregard for these cues as a lack of social awareness. As a host yourself, protect guests from awkward exposure in front of elders or wider family by making introductions gently and offering clear practical guidance on food options and house norms.
+
+Religious spaces and homes shaped by those traditions have strong embodied codes. Dress modestly when appropriate, ask if unsure, and treat sacred spaces as places of practice rather than tourist backdrops. Invitations can coincide with family rituals, blessings, or festival moments where timing and behavior have meaning beyond the social event. When auspicious timing or ritual references come up, respond with respect and flexibility. Jokes or debate will be remembered.

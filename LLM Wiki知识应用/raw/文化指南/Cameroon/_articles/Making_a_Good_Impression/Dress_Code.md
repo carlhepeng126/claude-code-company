@@ -1,0 +1,11 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional dress in Cameroon carries social meaning rooted in a long history of hierarchy, where visible signs of status and respectability have traditionally shaped how people are received. In both colonial and post-independence contexts, appearance became a marker of education, position, and trustworthiness. This legacy continues today. How you present yourself in a business setting shapes whether you are seen as serious, credible, and worthy of engagement.
+
+Men typically wear suits or tailored trousers with long-sleeved shirts and ties. Women wear business suits, formal dresses, or blouses with skirts or tailored trousers. Shoes should be polished, and clothing pressed. If you arrive in casual dress to a formal meeting, you risk being perceived as dismissive of the relationship or unaware of social expectations. In government offices, banking, and corporate environments, this formality holds firm. In creative industries or tech startups, dress may be slightly more relaxed, but even here, what counts as casual still leans formal by many international standards.
+
+Regional and generational differences exist. In Yaoundé and Douala, business dress follows formal conventions closely. In smaller towns, expectations may soften slightly, though respectability still guides choices. Younger professionals in more globalized sectors may experiment with smart-casual styles, but they still dress with intention rather than informality.
+
+Traditional dress also holds significance. Men may wear the grand boubou, a flowing embroidered robe, and women may wear brightly patterned wraps and headwear. These are often worn at national ceremonies, weddings, or cultural events, and occasionally in professional settings where cultural identity is being expressed. Wearing traditional dress well conveys pride, rootedness, and belonging. If you are invited to an event where traditional dress is worn, asking about its significance can open meaningful conversation.

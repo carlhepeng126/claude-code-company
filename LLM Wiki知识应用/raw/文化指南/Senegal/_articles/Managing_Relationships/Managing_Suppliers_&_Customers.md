@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Business relationships in Senegal rest on informal credit and reputation more than contract clauses. Across markets from Sandaga to regional towns, suppliers and customers often operate on the phrase "dëfar ma, dinaa la fay" — do it for me, I'll pay you. This system functions because trust is tracked through networks, not paperwork. Break an unwritten rule or fail to honor a deferred payment, and the story travels quickly through the ethnic and diaspora webs that structure much of Senegal's commerce. Lebanese, Mauritanian, Guinean, and specific Senegalese ethnic networks dominate different sectors, and your treatment of one supplier can shape your access to many others. When planning credit terms or advance payments, learn how these systems work in your sector before importing global practices that may undercut the logic your partners rely on.
+
+Loyalty attaches to people, not companies. If your contact leaves, expect to rebuild from the beginning with their replacement. Invest time in the relationship itself, including visits, greetings, and the kind of reciprocal exchange that shows you understand the connection goes beyond transactions. When mistakes happen, repair them with both practical fixes and relational gestures. An apology visit or a concrete improvement plan often matters as much as financial compensation.
+
+Customers evaluate more than product. They assess whether your frontline staff show teranga: warmth, attentiveness, and respect. A dismissive interaction or brusque refusal can become a neighborhood story. Train customer-facing teams to greet warmly, listen fully, and avoid abrupt responses, especially under pressure. In a relational market, how you treat people becomes part of your brand.

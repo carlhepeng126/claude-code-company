@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Agreements in Pakistan are built around relationships that outlast any single transaction. The substance of a deal includes what it reveals about character, how it affects future contact, and the standing of the families or networks involved. This relational grounding means that early discussions may focus more on understanding who you are and how you work than on price or terms. Trying to accelerate through this stage risks being seen as transactional. If you change your negotiating team midway, the process will often reset, because the relationship is with people, not with the organization alone.
+
+Dignity shapes the path to agreement. Public cornering or forcing moves that leave the other side visibly defeated can make a deal socially too expensive to accept, even if the terms are technically fair. Instead, leave room for concessions and allow space for both parties to reach consensus without loss of face. Expect the conversation to circle back to earlier points or move between topics. This allows both sides to test flexibility, refine understanding, and make sure nothing has been overlooked. It may also signal that your counterpart is waiting for a better offer. Because bargaining is expected, presenting your best terms at the outset can close down the collaborative movement that leads to a mutually acceptable outcome.
+
+Trusted introductions reduce uncertainty and establish social legitimacy before terms are even discussed. In settings where personal credibility is part of the risk calculation, the introducer becomes part of the credibility structure. Regional styles vary. Karachi's commercial environment can be more direct and pace-driven, while smaller towns may emphasize relational depth. In Pashtun belt contexts, honour and community standing may shape how terms are framed and accepted.

@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presenting well in Malawi means recognizing that narrative structure is a culturally fluent way to organize thought. Nthanu, traditional stories, historically shaped how people learned moral reasoning and their place in society. This means audiences often expect presentations to feel like a clear story with a setup, tension, and resolution rather than a list of data points. Structuring your talk around concrete examples and real-world scenarios makes content easier to follow and more persuasive. This isn't simplifying your argument; it's aligning how you deliver it with how your audience processes complex ideas.
+
+Who you are as a presenter can weigh as heavily as what you're saying. Malawi's history of mission schooling fused literacy with moral formation, and religious institutions remain socially influential today. Audiences often listen for whether a presenter feels trustworthy in character, not only correct in content. A polished, overly rehearsed delivery can feel distant or performative. Instead, a grounded, sincere tone that feels conversational rather than aggressive builds credibility. If you lead with hard-sell tactics or speak as though you're proving superiority, you may find that people listen politely but hold back their trust.
+
+Malawi holds multiple moral frames at once: Christian, Muslim, and indigenous spiritual traditions like Vimbuza all coexist. This means your audience may be listening through different legitimacy systems. Avoid assuming everyone shares one moral vocabulary or framing your message as though it should win on a single axis of logic. Make room for plural perspectives without trying to dominate culturally, and your message is more likely to land across the room.
+
+Expect quiet engagement. Malawians are attentive listeners and rarely interrupt. Junior staff may hesitate to ask questions of a senior presenter in front of others. Build in time afterward for one-on-one conversations where people can approach you more comfortably.

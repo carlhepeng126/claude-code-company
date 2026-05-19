@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Guadeloupe unfolds within a relational culture where hierarchy, personal dignity, and the quality of connection shape how messages are delivered and received. Managers who attempt direct critique in formal settings often find their words landing awkwardly or being quietly deflected. Feedback works best when it's given privately, framed gently, and rooted in a relationship where trust has already been established. Public correction, even when mild, risks embarrassment and can damage the rapport that underpins collaboration. Spontaneous praise, by contrast, is welcomed and often shared openly, reinforcing both individual morale and group cohesion.
+
+Indirect language plays a central role. Rather than naming a problem outright, a manager might frame feedback as a shared observation or use a softer opening such as a question or a reference to past experience. This approach allows the recipient to save face while still understanding what needs to change. A colleague from a culture where feedback is expected to be explicit and task-focused may read this indirectness as vague or ineffective. From a Guadeloupean perspective, the directness can feel abrupt and unnecessarily confrontational, stripping the exchange of its relational foundation.
+
+Coaching is most effective when it feels personal rather than procedural. Formal performance review systems, especially when they rely on written ratings or standardized templates, can feel impersonal and disconnected from the everyday rhythms of work. Conversations that acknowledge the individual, their context, and their efforts are far more likely to inspire reflection and growth than instruments that quantify performance in isolation.

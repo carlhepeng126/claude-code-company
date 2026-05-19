@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Meals in Venezuela double as character tests. Conversation may be animated and humorous, but people are also watching how you respond under low pressure: whether you dominate or listen, whether you stay dignified when disagreeing, whether you show gratitude without overdoing it. This means the table is less about closing deals and more about building ease first. Let your host set the rhythm for when, or if, the conversation moves toward business. Trying to turn the meal into a meeting with courses will read as transactional and can quietly undermine trust.
+
+Arepas, the cornmeal breads eaten daily across class and region, reflect something deeper than cuisine. They represent continuity and adaptable comfort, a reliable base you can endlessly vary. Hallacas, the holiday tamales wrapped in plantain leaves, encode a social blueprint: collective labor, role-sharing, teasing, and making extra to give away. Every family has an opinion on what belongs inside, and food talk can quickly become belonging talk, especially in mixed groups where some colleagues may be part of the large diaspora that has left since 2016. Ask grounded questions like "Is this a family tradition?" or "How do you make hallacas in your house?" without performing curiosity, and let others define what "Venezuelan" means to them.
+
+Follow your host's lead on ordering and pacing. Keep disagreement gentle at the table, and if something needs friction, park it for a quieter moment later. Close warmly, then confirm next steps in writing once people have left social mode.

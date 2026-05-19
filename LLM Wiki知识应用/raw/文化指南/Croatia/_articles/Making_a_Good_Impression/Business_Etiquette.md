@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Croatian colleagues value honesty and clear opinions, but they wrap these in measured restraint. Outright confrontation is avoided. In practice, this means you will hear blunt assessments in private once trust is established, while public comments stay polite and carefully worded. Initial encounters can feel reserved, even guarded. Until the relationship settles, colleagues may speak indirectly, using passive constructions or deflecting responsibility. Once that barrier lifts, expect more directness and even an abrasive conversational style. A colleague from a culture where politeness is layered with ambiguity may read this shift as suddenly confrontational, while Croats may interpret softer phrasing as evasiveness or weakness. Stay clear and firm without becoming theatrical.
+
+Kukanje, or shared complaining, is close to a social ritual. Grumbling about bureaucracy, low wages, or the state of things bonds people and shows you understand the local reality. Joining light kukanje, without turning it into condescension or writing the country off entirely, signals respect and realism. If you hold back entirely, you may come across as naive or detached. The tone to aim for is shared frustration, not dismissal.
+
+Everyday habits reveal how colleagues show care. Propuh, the widespread belief that drafts cause illness, shows up in small gestures like closing windows, moving chairs, or insisting someone put on a jacket. These are genuine expressions of concern. Accept them as such, not as superstition to be mocked. A colleague who worries about the draft is extending attention, and brushing it off can feel like rejecting the relationship itself.

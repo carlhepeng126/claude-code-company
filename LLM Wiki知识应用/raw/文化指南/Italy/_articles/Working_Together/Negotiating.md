@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiation in Italy draws on a long commercial tradition that blends the artisan's pride in craft value with the merchant's skill in finding mutual ground. The process is expected to be relational and inventive, not just transactional. Trust and personal chemistry shape the conversation from the start, and the prospect of future collaboration often weighs as heavily as the immediate terms. This means the opening stages may focus less on hard numbers and more on understanding each other's constraints, interests, and longer-term potential. A colleague from a culture where negotiations move quickly to price and contract may read this warm-up as evasion or inefficiency. An Italian counterpart, in turn, may view a fast push to final terms as transactional or even aggressive, a sign that the relationship holds little value beyond the single deal.
+
+Flexibility is expected on both sides. A single, fixed offer presented as non-negotiable can feel abrupt and close down the kind of creative problem-solving that is widely admired. Italian negotiators often look for inventive structures, win-win arrangements, or ways to reframe constraints, and they may test your willingness to move by introducing new demands or reopening points that seemed settled. This back-and-forth is part of the exploration. Leave room for concessions that don't weaken your position, and treat the circular movement as an opportunity to refine understanding rather than a sign of confusion.
+
+Regional variation shows up clearly. In Lombardy and other northern business centers, negotiations may move faster and rely more on data and financial logic. Elsewhere, personal rapport, narrative, and longer exploratory conversations may shape the rhythm. Expect the process to take time, and be wary of signaling urgency, which can weaken your position and suggest the relationship is secondary to speed.

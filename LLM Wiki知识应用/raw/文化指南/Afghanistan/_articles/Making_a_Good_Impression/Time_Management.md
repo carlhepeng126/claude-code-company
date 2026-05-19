@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Afghanistan follows a relational, not mechanical, rhythm. Schedules bend to social priorities, hierarchies, and the realities of daily life. This flexibility reflects deeply held values around respect, hospitality, and kinship. The concept of *inshallah* (God willing) acknowledges that plans depend on circumstances beyond individual control, from road closures to family obligations to power outages. What might read as vagueness from a culture accustomed to fixed timelines is in fact a grounded recognition that many things remain uncertain.
+
+Meetings often begin late, not from disregard but because social protocols take precedence. Greetings, tea, and introductions establish the relational foundation necessary before business can begin. A meeting scheduled for 10 a.m. may start at 10:30 or later, particularly in government offices or traditional sectors. In international NGOs or businesses with global links, punctuality is more closely observed, though even there, relationship maintenance can shift timing. A colleague from a culture where agendas are strictly timed may read this as disorganization, while an Afghan counterpart may view rigid adherence to schedule as dismissive of people and context. Build buffer time into plans and confirm appointments the day before.
+
+Deadlines are understood as intentions rather than firm commitments. A promised completion date signals direction, but actual delivery depends on approval chains, resource availability, and whether key figures are present. Pressing too hard for speed can be perceived as disrespectful, particularly if it overlooks the need for consultation or skips proper channels. Frame timelines as collaborative goals, check progress regularly without accusation, and recognize that flexibility serves continuity, not carelessness.

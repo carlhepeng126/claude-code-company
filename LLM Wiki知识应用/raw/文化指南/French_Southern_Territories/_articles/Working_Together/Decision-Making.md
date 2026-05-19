@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in the French Southern Territories reflects the operational and administrative realities of a small, transient scientific community working under French governance in one of the world's most isolated environments. Formal decisions follow French institutional processes, with authority vested in district administrators and research station chiefs. These leaders manage logistics, safety protocols, and mission priorities within structures set by agencies in metropolitan France. The remoteness and scale of operations mean that major strategic decisions are rarely made on-site. Instead, they arrive from Paris or Réunion, where the territory is administered.
+
+Within research stations, day-to-day operational decisions are made collaboratively. Teams are small and interdisciplinary, often bringing together scientists, technicians, and support staff from various countries. Leaders consult informally across these groups, particularly when decisions affect shared resources, schedules, or safety. The extreme conditions and reliance on limited supply chains make consultation a practical necessity, not just a courtesy. A decision that overlooks the realities of weather, equipment availability, or team morale can have immediate consequences in an environment where isolation amplifies risk.
+
+Colleagues from faster-moving corporate or academic settings may find the pace methodical. Decisions that seem straightforward can involve multiple checks, clearances, or delays tied to logistics beyond local control. From the perspective of someone working in the territories, a decision made without considering the full operational picture or the input of those who understand the conditions on the ground can appear reckless or disconnected from reality.

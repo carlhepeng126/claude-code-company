@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Bolivia, titles and formality in address reflect a society where respect for social position and professional standing runs deep. Use "Señor" or "Señora" with a surname in business contexts, and add professional titles such as "Doctor," "Ingeniero," or "Licenciado" where they apply. These distinctions acknowledge both the individual and the years of effort behind their role. Switching to first names happens only after an explicit invitation, and it may take several meetings before that offer is made. Moving too quickly to informal address can suggest a lack of seriousness or awareness of hierarchy.
+
+The formality extends to written communication. Emails and letters typically open with "Estimado Señor" or "Estimada Señora" followed by the surname, and close with "Atentamente" or "Cordialmente." Even in routine digital exchanges, maintaining this structure shows professionalism. Dropping formality prematurely, especially in correspondence, risks undermining your credibility before the relationship has developed.
+
+Regional and generational differences do appear. In urban centers like La Paz or Santa Cruz, younger professionals in multinational or tech-focused companies may adopt first-name terms more readily. In government ministries, state enterprises, or smaller regional offices, formal address remains standard regardless of age. When in doubt, default to the formal. Colleagues from cultures where informality is the norm may read Bolivian formality as distant or slow to warm, while Bolivians may interpret premature familiarity as overconfidence or disrespect for the relationship-building process.

@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information in Gambia tends to move through personal channels rather than formal systems. In many workplaces, knowing someone personally or being introduced through a trusted contact opens doors that official requests alone may not. This reflects a broader social logic rooted in relationship and familiarity. People want to understand who you are and how you fit into their network before sharing freely. A colleague from a culture where transparency is standardized across departments may find this selective, while Gambians working in those settings may feel exposed or uncomfortable volunteering information without first establishing connection.
+
+Within organizations, information often stays within immediate teams or circles. Sharing widely, especially across hierarchies, can feel risky if it involves mistakes, setbacks, or uncertainty. Dignity and face are valued, and airing problems publicly can be seen as embarrassing for the individual or the group. This means that bad news or sensitive updates may be filtered, softened, or withheld until there is confidence that the recipient will respond constructively. If you need full visibility early on, invest time in building trust and showing that you handle difficult information without blame.
+
+Younger professionals and those in internationally connected sectors may adopt more open communication styles, but even here, personal rapport underpins the flow. Regular informal contact, consistent follow-through, and demonstrating that shared information will be used responsibly all make people more willing to speak candidly. A colleague who listens, respects confidences, and reciprocates with their own openness will find that information becomes more accessible over time.

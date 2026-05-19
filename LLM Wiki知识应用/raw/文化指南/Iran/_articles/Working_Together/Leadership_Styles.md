@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+A respected leader in Iran is expected to protect the honour and public image of their team. This role, often described as *modir* (manager), involves defending staff in front of higher-ups, shielding them from directives that make no sense, and negotiating quietly to resolve problems before they become public. The idea of *aberu* (face or reputation) applies not just to individuals but to the group as a whole, and a leader who fails to guard it will lose trust quickly. This protection builds loyalty, while leaders who evaluate without advocating tend to be seen as distant or ineffective.
+
+Many leaders operate within multiple registers of meaning. Some speak the language of the Revolution and martyrdom, others draw on pre-Islamic heritage, technocratic efficiency, or pure business logic. Many shift between them depending on the audience. If you are working with or under an Iranian leader, the register they use tells you how they frame authority and how they want proposals framed in return. A pitch that speaks to national pride or technical excellence can land very differently depending on which worldview the leader inhabits at that moment.
+
+There is also a careful line between being accessible and being exposed. In some organizations, a leader who sits in the same kitchen, queues at the same samovar and jokes with staff is admired for staying grounded. In others, too much visibility or informality can be risky, particularly in politically sensitive settings. As an external or hybrid leader, be present and human, but do not drag people into unwanted visibility, such as tagging them in public photos they did not consent to. Approachability should not compromise discretion.

@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Using professional titles when you first meet someone in Lebanon is a straightforward gesture of respect in a society where educational achievement and standing often shape perception. Doctor, Engineer, or Professor paired with a last name creates a respectful baseline, particularly when you do not yet know someone's age, background, or role in the broader social network. Titles function as neutral ground in a context where identity markers can be sensitive, allowing you to show courtesy without navigating community or confessional boundaries prematurely.
+
+Lebanese conversation can shift easily between Arabic, French, and English, sometimes within the same sentence. This reflects multilingual education and lived experience, not performance. How someone addresses you, and which language they choose, can signal register, formality, or social proximity. Follow their lead rather than assuming one language is more appropriate. If you hear yourself addressed formally in French or English, respond in kind until invited otherwise.
+
+Warmth and familiarity can emerge quickly, but they are calibrated to the setting and to the people present. Age gaps, formality of the occasion, and the mix of individuals all shape what feels appropriate. A colleague from a culture where first names are used immediately may read this initial formality as distant or bureaucratic, while a Lebanese counterpart might read rapid informality as presumptuous or socially unaware. Both interpretations miss the point. In Lebanon, how you address someone reflects whether you see them as an individual outside a social context or as someone embedded in a known network of family, community, and institution. Moving to first names follows trust, not a timeline.
+
+In written communication, formality remains. Emails and letters still open with titles and surnames, and closings stay courteous. Maintain this tone even in digital exchanges until the relationship has clearly shifted.

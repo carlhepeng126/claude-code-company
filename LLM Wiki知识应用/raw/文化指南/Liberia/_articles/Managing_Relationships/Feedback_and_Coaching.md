@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Liberia, feedback works best when it protects dignity and keeps the person inside the group. Public embarrassment can damage belonging, so correction is usually offered privately, in ways that allow someone to adjust without losing face in front of colleagues or peers. This approach reflects a broader cultural preference for repair over exposure. Drawing on Palava Hut logic, where harms are named, apologies exchanged, and relationships restored, feedback aims to guide someone back into alignment rather than isolate them for failure.
+
+Gentle humor and softened language often serve as face-saving tools. A manager might use warmth, a shared example, or light teasing to signal an issue without directly naming it. This indirectness can feel vague to colleagues from cultures where feedback is expected to be explicit and immediate, who may worry that the message is being missed. From a Liberian perspective, the same explicit approach can feel harsh or even punitive, especially when delivered across status lines or in front of others.
+
+Histories of conflict and crisis have left many Liberians alert to scapegoating and social exclusion. When blame is assigned publicly or framed in moral terms, it can trigger defensiveness or withdrawal. Framing correction as restoration, offering it privately, and using culturally familiar softeners make it more likely the message will be heard and acted on. A check-in that starts with shared context and ends with a path forward will produce more change than a formal performance review delivered without relational groundwork.

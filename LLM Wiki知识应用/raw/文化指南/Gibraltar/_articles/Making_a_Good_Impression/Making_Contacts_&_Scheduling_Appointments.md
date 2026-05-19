@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Gibraltar's small size shapes how business contacts are made. With fewer than 35,000 residents and a tight-knit professional community, most people are already connected through family, school, or shared workplaces. Cold outreach is less common than working through existing networks. A direct introduction from someone your contact knows personally will usually speed things up and lend credibility. If you're new to Gibraltar and lack local connections, expect to invest time in building visibility before doors open quickly.
+
+Scheduling is generally straightforward. Appointments can be arranged by phone or email, and people tend to honor commitments once made. Still, flexibility helps. Gibraltar's blend of British administrative habits and Mediterranean social norms means that while punctuality is expected, conversations may stretch beyond the allotted time, especially if rapport is building. A colleague from a culture where meetings follow strict time slots may find this informality unsettling, while someone from Gibraltar meeting that same colleague abroad might feel the interaction ended too abruptly, before trust could take hold.
+
+Because the professional pool is small, your reputation travels fast. How you handle one contact will likely be known to others before your next meeting. This means courtesy and follow-through are remembered, but so are missed appointments or dismissive behavior. In a place where everyone knows everyone, credibility is built one interaction at a time, and assumptions about your reliability form quickly.

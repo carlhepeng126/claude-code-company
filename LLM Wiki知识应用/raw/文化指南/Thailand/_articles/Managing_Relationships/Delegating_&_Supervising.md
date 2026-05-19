@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Delegation in Thailand tends to flow clearly from the top, and employees expect to receive direction rather than define their own tasks. This reflects a deeply hierarchical social order shaped by the monarchy, religion, and family structure, where authority and care come together. The manager is understood as a benevolent authority figure who both directs the work and takes genuine personal interest in the team. Employees who feel looked after will give loyalty and strong effort in return. Those who feel managed at arm's length will stay there. Instructions are often given verbally and accepted without question, so it helps to confirm understanding through specific follow-up rather than assuming agreement means clarity.
+
+Supervision requires active attention because problems will rarely surface on their own. The cultural value of kreng jai, a reluctance to impose or cause discomfort, means employees will avoid bringing bad news or difficulties if doing so might embarrass their manager or disrupt harmony. Do not rely on meetings or open forums to uncover issues. Build in regular private check-ins and ask direct, specific questions about progress and obstacles. A manager from a culture where updates flow freely in group settings may assume silence means everything is on track, while Thai colleagues may read public questioning of progress as overly blunt or dismissive of face. From the other direction, Thai team members may interpret a hands-off supervisory style as lack of care rather than trust.
+
+All correction must happen privately. Public criticism causes deep loss of face and will quietly erode both performance and trust. Thai workplace culture also values sanuk, a sense of enjoyment and warmth. A good manager creates an environment that feels personal and has some lightness to it, alongside the structure and authority. This combination is how respect is both given and earned.

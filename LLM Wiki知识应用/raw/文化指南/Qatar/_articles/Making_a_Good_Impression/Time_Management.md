@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Qatar, time runs on multiple tracks. Islamic rhythms set the public calendar: Friday is religiously significant, Ramadan reshapes daily working patterns, and National Day on 18 December anchors the year with commemorative weight. During Ramadan 2025, government ministries cut civil service hours to five per day, running from 9:00 to 14:00, with flexibility up to a 10:00 start. This reflects a broader reality. Energy levels shift across the day during fasting periods, and schedules adjust accordingly. When planning any timeline, treat these dates as fixed realities rather than exceptions. Check Ramadan, Eid, and National Day early in the project cycle and build around them. A colleague from a culture where the annual calendar is relatively stable may read these adjustments as complications; someone in Qatar sees them as the structure within which everything else fits.
+
+Timing in Qatar is often circular rather than strictly sequential. Topics may be revisited, meetings can extend if the conversation is productive, and decisions may emerge in a different order than originally planned. This reflects a relational approach where the right moment, informed by trust and context, can outweigh the scheduled one. For a colleague accustomed to linear agendas and one-issue-at-a-time meetings, this can feel unpredictable. From a Qatari perspective, sticking rigidly to an agenda when the relationship or discussion would benefit from flexibility may seem impersonal or inflexible.
+
+Qatar's population shifts rapidly with migration and project cycles, creating bursts of intensity and seasonal patterns. This demographic churn can affect availability, decision-making pace, and coordination. Build buffers into your plans, prepare for shorter, focused sessions during Ramadan, and treat schedule changes as part of the operating environment rather than disruptions.

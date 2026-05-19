@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings begin with greetings and recognition because these exchanges establish social safety. In Zimbabwe, the relational grounding that happens before any agenda is addressed creates the conditions for honest participation. This opening phase may resemble small talk, but it serves a structural function rooted in cultural memory of the *dare*, the traditional council space where status, sequencing, and respect shaped how deliberation unfolded. Skipping this phase or rushing to business can make the room feel transactional and reduce the quality of what follows. If you move too quickly to substance, you may find that people speak more carefully or defer more visibly than they otherwise would.
+
+Seniority shapes who speaks first, who raises concerns, and how disagreement surfaces. Deference in meetings reflects appropriate respect for hierarchy rather than a lack of contribution. Public contradiction can be uncomfortable, and alignment often happens privately before or after the formal session. A colleague from a culture where decisions are made quickly and openly debated in the room may read this as avoidance or slowness. In return, someone from Zimbabwe may read rapid public debate as disrespectful or insufficiently considered. Recognizing that influence may run through private channels helps you plan for how decisions actually form, not just what happens in the room.
+
+Careful wording reflects learned wisdom shaped by political and economic histories. The cost of mis-speaking can be social, and people manage that risk by choosing their words thoughtfully. Creating psychologically safe channels for feedback, whether one-on-one or through trusted intermediaries, improves the information you receive and the issues that surface.

@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+Motivation in Timor-Leste is deeply tied to relationships and collective identity. People engage most fully when they feel valued as part of a team and when their contribution reflects well on their family and community. A manager who acknowledges effort publicly, involves someone in a visible project, or takes time to understand personal circumstances builds the kind of trust that sustains commitment. Recognition works best when it is personal and expressed face to face, reinforcing the connection between individual contribution and shared success.
+
+Financial incentives alone rarely drive sustained engagement. What inspires people is the combination of decent pay, respectful treatment, and a sense that their role has meaning beyond the task itself. In a culture shaped by collectivist values and strong kinship ties, being seen and supported as a whole person, not just as a function, fuels loyalty and creativity. A manager who frames a project in terms of its benefit to the team or the community, rather than as an isolated deliverable, will see stronger buy-in.
+
+Timor-Leste's workplace culture moves at a relational pace, not a transactional one. Pushing hard deadlines or expecting overtime to meet a target that feels arbitrary can backfire, especially when it conflicts with family responsibilities. People here prioritize family obligations and view time as fluid, so rigid scheduling or pressure tactics tend to weaken, rather than strengthen, motivation. Managers who adapt timelines and maintain regular, supportive contact will sustain momentum more effectively than those who rely on urgency alone.

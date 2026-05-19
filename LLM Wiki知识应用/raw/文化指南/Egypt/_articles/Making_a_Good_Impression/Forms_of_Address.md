@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Titles anchor formal interactions in Egypt and reflect the importance of hierarchy and respect in professional life. Academic and professional distinctions matter, so addressing a doctor, engineer, or professor by their title followed by their given name is standard practice. Someone introduced as Dr. Fatima or Engineer Khaled expects to be addressed that way until they suggest otherwise. The title acknowledges achievement and status, both of which shape how relationships form and decisions move forward. Skipping the title or using only a first name too quickly can feel dismissive, especially in formal or first-contact settings.
+
+Egyptian names can include multiple elements: a given name, the father's name (sometimes preceded by "bin" or "bint," meaning "son of" or "daughter of"), and a family name. Prefixes like "Al" or "El" often mean "the" and attach to surnames. Transliteration from Arabic adds another layer of variation, since the same name may appear in several spellings depending on how vowels are rendered. If you're unsure how to pronounce or structure someone's name, asking politely is welcomed and shows effort rather than embarrassment.
+
+Greetings set the tone. Men typically shake hands with other men, sometimes adding a hug or kiss on the cheek among friends. Men generally do not initiate physical contact with women in public. An Egyptian woman may offer her hand to a foreign man, and a foreign woman may find her hand shaken by an Egyptian man, but this varies by individual preference and level of conservatism. If a hand is not extended, a nod and warm verbal greeting are enough. First encounters often involve repeated greetings and polite conversation before any mention of business. Moving straight to the agenda without this exchange comes across as abrupt and undermines the relational foundation that everything else rests on.

@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Åland Islands, the path to a business meeting is straightforward but grounded in respect for time and preparation. Ålanders value efficiency, but not at the expense of clarity or courtesy. Initial contact is typically made by email, which allows both parties to consider the purpose and logistics before committing. Cold outreach is unusual. Most connections come through existing professional networks or formal introductions, reflecting a small, close-knit society where reputation travels quickly and trust builds over time. If you're reaching out without a mutual contact, be clear about your purpose and how the meeting might be relevant to the other person's work.
+
+Appointments are made well in advance, often two to three weeks ahead, and are expected to be honored. Punctuality reflects reliability here. Arriving late without explanation can suggest disorganization or a lack of respect for the other person's schedule. Meetings tend to start and end on time, so avoid booking back-to-back commitments with no buffer. Ålanders appreciate structure and dislike surprises, so confirm the meeting a few days beforehand and provide any relevant materials in advance.
+
+The formality of the initial contact depends on context. In public sector organizations or larger companies, expect a more reserved tone and structured scheduling. In smaller businesses or creative sectors, especially among younger professionals, the approach may be more relaxed, though still direct. Dropping by unannounced is generally unwelcome. Even in a small community, people expect advance notice and a clear reason for your visit.

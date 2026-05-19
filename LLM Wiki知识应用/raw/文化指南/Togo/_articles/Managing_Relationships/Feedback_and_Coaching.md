@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Togo is handled with care for dignity and the social web that surrounds each person. Developmental conversations happen quietly, often in private, and avoid language that could expose someone to embarrassment or shame. Managers may approach a concern by framing it as a shared challenge rather than an individual shortcoming, or by drawing on a story or example that allows the person to reflect without being named. This indirectness reflects a relational culture where preserving face and maintaining group harmony take precedence over transactional clarity. A colleague from a culture where feedback is expected to be direct and timely may read this as evasive or unclear, while a Togolese professional may find unfiltered critique harsh and socially unskilled.
+
+Coaching rarely stays within the office. Family members, respected elders, or trusted colleagues often play a role in how guidance is interpreted and whether it leads to action. A young professional may consult a parent or older sibling before accepting a new responsibility, especially if it affects family expectations or shifts their role at home. This means that feedback given one-on-one may not translate immediately into behavior change. Understanding that advice moves through networks of trust, not just individual decision-making, helps foreign managers set realistic expectations around follow-through.
+
+Public praise is welcome when it reinforces group achievement, but singling someone out can create discomfort. Negative feedback should always be delivered in private, using language that acknowledges context and invites dialogue rather than correction.

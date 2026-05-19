@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Azerbaijan often unfold in two acts. The first is visible: extended conversation about family, regional developments, or recent news, followed by formal deference to the most senior person in the room. The second is less obvious but equally consequential. Real debate may take place after the meeting ends, in a corridor, over tea, or in a WhatsApp group. This reflects a deeply relational culture where public disagreement risks face, but private pushback is both expected and necessary. A manager from a culture where decisions emerge through open debate during the meeting may leave thinking agreement has been reached, while Azerbaijani colleagues are only beginning their internal discussion.
+
+Seating arrangements and speaking order reveal more than you might expect. Who sits near the head of the table, who enters first, and who speaks early are read as markers of status and alliance. These cues help others understand whose support will be needed for a decision to hold. A colleague unfamiliar with this logic may focus only on the content of what is said, while missing the relational map being drawn in the room.
+
+Meetings often move from relational warmth to compressed decision-making with little warning. After twenty minutes of conversation that builds trust and context, the tone can shift quickly to "So, what do you propose?" If you move straight into slides without allowing time for this opening, you may feel efficient but lose the relational foundation that makes the proposal persuasive. Conversely, assume that silence in the room means full agreement and you may be surprised when the real conversation begins elsewhere. Following up in writing, ideally in Azerbaijani or Russian, gives colleagues a reference point for those post-meeting discussions and keeps your key points from being lost in translation.

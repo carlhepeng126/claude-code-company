@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Botswana bends around relationships and consensus, not the clock. This reflects the cultural principle of *botho* (humanity toward others), where maintaining harmony and including people properly takes precedence over rigid schedules. Decisions emerge through consultation, often across generations and hierarchies, which means timelines stretch to accommodate the process. A meeting might start late because a senior person is still engaged elsewhere, or a deadline might shift because input from an absent stakeholder is considered essential. Rushing risks leaving someone out or forcing a decision before agreement is genuine.
+
+Punctuality is increasingly expected in formal settings, particularly in multinational firms, mining, and finance, where deadlines align with global operations. But even in these contexts, meetings may not begin on time if relationship-building rituals have not been completed. A colleague from a culture where meetings start precisely at the scheduled time might read this as disorganization. A Motswana colleague, in turn, might view immediate clock-driven starts as transactional, wondering why respect for people present was sacrificed for the timetable.
+
+Flexibility is more pronounced in government offices, smaller businesses, and rural settings, where the rhythm of work adjusts to the social fabric of the day. A project timeline that seems fixed may be revisited if circumstances change or if a key person needs more time to consult. This is not avoidance. It reflects a belief that sustainable outcomes require proper process, and proper process requires time.

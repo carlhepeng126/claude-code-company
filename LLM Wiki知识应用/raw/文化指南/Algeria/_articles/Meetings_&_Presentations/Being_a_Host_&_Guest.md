@@ -1,0 +1,11 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hosting in Algeria reflects a moral responsibility rooted in generosity and honour. Making a guest feel comfortable and cared for demonstrates both family reputation and the seriousness of the relationship. This extends into professional settings, where hospitality becomes a measure of respect and intent. If a colleague invites you to their home, the gesture goes beyond courtesy. It signals trust and a willingness to deepen the connection. Accepting that invitation, bringing a modest gift such as pastries or chocolates, and removing your shoes without prompting all communicate that you understand the weight of what is being offered.
+
+As a guest, you take on a reciprocal obligation. Visible gratitude, politeness, and avoiding any sense of burden on the host are part of the social contract. If your host offers more food or refills your tea, accepting a little, even if you are full, acknowledges their effort and reinforces the bond. For a colleague from a culture where efficiency and brevity guide social interactions, this layered exchange can feel prolonged. From an Algerian perspective, a guest who rushes or declines repeatedly may seem indifferent or unappreciative, undermining the relationship before it takes hold.
+
+Elders often anchor the dignity norms of a visit. Who you greet first, how you address them, and the deference you show can shape how the entire household reads your character. In more traditional settings, you may not meet all members of the family, and modesty or gender boundaries may structure the event quietly. Prayer rhythms and halal expectations often go unstated, so noticing what is offered and what is avoided helps you navigate without needing explicit instruction.
+
+If awkwardness arises, many hosts will smooth it by shifting the topic, offering more hospitality, or protecting you from embarrassment. This repair-oriented approach prioritizes relationship continuity over clarification. Urban households in Algiers or Oran may feel more relaxed, while rural or Amazigh regions may hold stronger pride markers and hospitality aesthetics. Recognizing these differences and responding with warmth and attentiveness will serve you well across settings.

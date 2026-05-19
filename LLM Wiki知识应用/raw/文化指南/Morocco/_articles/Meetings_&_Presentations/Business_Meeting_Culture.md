@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Business meetings in Morocco are shaped by a protocol culture rooted in the makhzen, the historical web of proximity and reputational gravity around the monarchy and state-linked elites. This creates a social logic where form, sequence, and visible respect show whether someone understands the architecture of standing. Arriving on time is expected from visitors, but be prepared for Moroccan counterparts to arrive late. Offer refreshments, including tea, coffee, and mint tea, as hospitality frames the encounter before content does. Moroccans often meet in groups, especially for negotiations, and it is appropriate to match their numbers. When scheduling, work around prayer times and check which language the meeting will be conducted in, arranging for an interpreter if needed.
+
+Meetings always begin with small talk and introductions. Each person should introduce themselves to everyone else in the room, with particular respect shown to the most senior member of the team. Age and experience are revered, and Moroccan counterparts will look to senior people on your team for reactions. Expect an open door policy, where interruptions are normal and conversation flows rather than following a rigid agenda. This reflects a public speech culture that prizes responsiveness and the ability to read a room socially, not only logically. Pushing for quick decisions or imposing strict timelines is rarely effective. Take careful note of what is said and get important points in writing, as agreements may be expressed to preserve face rather than as firm commitments.
+
+After a meeting, write to thank your hosts and express your desire to meet again. If negotiations took place, politely outline what was agreed and your understanding of it, as this helps move verbal exchange into shared record.

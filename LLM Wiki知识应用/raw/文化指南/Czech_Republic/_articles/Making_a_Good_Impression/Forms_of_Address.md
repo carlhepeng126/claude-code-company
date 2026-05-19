@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+The everyday respectful form in Czech professional settings is *pan* (Mr.) or *paní* (Ms.) followed by the surname. This is polite neutral, the default between colleagues who don't know each other well and in most formal contexts. Moving straight to first names, especially in Czech, can feel premature or inappropriately casual, as though someone is importing an informality that hasn't been earned yet. Wait to be invited. If a colleague says "just call me Petr," that's your signal. Until then, stick with the surname.
+
+Academic and professional titles appear frequently on email signatures, business cards, and office doors. *Ing.* (engineer), *Mgr.* (master's degree holder), *JUDr.* (lawyer), and *PhDr.* (doctorate in humanities) are all common. These titles are respected, but people expect them to be worn quietly. Overemphasizing your own credentials or making a point of reciting someone else's full title string in conversation will likely cause discomfort. Acknowledge the title where it clearly counts, particularly in universities, law, or public institutions, but let your behaviour do the work of showing respect rather than the letters themselves.
+
+In English-language business, the shift to first names often happens more quickly, especially in younger or international companies. Even so, you'll notice variation. A Moravian production director may remain "Mr Novák" longer than a Prague startup founder would. In mixed groups, watch how Czechs address each other and mirror the most cautious form. That keeps you safely respectful without overthinking it.

@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Building a professional contact in Brunei Darussalam begins with respect for hierarchy and the use of established networks. The country's small, interconnected business community means reputation and relationships shape access. A personal introduction from a trusted mutual contact, especially someone senior or well-regarded, opens doors more effectively than a direct approach. This reflects a culture where individual credibility is tied to group belonging and where formal titles and family connections inform how seriously someone is taken. If you're reaching out without a referral, expect a slower response or a more cautious reception until your intentions and standing are clear.
+
+Appointments should be requested at least a week in advance, ideally through email or a formal letter that acknowledges the recipient's title and role. Confirming the meeting a day or two ahead is expected and appreciated. Brunei operates on a more measured timeline than many highly scheduled environments, and meetings may shift or be rescheduled without lengthy explanation. A colleague from a culture where time is tightly managed may read this as disorganization, when it reflects the priority given to senior obligations and relationships over rigid scheduling. In return, a Bruneian counterpart may view insistence on strict timing as impersonal or inflexible.
+
+Allow buffer time between appointments. Meetings often begin with conversation that establishes rapport before business is addressed, and rushing this phase undermines trust. Patience here is a practical necessity, not simply cultural courtesy.

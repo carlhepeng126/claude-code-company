@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In Iran, how you dress reflects how seriously you take the relationship and the occasion. Professional dress is shaped by both legal requirement and social expectation, and the line between the two varies by setting. Women must cover their hair with a headscarf and wear modest clothing that covers arms to the wrists and legs to the ankles. In practice, this usually means a long tunic or jacket (often called a manteau) over full-length trousers or a skirt, paired with a headscarf. Men are expected to wear long trousers and collared shirts in professional contexts, and shorts or sleeveless tops are generally avoided. The aim is polish without ostentation: pressed shirts, good shoes, a well-chosen scarf. Looking sloppy reads as disrespect; looking excessively flashy can read as nouveau riche or tone-deaf.
+
+Context shapes what is considered appropriate. A private office in north Tehran, a government ministry, a provincial refinery, and a religious charity will all have different red lines on color, fit, and visible jewelry. In formal or conservative settings, darker tones and full coverage are safer. In younger sectors or private spaces, there is more room for individual style, though the underlying expectation of modesty remains. Women visitors should start with neutral or darker tones and adjust only after observing local norms. Men should think smart business-casual at minimum, with a blazer for formal meetings.
+
+The best approach is to ask a trusted local partner, discreetly, whether your outfit is suitable for the specific setting before you arrive. Erring on the conservative side until you understand the environment will help you be taken seriously from the first meeting.

@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Venezuelan managers are expected to be decisive. Authority is respected when it comes with clear direction, and uncertainty from the person in charge creates discomfort. This expectation has roots in high power distance, but also in recent economic turbulence that has left many people looking for stability wherever they can find it. At the same time, personalismo means that loyalty runs to individuals, not structures. A manager who invests in the personal relationship will find commitment; one who relies only on position may not. This combination asks for leadership that is both firm and warm.
+
+The cultural trait known as viveza criolla, a kind of street-smart pragmatism, means Venezuelan employees are often excellent improvisers who find creative solutions when systems fail. But it also means that processes can be treated as flexible unless actively reinforced. Delegating well requires setting clear expectations and following up consistently. Roles need to be well defined so people know who is responsible for what. Many employees prefer being led to carrying full responsibility, especially when job security feels uncertain. Too much autonomy can feel like exposure rather than trust.
+
+Face is central. All correction must happen privately. Public criticism, even if mild, damages the relationship in ways that are hard to repair. A manager from a culture where direct feedback is given openly in meetings may see this as efficient; a Venezuelan colleague may see it as a failure of respect. Conversely, a Venezuelan manager giving indirect or overly gentle feedback may be read by someone expecting explicitness as unclear, when the intention is to preserve dignity. Sensitive conversations should always happen one-on-one, with warmth and care for how the message lands.

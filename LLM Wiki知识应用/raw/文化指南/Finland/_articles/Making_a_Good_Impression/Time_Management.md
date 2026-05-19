@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Punctuality in Finland means arriving ready to begin, not walking in at start time. If a meeting is scheduled for 10:00, people expect to sit down at 10:00. Trains, video calls, and school pickups all reinforce this precision, and it applies equally to social arrangements and formal appointments. Running late is read as carelessness, so if delay is unavoidable, send a short message before the scheduled time. The same standard applies to deadlines. Finns often work long hours to deliver on time without compromising quality, and missing a commitment creates real professional tension.
+
+This punctuality sits alongside a strong aversion to artificial urgency. The Finnish expression *ei tehdä tästä numeroa* (let's not make a big number out of this) reflects a cultural preference for calm over drama. People expect efficiency, but also a measured pace that respects the rhythm of the work. A colleague from a culture where quick decisions signal confidence may find the deliberate tempo frustrating. From a Finnish perspective, urgency that feels manufactured or performative risks undermining trust rather than building it.
+
+Seasonal rhythms shape energy and availability. During *kaamos* (the dark winter months), people tend to be more inward-focused and careful with social and professional load. Spring and early summer bring a surge in activity as projects push toward completion before the July shutdown. Many Finns take three to four weeks off in one block, often at a *mökki* (summer cottage) with limited connectivity. Planning a major decision, product launch, or workshop in July will be read as either naive or disrespectful of a core work-life norm. Think in seasons when mapping milestones, and show that you understand people will be off-grid during the main holiday block.

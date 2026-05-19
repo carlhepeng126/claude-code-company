@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leaders in Dominica tend to adopt a personal, relationship-centered style shaped by the island's small size and close social networks. In a society where most people know each other or share family connections, authority is rarely exercised through distance or formality alone. Instead, leaders build influence through approachability, direct conversation, and visible involvement in both professional and community life. This does not mean decisions are made collectively, but it does mean that effective leaders are expected to listen, stay visible, and demonstrate concern for people's circumstances before moving forward.
+
+Hierarchy is present but exercised with care. Leaders are respected when they combine clear direction with genuine consultation, particularly in government ministries, family-run businesses, and community organizations. A manager who makes decisions without first checking in with colleagues, even informally, risks being seen as detached or dismissive. This expectation is especially strong in rural areas and smaller workplaces, where relationships matter more than titles. In practice, this means that even when a decision has already been shaped, the process of inviting input and acknowledging people's views is not performative. It sustains trust and reinforces the leader's standing within the group.
+
+A colleague from a culture where decisions are made quickly and independently may read this consultation as inefficient or symbolic. From Dominica, that same directness may appear dismissive, as though people's perspectives do not matter. Understanding this difference means recognizing that in Dominica, the quality of the process and the care shown in reaching a decision hold as much meaning as the outcome itself.

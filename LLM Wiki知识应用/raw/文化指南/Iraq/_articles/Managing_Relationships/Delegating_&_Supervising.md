@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Iraqi management culture is directive by design, grounded in social structures where authority flows from the top and loyalty follows personal and communal ties before formal process. This reflects both tribal traditions that predate the modern state and decades of authoritarian governance. The manager is expected to lead with clarity and control. Employees follow their explicit brief and rarely act beyond it, not because they lack capability but because overstepping an assigned role would be culturally inappropriate. If a task has not been assigned, assume it will not be done. For managers used to cultures where initiative is expected without being asked, this can feel like disengagement. From an Iraqi perspective, a manager who does not give clear, specific direction may seem absent or uncertain.
+
+Personal relationships are the foundation of how work happens. *Wasta*, the principle of connection and trusted influence, determines what gets done more reliably than any formal hierarchy. Managers who invest in genuine personal relationships across their teams and networks will see far better results than those who rely solely on title or process. In Iraq, professional relationships are inseparable from personal ones, and trust built on human connection unlocks performance that structure alone cannot.
+
+Honour is non-negotiable. Public criticism causes lasting reputational damage, not just to the individual but to their family and standing within their community. All corrective feedback must be delivered privately and with care. Even in one-on-one settings, feedback should be framed relationally and respectfully. A manager who corrects someone in front of others will lose credibility with the entire team, not just the person criticized.

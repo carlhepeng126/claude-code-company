@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hospitality in the Republic of Congo is rooted in a communal Bantu worldview where the act of hosting extends beyond individual kindness. It reflects a shared responsibility to others and an expectation that reciprocity will follow in time. When you are invited into someone's office, home, or even offered a drink during a brief exchange, accepting graciously is the clearest way to honor that offer. Declining without a clear and valid reason can feel to the host like a rejection of their warmth rather than a simple preference. This is particularly true in professional settings, where small gestures of hospitality are often the first way trust begins to form.
+
+Remembering personal details from a prior conversation, such as a child's exam or a family event someone mentioned weeks earlier, is noticed and valued. In cultures where people move quickly between topics and tasks, this kind of recall may seem optional. In Congo, it signals that the person was worth holding in mind. That continuity of attention is how people confirm that a relationship is real and not merely transactional. Taking brief notes after meetings to capture these details, and raising them naturally the next time you meet, strengthens credibility in ways that technical competence alone does not.
+
+Reciprocity is not immediate, but it is expected. If someone hosts you, find a way to return the gesture when the opportunity arises, whether through a meal, a thoughtful gesture, or simply offering your time when it would help them. Colleagues from cultures where professional and social boundaries are more firmly drawn may underestimate how much this cycle of exchange underpins ongoing collaboration. In Congo, hospitality is not a one-time event but part of a longer rhythm of mutual regard, and failing to participate in that rhythm is both noticed and remembered.

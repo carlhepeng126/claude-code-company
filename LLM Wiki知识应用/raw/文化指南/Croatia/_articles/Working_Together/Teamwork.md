@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+In a country of under four million, Croatian teams often include colleagues with overlapping histories: the same gymnasium, university year, football club, or wartime brigade. These dense networks shape how people collaborate. Trust and information flow through existing ties, and alliances form along lines that may not appear on an organizational chart. A colleague from a culture where team roles and responsibilities are defined formally may find it hard to understand why certain decisions happen quickly while others stall, or why some people seem to hold influence that their job title does not reflect. From the Croatian side, working in a team where no one shares personal history can feel impersonal and harder to navigate, because the usual signals of who to trust and how to coordinate are missing.
+
+Regional and class differences add another layer. A team might include a Zagreb urbanite, a Dalmatian with strong island roots, a Slavonian whose village has emptied out, and a returnee from Germany. Each brings different expectations about pace, directness, and what security looks like. Tensions that seem personal may have a regional or class angle underneath. If you are leading a mixed team, frame decisions with these differences in mind rather than assuming everyone reads a situation the same way.
+
+Much of the real coordination happens outside formal meetings. The phrase "ajmo na kavu" (let's go for coffee) is how people synchronize, vent, and adjust plans. These impromptu coffee breaks are where micro-issues surface and where someone's absence is noticed. A colleague who never joins can start to feel distant to the group. If you want to catch problems early or understand what is really moving a team, show up for coffee and listen.

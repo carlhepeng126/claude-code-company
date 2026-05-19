@@ -1,0 +1,11 @@
+# Decision-Making
+
+## Working Together
+
+In Turkish organizations, the most senior person typically makes the final call, even when mid-level managers have led the technical work or day-to-day negotiations. This concentration of authority reflects a broader cultural expectation that experience and position come with decision-making responsibility. Family-run businesses and traditional sectors often hold this pattern most clearly, though it shows up across industries. For international partners, this means identifying early who influences the discussion and who actually approves. The two are not always the same person, and mistaking one for the other can stall progress.
+
+Decisions often unfold more slowly than formal timelines suggest. Turkish business culture places high value on alignment across stakeholders, relationship quality, and risk assessment, so a choice that looks straightforward on paper may require internal consultation, informal soundings, or a shift in competing priorities. Pushing for speed before these pieces are in place can feel transactional and undermine trust. Instead, ask what information is still being gathered or which dependencies are unresolved. This shows respect for the relational and hierarchical texture of the process.
+
+Direct refusals are rare. Maintaining harmony and avoiding confrontation means that hesitation, conditional language, or a suggestion to revisit the topic later often signal a polite no. If you hear phrases like "we'll circle back" or "let's see how things develop," treat them as meaningful signals rather than delaying tactics. Respond with a neutral tone and an open question, such as "What would help this work better for you?" This invites clarity without forcing a premature commitment.
+
+Once a decision is reached, confirm it in writing. Recap the key points, including roles, timelines, and next steps, to avoid misunderstandings in a context where verbal agreements may leave room for interpretation. For larger commitments, formal contracts are expected and act as the foundation for accountability.

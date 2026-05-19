@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Curaçao is shaped by the island's small size and tightly woven social fabric. With a population of around 150,000, many people know each other directly or through shared networks, and this closeness shows up in how teams function. Collaboration tends to build on personal relationships that often exist before work begins, and colleagues who share family ties, neighborhood connections, or school histories may form the informal core of a team. This relational foundation means trust develops through social interaction rather than formal roles alone. A manager from a culture where team roles are clearly defined and performance-driven may find it difficult to navigate these overlapping loyalties, while someone from Curaçao working in a more transactional setting may feel the absence of personal connection makes collaboration feel distant or mechanical.
+
+Hierarchy is respected but not rigid. Senior colleagues are expected to guide and mentor, and decisions flow through them, but the tone is often warm and inclusive rather than authoritative. Teams value input from across levels, and quieter members may contribute through side conversations or informal exchanges rather than in open meetings. This reflects a preference for maintaining group harmony and avoiding direct confrontation, especially in public settings.
+
+Feedback is handled with care. Praise is often shared collectively to preserve group cohesion, while criticism is delivered privately and framed gently to protect individual dignity. A colleague accustomed to direct, individual performance reviews may misread this discretion as avoidance, while a Curaçaoan team member may experience blunt feedback as unnecessarily harsh or disrespectful. Understanding this balance helps ensure that guidance lands constructively without damaging trust.

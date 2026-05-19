@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Bermudians generally use first names quickly in professional settings, but this informality develops within a framework of politeness and mutual acknowledgment. Titles like Mr., Ms., or Dr. are used at initial introductions, especially with senior figures or in more formal industries such as law and finance, but colleagues typically invite first-name use early on. The shift usually happens within the first exchange and is often signaled by the person themselves. This reflects a social style shaped by Bermuda's small population, where personal connections run across professional roles and formality can feel unnecessarily distant once basic respect has been established.
+
+In client-facing or inter-organizational meetings, especially with international partners, Bermudians often mirror the level of formality offered by the other party. If a visitor opens with titles and surnames, Bermudians are likely to follow suit until a more relaxed tone is set. Colleagues from cultures where formal address persists longer may read the early move to first names as overfamiliarity, while Bermudians may perceive continued use of titles as creating unnecessary hierarchy in what they see as a collegial relationship. Being attentive to how your counterpart introduces themselves and adjusting accordingly will avoid either misreading.
+
+Written communication tends to be slightly more formal than spoken interaction. Email greetings often begin with a polite opening and full name, even if the sender would use first names in person. This is especially true in initial correspondence or when addressing someone outside your immediate team.

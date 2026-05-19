@@ -1,0 +1,11 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+In Mongolia, trust is built through proximity and continuity, shaped by a strong relationship orientation and by the country's experience with economic partnerships. Business relationships need consistent face-to-face contact. Relying on email alone to maintain supplier or customer ties will weaken the connection. A physical presence, even through a local agent, keeps communication grounded in the relational foundation that sustains long-term agreements. This reflects a culture where group belonging and interdependence run deep, and where commercial decisions are inseparable from personal trust.
+
+That trust is also evaluated through a moral frame, especially in sectors tied to Mongolia's resource economy. Partnerships involving mineral exports can be assessed for fairness and transparency, not just commercial terms. Public debate around projects like Oyu Tolgoi reflects persistent concern about who benefits and how equitably. This means that relationship legitimacy depends partly on how a partnership is perceived in broader terms, and clarity about mutual benefit becomes part of the foundation.
+
+Institutional trust carries a more layered history. Authority and formal systems are associated with both competence and post-socialist memories of opacity or coercion. This makes consistency and transparency especially valuable. Where a partner from a setting with high institutional trust might assume good faith from formal procedures, a Mongolian counterpart may read consistency as the measure of reliability. In return, a partner used to formal assurance may need to adjust expectations around process visibility and the time it takes to establish confidence.
+
+Regional variation also shapes how relationships form. In western Mongolia, where Kazakh communities are the majority, language and local religious institutions influence social codes. Recognizing these distinctions, and building relationships through culturally literate local partners, reduces friction and strengthens legitimacy in plural settings.

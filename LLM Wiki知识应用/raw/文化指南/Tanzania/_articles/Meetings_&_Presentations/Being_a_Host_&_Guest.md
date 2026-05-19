@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hosting in Tanzania reflects not only personal generosity but family and community standing. A good host anticipates needs, creates comfort, and ensures guests feel recognized and at ease. The effort put into hospitality — whether through a carefully prepared meal at home or arranging a business lunch — is evaluated as a reflection of character. This sense of obligation runs deep, and most invitations, however modest the setting, will include a genuine effort to impress. Expect to be well fed. When you have had enough to eat, leave a little on your plate; otherwise your host will feel obliged to keep bringing more food.
+
+As a guest, attentiveness and restraint demonstrate respect for social order. Knowing when to accept, when to wait, and when to follow the host's lead are judged more closely than polish or familiarity with etiquette. When invited to a Tanzanian colleague's home, dress smartly and remove your shoes at the door if others have. Bring a gift — alcohol for non-Muslim households, cakes or sweets if not. In professional contexts, meals are rarely one-on-one; spouses may be included, and additional guests connected to the business relationship may turn up unannounced. If financial circumstances are unclear, offer upfront to cover the bill to avoid awkwardness.
+
+Subtle hierarchies shaped by age, status, or local authority often determine who speaks first, who is served first, and how transitions unfold. These cues are rarely explained but quietly observed. In Muslim-influenced contexts, hosting may be shaped by prayer times, modesty expectations, and food practices. Respecting these rhythms signals cultural awareness. Dismissiveness or impatience, even unintentional, is harder to overlook than small missteps in etiquette.

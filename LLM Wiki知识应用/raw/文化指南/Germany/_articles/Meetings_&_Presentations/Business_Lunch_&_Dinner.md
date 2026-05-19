@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+A business meal in Germany follows a structured rhythm. The traditional *Mittagspause* (lunch break) remains a distinct pause in the working day, not a moment to multitask or eat at your desk while checking email. Meals are treated as semi-formal occasions where phones stay out of sight and punctuality is expected. If you arrive late or scroll through messages during the meal, you risk signaling a lack of seriousness about the relationship. The host usually sets the tone, so wait for their cue before diving into work talk or settling the bill.
+
+Germany's strong beer and wine culture coexists with professional expectations of self-control. A glass or two with lunch or dinner is normal, but visible drunkenness is a clear misstep. The aim is enjoyment, not loosening up to build rapport. A manager who becomes tipsy undermines their credibility rather than appearing relaxed or approachable. If you come from a culture where business entertaining involves several rounds of drinks late into the evening, the German approach may feel restrained. From the other direction, a German colleague dining in a context where repeated toasts and refills are standard may find the pressure to drink more uncomfortable or unprofessional.
+
+Menus often reflect regional and seasonal pride. *Spargelzeit* (asparagus season) in spring, game in autumn, regional sausages and breads are all markers of place and time. Choosing a local specialty when offered is a small acknowledgment of that pride. Many companies, especially in eastern regions with roots in former GDR workplace culture, rely on canteens for everyday lunches. More formal business entertaining happens in restaurants. The person who extends the invitation typically pays, and they do so without fuss or public negotiation over the bill.

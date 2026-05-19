@@ -1,0 +1,11 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Business meetings in Comoros unfold gradually, shaped by a culture where relationships underpin all professional commitments. Arranging a meeting may involve several exchanges before a time is fixed, and confirmations often happen closer to the date than foreign counterparts might expect. This reflects the oral communication style that still dominates much of daily life across the islands. Proposing a meeting directly through a mutual contact or trusted intermediary lends your request credibility and increases the likelihood of a positive response.
+
+Meetings typically begin with extended greetings and personal conversation. This opening phase establishes trust and social connection before any business discussion begins. Skipping straight to the agenda can feel abrupt and may signal a purely transactional intent. Senior figures are expected to be present, as decisions flow from the top. If you arrive without the appropriate level of seniority at the table, your counterpart may wait to involve their own decision-maker, extending the timeline before any real progress occurs.
+
+The tone during a meeting tends to be polite and indirect. Disagreement is rarely voiced bluntly in front of the group, particularly when a senior person has spoken. Instead, concerns may be raised privately afterward or through a third party. A colleague from a culture where decisions emerge through open debate may mistake this restraint for agreement, only to discover later that reservations remain unresolved. From a Comorian perspective, the same colleague's directness may appear disrespectful or socially clumsy, particularly if it bypasses hierarchy or exposes disagreement publicly.
+
+Follow-up after a meeting requires consistent, personal contact. Written summaries alone are rarely sufficient. Expect to revisit points through phone calls or face-to-face conversations, reinforcing what was discussed and maintaining the relational thread that enables the work to move forward.

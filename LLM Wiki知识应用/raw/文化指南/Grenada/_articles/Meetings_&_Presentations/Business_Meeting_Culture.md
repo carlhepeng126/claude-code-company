@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Grenada typically open with several minutes of warm conversation before any agenda is touched. This is not simply courtesy. In a society built on interpersonal trust and long-term familiarity, a few minutes spent asking about family or commenting on recent events allows people to reconnect and assess the tone of the room. Moving straight to business without this can feel abrupt and leave Grenadian colleagues uncertain about the relational foundation of the discussion. For a colleague from a culture where meetings begin with the first agenda item, this opening may feel like a delay. From the Grenadian side, skipping it can suggest impatience or a transactional view of the relationship.
+
+Once the meeting begins, expect a conversational rather than rigidly structured approach. Discussions may circle back to earlier points or allow space for personal anecdotes that illustrate a broader concern. Decisions are rarely made on the spot, particularly if senior figures are present. Authority sits with those higher up, and consensus among the right people takes time to form. Pressing for immediate answers or framing follow-up as inefficiency misreads how agreement is built. If you need a decision by a specific date, state that clearly early on and be prepared to allow time for internal coordination.
+
+Formality in tone and dress is expected in first meetings, especially with government bodies or established private firms. As trust develops, the atmosphere may become warmer, but respect for hierarchy remains constant throughout.

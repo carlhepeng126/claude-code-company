@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Zambian teams draw on a long history of cross-group collaboration shaped by urban life on the Copperbelt, where mining brought people from different backgrounds into shared towns and workplaces. This built everyday skill at navigating difference, and many teams today still reflect that practice. The national motto, "One Zambia, One Nation," reflects an active aspiration: people work to maintain cohesion through language switching, restraint, and deliberate inclusion, especially in mixed settings. Unity is both a cultural value and a social task, which means teamwork can be judged by whether it strengthens or strains that cohesion. Deal with friction privately and early, and avoid singling out contributions in ways that create distance between individuals or groups.
+
+Problem-solving often follows a counsel-style approach rooted in insaka logic, where groups listen, deliberate steadily, and build shared understanding before moving to open contest or decision. Alignment tends to be relationally produced, and colleagues may prefer to contribute through side conversations or quiet consultation rather than formal debate. Invite input in multiple ways, and give space for people to align outside the meeting room without assuming silence means agreement or disengagement.
+
+Extended family and community obligations sit underneath what looks like availability. Someone may be present but constrained by commitments invisible to outsiders, which can affect who can take on what and when. Plan with realism around those constraints, and show reliability through follow-through and practical support, rather than verbal commitment alone. Teams work best when the environment feels inclusive and steady, where collaboration strengthens relationships rather than exposing individuals.

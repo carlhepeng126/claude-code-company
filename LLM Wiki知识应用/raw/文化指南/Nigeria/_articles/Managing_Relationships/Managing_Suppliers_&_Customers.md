@@ -1,0 +1,11 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Nigerian commerce builds on relationships with long memory. Customers and suppliers often rely on familiarity, word-of-mouth, and reputation accumulated over time. Many transactions sit inside longer social histories of who keeps their word, who is generous when challenges arise, and who disappears. This means consistency and follow-through shape your standing far beyond a single deal. A supplier who delivers reliably in difficult circumstances or a company that treats people well when things go wrong will be remembered and recommended.
+
+Trust often arrives through people rather than documents. Family names, business lineages, and community reputation function as credibility infrastructure. An introduction from a respected contact places you inside a chain of accountability where someone's standing is tied to the relationship. Working through referrals and credible connectors can open doors that cold outreach cannot. Where possible, invest in building relationships with intermediaries who can vouch for your reliability.
+
+Service is evaluated through social conduct as much as practical outcomes. Being greeted properly, being listened to, and being treated with dignity can determine whether trust grows. Tone, attention, and whether someone feels seen shape how quality is judged. For colleagues from cultures where efficiency and speed are primary service markers, this emphasis on relational warmth and acknowledgment may seem time-intensive. From a Nigerian perspective, a transaction handled quickly but impersonally may feel cold or dismissive, signaling low regard for the customer.
+
+Nigeria contains many customer cultures. Lagos high-status consumer worlds, Abuja's institution-linked networks, northern commercial centres shaped by long market and emirate histories, and smaller-town trading cultures each have different expectations of formality, speed, and relationship warmth. Regional variation matters. In many Muslim-majority contexts, halal assumptions and moral boundaries shape what is considered acceptable. In Christian contexts, church networks can influence recommendation pathways. Across both, faith communities often operate as powerful trust networks that affect product acceptance and supplier choice.

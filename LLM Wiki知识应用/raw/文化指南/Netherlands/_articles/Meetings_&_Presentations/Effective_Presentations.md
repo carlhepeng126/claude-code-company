@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Dutch audiences expect clarity and evidence. Presentations that rely on emotion, exaggeration, or vague claims risk losing credibility quickly. The preference reflects a broader cultural value for directness and intellectual honesty. People want to understand not just what you propose, but how you arrived at your conclusions. This means structuring your content logically, using data and concrete examples, and avoiding language that sounds promotional or imprecise. Storytelling is welcome, but it needs to be grounded and brief. A colleague from a culture where emotional appeal or inspirational framing builds trust may find Dutch audiences unexpectedly analytical, while Dutch professionals may view overly dramatic delivery as distracting or even manipulative.
+
+Design should be clean and functional. Visuals are expected, but they should support understanding rather than impress. Cluttered slides or decorative elements can suggest style over substance. Dutch professionals are comfortable with technology and will notice if materials lack polish, but polish here means clarity and professionalism, not visual flair. If you're presenting in English, avoid jargon and idioms. Where technical content is involved, consider providing handouts in Dutch, distributed after the presentation so they don't compete for attention during your talk.
+
+Plan for discussion. Dutch audiences engage actively and will ask direct questions, sometimes in ways that sound critical. This reflects genuine interest, and responding openly strengthens credibility. Being willing to admit uncertainty or acknowledge gaps in your argument builds trust rather than undermining it. Allow time for this exchange and treat it as a collaborative exploration, especially if your style leans toward defending your position once it's been presented.

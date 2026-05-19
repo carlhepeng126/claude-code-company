@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Spanish teams thrive on personal connection. Trust and collaboration grow through familiarity, shaped by cultural values rooted in family and community. This means that time spent getting to know colleagues as people, not just as job titles, is a necessary foundation for effective teamwork. Shared meals, informal conversations over coffee, or casual exchanges before a meeting begins are how this rapport builds. Without that relational base, even well-structured teams can feel distant or transactional to Spanish colleagues.
+
+Communication in Spanish teams tends to be open and expressive. Team members value the ability to speak their mind and expect others to do the same. Lively discussion and honest opinions are normal, and debate does not automatically signal conflict or breakdown. For a colleague from a culture where consensus is built quietly or disagreement is softened, this directness can feel confrontational. From the Spanish side, a team that avoids open discussion may seem disengaged or overly polite. What anchors this openness is respect and good humor. Teams that combine candor with warmth function well; teams that mistake bluntness for honesty, or mistake politeness for evasiveness, struggle.
+
+Regional variation in communication style exists. Some regions lean toward direct, robust debate. Others prefer measured dialogue and value harmony more visibly. Urban multicultural teams, increasingly common in cities like Madrid and Barcelona, require adaptive facilitation. Strong voices can dominate unless meetings are actively managed to include more reserved contributors. Inclusive facilitation helps balance participation without flattening the energy that makes Spanish teams creative and engaged.

@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+A warm introduction matters in Nigeria because credibility moves through people, not paperwork. In a society where overlapping identities — ethnic nation, state, religion, school cohort, hometown — shape who owes what to whom, being placed inside a social map helps trust form. An introduction from someone already known acts as a social guarantee. The introducer's name is at stake, which anchors you inside a chain of accountability. Embassy contacts, professional associations, or existing business partners can all serve as entry points. Without this kind of connector, you may find doors polite but progress slow.
+
+Faith communities and hometown associations also function as relationship infrastructure. Churches and mosques organize mentoring, welfare, and visibility, while hometown networks remain culturally active even in Lagos or Abuja. This means availability is often shaped by religious calendars and community obligations. Scheduling an appointment during a major church programme or a hometown group event may meet with delays or cancellations. When proposing meeting times, ask about these commitments early. Reconfirm a day or two before, ideally by phone or through a direct contact, since messages can go missing or be deprioritized in fast-moving urban environments.
+
+In cities like Lagos, people open quickly with warmth and banter, but they also test quickly. Consistency and follow-through build credibility faster than formal credentials. If you say you will call, call. If you confirm a time, show up. Urban Nigeria is high-churn, and people watch for whether someone is serious or just performing. A colleague from a culture where appointments run like clockwork may find this rhythm unsettling, while a Nigerian professional meeting someone who refuses any schedule flexibility may read that as rigidity or disrespect for context.

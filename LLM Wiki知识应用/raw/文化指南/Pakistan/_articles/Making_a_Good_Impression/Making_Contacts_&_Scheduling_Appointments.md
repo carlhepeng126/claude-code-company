@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Getting a meeting in Pakistan usually begins before you send the email. Being introduced through someone already known and trusted helps people place you socially and makes the invitation safer to accept. This reflects the biradari tradition, extended kinship networks that operate as systems of mutual aid and reputation. Your behaviour reflects on the person who introduced you, and their standing becomes your first layer of credibility. Cold outreach can work in large international firms or fast-moving sectors in Karachi, but across much of the country a warm introduction opens doors that formality alone cannot.
+
+Trust builds through being socially located, and that process starts with the first contact. Izzat, the sense of honor and dignity that extends beyond the individual to the family, shapes how people assess whether you treat them with respect. Rushing straight to the business request can feel abrupt or even unsafe. Start with greetings that acknowledge the person, not just the meeting. If you're invited for tea or drawn into conversation about family or mutual contacts, receive it as part of how trust forms, not a delay before the real discussion begins.
+
+Scheduling rhythms vary across the country. Karachi's corporate and port-city tempo moves faster than Lahore's dense family and cultural networks or Islamabad's credential-conscious bureaucratic circles. In smaller towns and rural settings, access often flows through local kin and community ties, and the timeline stretches further. Book meetings three or four weeks ahead where possible, reconfirm the day before, and avoid back-to-back scheduling. Meetings may start late, run longer than planned, or include unexpected participants. That fluidity reflects the relational priority, and adapting to it signals you understand how collaboration works here.

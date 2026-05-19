@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiations in Brunei move at a measured pace, shaped by the need to preserve harmony and avoid direct confrontation. Decisions are rarely made on the spot, even when the conversation appears to go smoothly. Your counterpart may need to consult with senior figures or family members whose approval holds considerable weight, even if they are not present in the room. Pressing for a quick answer or treating silence as agreement can create discomfort and slow things down further. Allow time between meetings for internal discussion, and be prepared to revisit points you thought were settled.
+
+Status and seniority shape who speaks and when. Junior team members may attend negotiations but will rarely voice opinions unless invited, particularly if senior colleagues are present. Directing questions to someone lower in the hierarchy, or bypassing the most senior person in the room, can come across as disrespectful. Address your opening remarks and key proposals to the most senior figure, even if you expect someone else to handle the technical detail.
+
+Bruneians tend to frame disagreement indirectly. A phrase like "we will need to think about this" or "this may be difficult" often means no, though it leaves room for the relationship to continue without awkwardness. A colleague from a culture where objections are stated clearly and early may hear these responses as openness to further discussion, while a Bruneian counterpart may assume the message has been understood and feel surprised when the same proposal returns unchanged. If you receive a polite but noncommittal reply, ask clarifying questions rather than assume consent.

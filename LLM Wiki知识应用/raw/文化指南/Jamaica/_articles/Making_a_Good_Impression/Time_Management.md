@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Jamaica, time unfolds through relationships as much as through the clock. Coordination begins with connection: a few minutes spent on greetings, catching up, or simply setting the tone helps smooth cooperation later. This relational opening is how trust and goodwill get renewed before work begins. A colleague from a culture where meetings start precisely at the scheduled time may read this as delay or inefficiency, while a Jamaican colleague may read an immediate plunge into business as cold or transactional. The warmth that comes before work is not separate from getting things done. It helps ensure that people are aligned and willing.
+
+Kingston's corporate environment runs on a different rhythm than parish life or tourism zones. In the capital, traffic realities and the influence of multinational firms mean punctuality is often expected and practiced, especially in export-oriented sectors. Outside Kingston, community rhythms tied to church, family events, and local commitments shape availability and timing differently. Tourism areas operate on their own seasonal clock, shaped by visitor flows and external schedules. What feels like standard timing in one setting may not hold in another, so confirm expectations clearly rather than assuming a single national norm applies everywhere.
+
+Jamaica's strong diaspora ties to the UK, US, and Canada add another layer. Many professionals manage family coordination, remittance logistics, and calls across time zones, which can quietly shape availability and priorities in ways not immediately visible to someone working only in-country. When scheduling matters, be specific about dates and times, and confirm close to the moment without sounding accusatory. Building in a small buffer for relational opening and allowing space for confirmation helps projects stay on track without friction.

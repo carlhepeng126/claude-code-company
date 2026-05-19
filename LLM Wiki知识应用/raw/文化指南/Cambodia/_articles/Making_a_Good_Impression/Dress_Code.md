@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In Cambodia's heat and humidity, clothing choices reflect a balance of comfort and modesty. Light natural fabrics work best, but covered shoulders and skirts or trousers that reach close to the knee remain the norm in professional settings. Sandals or slip-on shoes are practical for offices and visits where shoes may need to come off at the door. What looks casual in other climates can read as careless here. Lightweight long sleeves and conservative cuts show you understand the setting, even when the temperature rises.
+
+The formality you choose depends on where your work takes you. Ministries and formal government events call for long-sleeved shirts, ties for men, and tailored skirts or trousers for women. These choices communicate seriousness to officials who still associate formality with professionalism. NGO offices may allow more relaxed dress, but modesty still applies. In international private sector firms, smart casual is common, yet employees often dress up when meeting older colleagues or government counterparts. A colleague accustomed to informal dress codes may find themselves underdressed in a ministry meeting, while Cambodian colleagues may read that informality as a lack of regard for the occasion.
+
+Pagodas, village ceremonies, and funerals require muted colors, covered shoulders and knees, and no bold logos or bright prints. These are not optional adjustments. A visitor who ignores these norms will be noticed, and the lack of preparation reflects poorly on the relationship. If your schedule might include a ceremony or site visit, ask in advance and bring clothing that can move from an air-conditioned office to a dusty field or sacred space without giving offense.

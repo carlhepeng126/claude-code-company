@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Cambodian audiences respond best to presentations that offer concrete, practical content over abstract frameworks. Years of exposure to NGO and government trainings built around big theories that rarely reached implementation have created real fatigue with conceptual models. Leading with specific Cambodian cases, clear diagrams, and photographs helps ground the message in recognizable reality. When preparing materials, replace jargon-heavy text with visual storytelling that shows how an idea works in practice, ideally within a local context that your audience can verify from their own experience.
+
+Language and literacy levels often vary widely within the same room. You may be presenting to Khmer-medium educated officials, younger English-educated staff, and colleagues who are uneasy reading dense English text on slides. English-only presentations can quietly exclude participants who would otherwise contribute. Using bilingual slides or at least Khmer headings and summaries ensures that everyone can follow the thread. Speaking slowly, with natural pauses that leave room for internal translation or reflection, allows the content to settle rather than rush past.
+
+Public questions feel risky because asking something that sounds naive or exposes a gap in understanding threatens loss of face in front of colleagues. Participants may nod along during the session and save their real questions for the break or a follow-up conversation. Planning informal time after the presentation and explicitly inviting one-to-one questions will often surface what people actually didn't understand or disagree with, which is where the most useful feedback lives.

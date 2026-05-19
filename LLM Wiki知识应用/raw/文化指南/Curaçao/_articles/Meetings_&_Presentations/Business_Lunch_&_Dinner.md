@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals in Curaçao blend informality with intention. Lunch meetings are more common than dinners and often take place at restaurants serving local dishes like stobá (a slow-cooked stew), fresh seafood, or funchi (a polenta-like side made from cornmeal). The setting reflects a broader cultural preference for building rapport before business. Even when the meeting has a clear agenda, expect the opening portion to centre on lighter conversation. This isn't socialising for its sake. Establishing personal connection allows Curaçaoans to assess trustworthiness and compatibility, which directly shapes how openly they'll engage later.
+
+Pace tends to be relaxed. Meals stretch longer than they might in cultures where efficiency drives scheduling. A colleague from a setting where lunches are brisk and task-focused may read this as distraction or inefficiency. From the Curaçaoan perspective, rushing through a meal risks appearing transactional and may reduce the quality of the working relationship. If you need to propose next steps or timelines, wait until the conversation shifts naturally toward business topics rather than steering it there early.
+
+While Curaçao has a strong Dutch colonial history, its culinary and social rhythms draw more from Caribbean and Latin American traditions. Portions are often generous and sharing dishes is common. Offering tastes to others at the table is seen as warm and inclusive. Alcohol may be available but is not central to the meal. Coffee, often strong and served at the close, signals the conversation is winding down, though endings are rarely abrupt.

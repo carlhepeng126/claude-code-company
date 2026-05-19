@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Burundi succeed when they strengthen relationships alongside conveying information. Audiences listen for what your words reveal about your character and intent as much as the substance of your proposal. A presenter who appears rushed, dismissive of context, or focused purely on technical outcomes may lose credibility regardless of the quality of their content. Building trust comes first. Frame your message around shared goals and emphasize your commitment to collaboration rather than immediate results.
+
+Hard-sell approaches or direct persuasion often backfire. Burundian professionals may read pushiness as disrespectful or transactional, particularly when the relationship is still forming. Instead, establish your credibility through relevant examples, past experience, and by demonstrating that you understand the local context. A story that grounds your idea in a real situation will resonate more deeply than abstract data alone. If you skip the relational foundation and move straight to the ask, expect quiet disengagement rather than open objection.
+
+Pacing deserves careful attention. Allow pauses to settle naturally. Silence often reflects respect or thoughtful consideration, not confusion or disagreement. If you rush to fill every gap or interpret quiet as lack of interest, you may miss the signals that your message is being absorbed. Colleagues from cultures where quick verbal responses signal engagement may misread this reserve as disinterest, while Burundian listeners may find rapid-fire delivery overwhelming or dismissive of the need for reflection.
+
+Expect some fluidity during the session. People may step out briefly or join partway through. This reflects the reality of competing demands rather than indifference. Welcome latecomers warmly and be prepared to adjust your flow without signaling frustration. The most important feedback may come privately afterward, when colleagues feel able to speak more freely away from the group.

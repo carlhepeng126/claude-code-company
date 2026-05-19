@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Barbados, professional relationships grow through warmth and personal connection. The island's history of close community bonds and a cultural preference for working with people you know mean that business rarely begins with a cold email or a straight pitch. Professionals want to understand who you are before they commit time or resources. A personal introduction from someone already trusted opens doors far more reliably than formal outreach alone. If you're looking to meet someone, ask a mutual colleague to make the connection, or arrange an informal introduction over lunch. These moments allow people to assess character and intentions in a way that correspondence cannot.
+
+Scheduling is best done with advance notice and a flexible mindset. Book meetings at least a week ahead where possible, and confirm the day before. Expect conversations to run longer than the calendar suggests. A half-hour slot may stretch to an hour if the discussion turns productive or if relationship-building takes precedence over the agenda. Back-to-back appointments leave no room for this, and cutting a meeting short to keep a tight schedule can come across as transactional. A colleague from a culture where meetings begin and end on the minute may find this fluidity frustrating, while a Barbadian counterpart may read rigid timekeeping as a lack of genuine interest in the relationship.
+
+Regional and generational differences shape how contacts are made. Younger professionals, particularly those in multinational firms or tech sectors, are often comfortable connecting on LinkedIn or responding to well-crafted emails. In smaller towns and industries rooted in local networks, introductions still tend to happen face-to-face or through trusted intermediaries, and business waits until rapport has been established.

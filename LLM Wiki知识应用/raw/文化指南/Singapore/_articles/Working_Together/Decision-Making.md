@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Major decisions in Singapore move through formal committees and submissions. A single senior person may be personally supportive, but they will still need to prepare a paper, often following internal templates that outline cost-benefit analysis, risks, and alignment with broader strategy. Even when authority is concentrated, decisions that involve significant capital, partnerships, or policy changes require documentation and cross-functional review. Colleagues from environments where a manager's verbal approval translates quickly into action may find this procedural layer slow. From the Singaporean side, moving forward without proper documentation can feel careless, especially when the decision is politically visible or hard to reverse.
+
+This preference for formal process reflects a broader institutional culture shaped by decades of government-led development and the presence of thousands of multinationals, each bringing structured governance. It also reflects a pragmatic caution. Singapore favors pilots and sandboxes over all-in commitments. Regulatory sandboxes and test beds are embedded in the country's approach to innovation, and the same logic appears in corporate settings. Proposing a phased rollout with clear exit criteria will typically meet less resistance than asking for full commitment upfront.
+
+The threshold for scrutiny rises with irreversibility. A decision that can be tested, measured, and adjusted will move faster than one that locks the organization into a fixed path. If you are advocating for a significant change, prepare decision-ready materials that speak the language of your internal champion's approval process. Show consistency across multiple cycles rather than pressing for shortcuts, and frame your proposal in terms that allow for safe experimentation and visible learning.

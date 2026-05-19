@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Irish teams reflect a history of community-based cooperation rooted in rural patterns of shared labor. Neighbors once relied on each other for harvests and building work, creating expectations of mutual support and informal reciprocity that still shape workplace culture. Teams today value approachability, reliability, and the ability to work things out informally together. This means that trust builds through showing up, being willing to help, and demonstrating you can be counted on when needed. New members who wait for formal onboarding or rigid role clarification may seem distant. Teams expect you to join conversations, offer assistance without being asked, and participate in the social rhythm of the group.
+
+Humor levels status differences and builds cohesion. Overt self-importance is deflated quickly with jokes, and leaders who take themselves too seriously lose credibility. A colleague from a culture where seniority is reinforced through formality may find this casual tone confusing or even disrespectful. From the Irish side, a team member who maintains visible distance or declines informal exchanges may seem unapproachable or unwilling to collaborate. Allowing humor and humanity while keeping focus on outcomes strengthens team performance. Many teams include people who have lived abroad and bring varied collaboration styles, so flexibility in how you communicate helps navigate this internal range.
+
+People often understate their own capability, a habit tied to the cultural discomfort with self-promotion. Encouragement can help surface hidden strengths that might otherwise stay unvoiced. Clear agreements on roles and communication routines balance informality with accountability, especially in teams where outcomes depend on follow-through across loosely defined responsibilities.

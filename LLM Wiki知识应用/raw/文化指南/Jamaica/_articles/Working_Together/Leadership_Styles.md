@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership credibility in Jamaica is built on how people are treated, not just what is achieved. In tight social networks where reputation travels quickly, a leader's behavior under pressure becomes the story people tell about them. Consistency, listening, and avoiding public humiliation build trust. Arrogance or using power to diminish others can break loyalty fast, regardless of formal authority or performance metrics. This means follow-through is especially visible. Promises made and not kept circulate through community memory, and that social narrative can shape a leader's influence as much as any organizational chart.
+
+Directness is widely accepted, but the line is drawn at disrespect. Many Jamaicans value straight talk and firm decisions, as long as dignity is maintained. A leader can be clear and decisive without being seen as harsh, but "talk-down" behavior or public belittling crosses into territory that damages relationships quickly. Workers expect to be able to bring questions and suggestions forward, even within hierarchical structures. This combination means leaders are expected to be strong and grounded, not remote or condescending.
+
+Jamaica's strong diaspora ties to the UK, US, and Canada mean many teams include people shaped by transnational ideas about fairness, professionalism, and leadership style. Leaders often navigate blended expectations, where local respect codes meet globalized norms. A colleague from a culture where leaders are expected to remain more distant may read Jamaican openness to questions as informality, while a Jamaican team member may interpret that same distance as aloofness or lack of care. Recognizing this range and adjusting tone without losing consistency helps bridge the gap.

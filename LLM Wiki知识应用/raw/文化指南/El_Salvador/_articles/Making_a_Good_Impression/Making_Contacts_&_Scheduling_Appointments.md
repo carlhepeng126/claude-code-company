@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Personal relationships open doors in El Salvador, and trust develops through consistent, visible presence rather than email exchanges or phone calls. The country's civil war left a lasting preference for knowing who you're dealing with before business gets serious. A mutual contact who can vouch for you makes introductions smoother and faster. Without that personal bridge, expect the first meeting to focus more on getting a sense of each other than on moving through an agenda. Shared meals, informal conversations about family or local football, and repeat visits all build the foundation that makes collaboration possible.
+
+Generational differences show up clearly in how contacts are made. Younger professionals in San Salvador, particularly those working with international firms or tech companies, often move quickly to business topics and respond well to digital communication. In smaller cities like Santa Ana or San Miguel, and among more senior professionals, introductions still happen through trusted intermediaries and the pace is more cautious. This isn't reluctance, it's calibration.
+
+When scheduling appointments, give at least a week's notice and confirm the day before by phone or WhatsApp. Messages work for coordination, but a call shows seriousness. Leave buffer time between meetings. Discussions can run long, and arriving rushed or cutting a conversation short to move on to the next appointment reads as dismissive. Flexibility here demonstrates respect for the relationship, which in turn affects whether future meetings happen at all.

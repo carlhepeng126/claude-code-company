@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Many Croats bring a quiet professional pride to their work, alongside a real sensitivity to being made to look foolish. Sarcastic or mocking feedback cuts deep, even when delivered as banter. What might pass as everyday workplace humor in cultures where irony is expected can feel humiliating in Croatia. Frame negative feedback calmly and privately, using specific examples and focusing on behavior and impact rather than personal judgments. This keeps the conversation concrete and avoids undermining someone's standing.
+
+Generational differences shape how feedback is received. Older staff, especially those formed in socialist workplaces, may be used to top-down criticism and little acknowledgment of what they do well. Younger professionals expect more coaching-style exchanges and are quicker to leave if they feel stuck or disrespected. Across both groups, genuine praise for specific contributions has more weight than many managers realize. Older colleagues may not expect it, but it registers when it comes. Younger staff may expect it more regularly, but it still needs to feel earned and real.
+
+Teams in Croatia often mask direct feedback in general complaints about management or processes, a habit known locally as *kukanje* (habitual grumbling). Instead of saying "Your approach doesn't work for us," people complain about conditions in the abstract. There's real content hiding in the fog. When you hear chronic complaining, don't just push for positivity. Ask what exactly isn't working and what a better version would look like, then act on what you can. That shift from venting to specifics often unlocks the actual concern.

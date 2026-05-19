@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Trust in Thailand builds through how you handle imperfection, not just whether you meet targets. When a delivery is late or a product falls short, your counterpart will notice whether you respond with blame or with calm, face-saving problem-solving. A respectful tone and a willingness to repair quietly often determine whether the relationship continues smoothly or becomes defensive and uncooperative. Managers from cultures where directness and accountability are emphasized in public may see this as slow or evasive, while Thai counterparts may read such directness as unnecessarily harsh and relationship-damaging. What looks like inefficiency to one side often feels like relationship maintenance to the other.
+
+Access to responsiveness often depends on relationship pathways, not just formal channels. Speaking to the right person, or being introduced through someone trusted, can make the difference between a quick reply and a stalled conversation. Hierarchy and networks shape how information flows, so building connections with key figures or connectors early improves follow-through later. Forms and official routes matter less than who you know and how you were brought into the conversation.
+
+When problems arise, escalate privately and avoid public blame. Shaming a supplier or customer in front of others can trigger avoidance or defensive compliance that undermines cooperation. Instead, raise issues calmly in one-on-one settings, offer the other side room to correct without embarrassment, and frame solutions in ways that preserve dignity. Firmness is possible, but it works best when delivered without threats and with options that allow the other party to respond without losing face.

@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals in Pakistan reflect both hierarchy and warmth. Seating arrangements, who is served first, and who leads the conversation often mirror rank and seniority, but these same occasions are also where humour, storytelling, and closeness build. The table is understood as a relationship space first. If a colleague from a culture where meetings are kept tightly focused on outcomes tries to push for explicit decisions over dinner, they may find the conversation deflects. From a Pakistani perspective, that pressure can feel disrespectful, as though the relationship itself is being bypassed. Follow the host's lead on where to sit and when to begin eating, and let conversation develop at its own pace.
+
+Food itself functions as identity. Regional dishes are often offered as a form of belonging, a way for people to share where they are from without stating it directly. Showing curiosity and appreciation for what is served can deepen rapport quickly. Most business meals assume halal food, and alcohol availability varies widely depending on the setting and community. During Ramadan, the daily rhythm of eating and socializing shifts entirely, and business meals are typically scheduled after sunset.
+
+Discretion remains active even at the table. Meals are rarely the place to force hard commitments or create public disagreement. If you need a firm answer, the meal may help you understand where things stand, but it is unlikely to be the moment someone says yes or no outright. Use the time to explore softly and build trust, not to corner people into decisions they are not yet ready to confirm publicly.

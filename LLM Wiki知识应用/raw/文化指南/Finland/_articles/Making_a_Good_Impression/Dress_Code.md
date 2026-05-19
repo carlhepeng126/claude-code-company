@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Finnish workplace dress follows a simple rule: look clean, neat, and prepared for the weather, but don't draw attention. The climate shapes this more than you might expect. A good coat and practical shoes count for more than polished accessories because much of professional life happens between the tram stop and the office, across icy pavements and through slush. Showing up soaked or shivering because you prioritized style over function reads as poor judgment. People notice how you handle the everyday realities of getting around, and dressing for that reality is part of being taken seriously.
+
+Formality depends heavily on sector. In finance, law, and government ministries, you'll see simple suits and smart business wear. In tech, gaming, and creative industries, hoodies and jeans are normal, though often high-quality. Overdressing in those spaces can create unnecessary distance. What stays consistent across sectors is the preference for understated clothing. Visible luxury logos or flashy accessories clash with Finnish modesty and equality ideals. A well-cut but unbranded jacket fits the cultural script of competence without showiness. When choosing what to wear for a first meeting, aim for smart and quietly practical rather than eye-catching, and tune formality one notch below what you'd wear in London or Paris for the same industry.
+
+Women often bring two sets of footwear in winter, changing from outdoor boots to business shoes once inside. Men sometimes wear galoshes over their indoor shoes to navigate wet or icy streets, then remove them in the building. These aren't quirks; they're practical responses to a climate that demands preparation.

@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teams in Guinea rarely function on task delivery alone. Colleagues build group cohesion through mutual aid during crises: hospital bills, funeral costs, school fees, encounters with police. A teammate who performs well but never shows up when someone needs financial or emotional support will be seen as unreliable, even selfish. This reflects a deeply collective society where trust is built through care, and where kinship language extends well beyond blood relatives. Two people from neighbouring villages may call each other brother or sister, signalling not sentiment but expectation: mutual assistance and defence whenever needed.
+
+The workplace is also a regional mosaic. Teams often bring together Fulani from Fouta, Malinké from Upper Guinea, Susu from the coast, and staff from the Forest region. Historic narratives about which groups dominate, which are marginalised, and who never gets promoted sit quietly under everyday interactions. A manager from a culture where team composition is treated as neutral may not notice these fault lines. A Guinean colleague, meanwhile, will read any pattern in hiring, promotion, or meeting visibility as confirmation of whether fairness or favoritism is at work. Pay attention to who speaks, who is seen, and whether opportunity clusters around one ethnic or regional group.
+
+In a young workforce, a handful of older drivers, guards, or admin staff often hold informal authority. They advise younger colleagues, smooth dealings with police or local officials, and enforce unwritten codes of conduct. Ignoring them because their job titles seem junior can weaken both communication and buy-in. Involve them early when decisions affect the team, and recognize that their counsel often reaches further than a formal org chart suggests.

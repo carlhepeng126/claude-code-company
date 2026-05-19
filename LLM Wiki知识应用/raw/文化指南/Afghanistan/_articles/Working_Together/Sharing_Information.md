@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information sharing in Afghanistan happens primarily through established personal networks, particularly between family members and those connected by shared tribal, ethnic, or regional ties. These trusted circles form the foundation of professional life, and colleagues outside them may find themselves working alongside information flows rather than fully within them. The roots lie in decades of conflict and instability, during which survival often depended on knowing who could be relied upon completely. That wariness has shaped how knowledge moves within organizations.
+
+Within Afghan workplaces, information often stays within departments or individual teams rather than circulating widely across the organization. This reflects both the strength of personal networks and a preference for avoiding exposure of mistakes or weaknesses, which can threaten honor and standing. Sharing beyond one's immediate circle risks misunderstanding, misuse, or judgment. A colleague from a culture where transparency and wide information distribution are standard practice may read this as withholding or inefficiency, while an Afghan colleague may see such broad sharing as reckless or naive, especially when relationships are still new.
+
+Building access to information requires demonstrating reliability and discretion over time. Keeping confidences, following through on commitments, and showing respect for the person and their network all contribute. Once trust is earned, information flows more openly, and the relationship deepens. Having a well-connected local contact who can vouch for you speeds this process considerably, as personal recommendations open doors that formal credentials alone cannot.

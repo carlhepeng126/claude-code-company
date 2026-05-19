@@ -1,0 +1,11 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Slovak hospitality is expressed primarily through doing rather than through extended verbal reassurance. Care shows up in the form of concrete offerings: food placed in front of you, logistics handled quietly, comfort attended to without needing to be asked. A host who refills your glass without prompting or ensures transport is arranged demonstrates attentiveness more clearly than one who asks repeatedly if you need anything. As a guest, the most appropriate response is straightforward gratitude and participation. Accept what is offered without excessive refusal, and avoid over-performing politeness through elaborate praise.
+
+The home remains a private space, generally reserved for family and close friends. Business visitors are more likely to be hosted in a restaurant or wine bar. When invited to someone's home, remove your shoes at the door, arrive on time, and dress well. These gestures show respect for the host's effort. Toasting follows a clear rhythm: make eye contact, clink glasses without crossing the path of others, and wait for the host to begin. Finishing what is on your plate acknowledges the care that went into preparing it, so accept second helpings only if you can finish them.
+
+Slovak social bonds are often maintained through small, calendar-based acknowledgements. Name days, known as *meniny* (each name tied to a specific date in the calendar), are marked with gestures or greetings even in professional settings. Noticing these occasions signals genuine attentiveness, not formality. Similarly, public holidays with spiritual or civic significance shape the social tone at certain times of year. As a host, practical care and clear logistics often communicate respect more effectively than elaborate welcome speeches.
+
+Regional identities within Slovakia are real and sometimes sensitive. Avoid treating the country as culturally uniform or making assumptions about language or background. Let people define their own identity, and keep curiosity gentle rather than spotlighting difference.

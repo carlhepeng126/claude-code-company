@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+French Guiana's professional culture reflects its status as a French overseas territory, where European administrative norms meet Caribbean and South American influences. Business etiquette follows French conventions in most formal settings: punctuality is valued in meetings, though start times can flex slightly, and dress tends toward smart casual in offices, with more formal attire reserved for senior-level meetings or interactions with metropolitan French counterparts. The pace of relationship-building is generally slower than in North America or Northern Europe. Colleagues expect some personal exchange before diving into business matters, though this rarely reaches the extended warmth common in neighbouring Brazil or Suriname.
+
+Formality in address shifts with context and generation. Titles and surnames are the norm when meeting someone new or when interacting with senior figures, particularly in government or established institutions. Younger professionals and those in creative or tech sectors may move to first names more quickly, but it's safer to wait for the other person to suggest it. French is the dominant language in business, and using it, even at a basic level, builds rapport. English is understood in some circles, especially among younger professionals or those with international exposure, but assuming fluency can create awkwardness.
+
+Gift-giving in professional settings is uncommon and may feel out of place unless a relationship has deepened over time. If invited to someone's home, a small token like wine, pastries, or flowers is appropriate and appreciated. Handshakes are standard in business greetings, brief and direct. Physical closeness during conversation is minimal compared to metropolitan France, and personal space tends to be respected. Business cards are exchanged without ceremony, usually at the start or end of a meeting, and carrying them is practical.

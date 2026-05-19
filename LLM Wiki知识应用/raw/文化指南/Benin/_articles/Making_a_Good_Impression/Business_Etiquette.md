@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+In Benin, business etiquette begins with greetings that establish tone and intention. These exchanges are rarely rushed. A handshake is standard, often prolonged, and may be followed by inquiries about health, family, or recent events. The purpose is relational, rooted in the importance of building trust before moving to business matters. French is the language of formal professional settings, though some colleagues may shift into Fon, Yoruba, or other local languages when speaking among themselves. If you're meeting someone for the first time, take your cues from how they greet you. In more traditional or rural business contexts, seniority and age guide who speaks first and how decisions unfold.
+
+Dress reflects respect for the setting and the people in it. Men typically wear suits or tailored clothing in formal business environments, while women favor conservative, professional attire. In government offices or meetings with senior figures, formal dress is expected. Younger professionals in tech or creative sectors may dress more casually, but this varies by company culture. When in doubt, err on the side of formality, especially in initial meetings.
+
+Gift-giving in professional settings should be approached carefully. A small, thoughtful gift at the close of a successful negotiation or after a visit can strengthen goodwill, but avoid anything lavish or given too early, as it may raise questions about motive. In social settings, such as an invitation to someone's home, bringing something modest like fruit, sweets, or a token from your own country is appreciated and signals courtesy.

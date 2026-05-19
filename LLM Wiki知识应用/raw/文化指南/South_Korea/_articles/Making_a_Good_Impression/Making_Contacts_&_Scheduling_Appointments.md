@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In South Korea, access is managed through networks. Centuries of Confucian-influenced bureaucracy established patterns where school ties, regional origin, and family background determined trust and opportunity. These lineages still shape how business relationships form today. Alumni associations from universities like Seoul National, Yonsei, or Korea University remain powerful channels for introductions, as do regional hometown clubs known as *hyangwoohoe* (associations connecting people from the same province or city). Church communities and industry groups also create pathways. A warm introduction through one of these networks signals reliability and reduces the risk of engaging with a stranger. If you share a mutual contact, ask them to make the introduction rather than reaching out cold.
+
+Respectful cold outreach can still succeed if the context is clear and the approach is professional. State your purpose directly, explain how you found the person, and provide enough background for them to assess whether the meeting has value. In urban sectors, especially around Seoul, younger professionals are highly connected via messaging apps and expect fast replies. A slow or vague response often suggests low interest, so confirm meetings promptly and respond to questions without delay.
+
+Schedule appointments at least a week or two in advance, and reconfirm the day before. Avoid periods around Lunar New Year and Chuseok (the autumn harvest festival), when family obligations and travel dominate. Church commitments on Sundays and weekday evenings may also affect availability. Initial meetings typically include polite small talk before business discussion begins. This establishes mutual respect and sets the tone for the relationship, so allow time for it rather than pushing straight to the agenda.

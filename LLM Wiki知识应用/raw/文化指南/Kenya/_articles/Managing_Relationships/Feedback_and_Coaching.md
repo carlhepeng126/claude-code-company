@@ -1,0 +1,11 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Kenya draws on longstanding cultural traditions where guidance happened gently, often through story and symbolic teaching rather than direct correction. Traditional age-set systems embedded mentoring as an intergenerational responsibility, with elders shaping the character and skills of younger cohorts through parables, proverbs and subtle redirection. Christianity and Islam reinforced these approaches, emphasizing humility, patience and encouragement. The result is a workplace culture where coaching feels most effective when it builds on relationship, preserves dignity, and frames development as support rather than fault-finding.
+
+Public embarrassment carries real social weight, so corrective feedback is best given privately and respectfully. A manager who points out a mistake in front of the team risks damaging trust and making the person defensive. Private conversations, framed warmly and with attention to the person's overall contribution, allow space for reflection without loss of face. Using metaphors or drawing on shared experience can soften the message while still making the point clear.
+
+Kenya's regional diversity shapes how feedback is received. Bantu groups often place strong emphasis on harmony and face-saving, meaning indirectness and relational warmth go further than blunt critique. Nilotic groups may be more comfortable with open debate and direct exchange. Cushitic communities often favor structured dialogue or negotiation-style conversation. Assuming one approach works across the board overlooks real differences in how people process guidance.
+
+Trust creates the foundation that makes developmental feedback acceptable. A manager from a culture where performance conversations happen quickly and formally may find that feedback in Kenya requires more relational groundwork. From the Kenyan side, a colleague who jumps straight to critique without building rapport first may come across as impersonal or dismissive, even if the content is fair.

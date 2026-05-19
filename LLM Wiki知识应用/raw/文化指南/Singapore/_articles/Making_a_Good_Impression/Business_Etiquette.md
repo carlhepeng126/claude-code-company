@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Singapore workplaces run on a "no nonsense, no drama" norm that shapes how people present themselves at work. The ideal colleague is calm, competent, and consistent—what locals call "steady lah." Visible emotional intensity, loud complaints, or over-talking in meetings can be read as instability rather than passion. This preference for composure has roots in decades of state-led campaigns promoting courtesy, graciousness, and rules-respecting behavior. The result is a professional culture that values low-ego presence and controlled expression. If you tend to perform enthusiasm or frustration openly, dial it back. Bring your ideas clearly but without drama, and you'll find people respond more openly.
+
+The famous kiasu (fear of losing out) and kiasi (risk-averse) mindset shows up daily in workplace behavior. Colleagues may triple-check instructions, ask for written confirmation, or over-prepare before committing to a decision. This isn't bureaucratic excess—it reflects a cultural aversion to being caught unprepared or taking unproven risks. Rather than dismissing this as excessive caution, lean into it by providing clear documentation, answering clarifying questions patiently, and confirming next steps in writing. When you work with the grain of this mindset, collaboration becomes smoother.
+
+Singapore's multiracial, multireligious makeup makes people acutely careful about what they say in mixed company. Remarks touching on race, religion, or politics can backfire quickly, so most professionals stick to safe small talk: food, housing, traffic, kids' schools, travel. This isn't shyness—it's a conscious choice to avoid tension in a society where ethnic and religious harmony is legally and socially enforced. Build rapport around hawker centers, weekend plans, or neighborhoods, not hot-button topics or edgy humor.
+
+How you treat people lower in the hierarchy gets noticed. Singaporeans watch how you behave with receptionists, security guards, hawker stall staff, and junior colleagues. Visible respect across all levels signals integrity. Rudeness to service staff or dismissiveness toward "small people" will damage your reputation faster than almost anything else, because it violates the courtesy norm that underpins professional life here.

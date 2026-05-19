@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+A meeting begins in earnest when the tea tray appears. Tea, sugar cubes, nuts and fruit signal the start of the real conversation, and everyone is offered at least twice. Launching into slides while people are still settling undercuts the relational rhythm that shapes trust in Iran. This opening phase is not filler; it builds the human connection that makes substantive discussion possible. 
+
+Hierarchy shapes the room, but not always in the way it appears. A senior manager or director usually frames the meeting and sets the tone, yet the real technical knowledge often sits with mid-level engineers or specialists who speak briefly and without fanfare. Decisions stall when you address only the person at the head of the table and overlook the trusted expert whose opinion will ultimately carry the recommendation forward. Direct some questions deliberately to those holding the detail, not only to the most senior figure.
+
+You will often hear polite exchanges in English, followed by a quick burst of Persian among participants, then a gentle summary offered back to you. The nuance lives in that Persian aside: skepticism, enthusiasm, internal tension. After such exchanges, quietly ask a trusted colleague what was really being said to avoid misreading the politeness. In some organizations, a person who says little may represent security organs or politically sensitive stakeholders. Others adjust their comments because they assume such ears are present. Keep the focus on shared technical or commercial goals that are safe for everyone to discuss.

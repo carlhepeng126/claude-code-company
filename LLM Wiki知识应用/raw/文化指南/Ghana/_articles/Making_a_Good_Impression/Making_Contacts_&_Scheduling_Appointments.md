@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Ghana, strong professional contacts often begin through trusted social channels. A warm introduction from a pastor, church elder, chief, queenmother, or old school network can open ministry and corporate doors much faster than a cold approach. Schools like Achimota, PRESEC, and Wesley Girls' anchor powerful alumni networks, and being vouched for by a respected "Daddy" or "Madam" gives you credibility before you've said a word about your business. These connections reflect Ghana's deeply relational professional culture, where people want to know who stands behind you before deciding whether to invest time in you.
+
+Email alone rarely moves things forward. Many professionals confirm appointments by phone call or WhatsApp, often after a formal letter has been sent. An unanswered email may mean "call me," so follow up by phone and send a courteous WhatsApp message. Physical presence also still matters. In Accra and Kumasi, people show up at offices, sit in reception, and wait to see the decision-maker. The secretary or personal assistant in that reception area is a powerful gatekeeper, so greet them properly and treat them with visible respect. How you engage with them shapes whether your meeting happens at all.
+
+For sectors like tourism, creative industries, and NGOs, diaspora Ghanaians and "Year of Return" returnees now form a connected layer across Accra, London, and New York. Building relationships within that circuit can unlock local contacts quickly, as these individuals bridge networks on both sides of the Atlantic.

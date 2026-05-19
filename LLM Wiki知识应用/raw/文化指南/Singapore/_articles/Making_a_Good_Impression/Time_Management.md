@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Calendars in Singapore are sliced into tight blocks, often 30 to 45 minutes, and fill quickly. People will find room for you if the meeting feels worthwhile, but they expect you to respect the slot and not overrun without asking. If you need more time, check before the end: "Can we take five more minutes?" acknowledges that your colleague likely has another commitment queued up immediately after. This structure reflects a work culture built on efficiency and density, where long hours are common and every part of the day is accounted for.
+
+Punctuality is taken seriously. Many professionals aim to arrive five to ten minutes early, and lateness is read as poor self-management. Public transport runs on tight schedules, so citing traffic as an excuse rarely holds unless there is a known disruption. If you are running late, send a message with a new arrival time rather than drifting in with an apology. Chronic lateness quietly erodes credibility, even if no one says so directly.
+
+Much of this rigidity is tied to caregiving. A significant portion of the workforce is managing children's tuition and co-curricular activities, elderly parents' medical appointments, and their own long working hours. The precision around time is not just cultural preference but logistical necessity. When scheduling longer sessions or workshops, be mindful of major exam periods like PSLE, O-levels, and A-levels, and key festivals such as Chinese New Year, Hari Raya, and Deepavali. Colleagues are often stretched thin during these windows, and flexibility is harder to find.

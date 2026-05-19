@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Timing in Paraguay responds to more than the clock. River levels affect cargo schedules, agrarian cycles shape regional availability, and heat makes a steady tempo a practical matter. Planning that assumes tight sequencing can run into structural realities that feel invisible from outside: a delayed shipment waiting on the Paraguay River, a regional contact less reachable during harvest, or an afternoon meeting that loses focus as the temperature climbs. These are not exceptions to the system but part of how the system works.
+
+Family obligations also anchor daily rhythm. School runs, mid-day meals at home, and the expectation that parents will be available when needed mean that flexibility is built into many workplaces. Meetings often begin fifteen to thirty minutes after the scheduled time, reflecting both the weight of prior commitments and the acknowledgment that people arrive when they can. A manager from a culture where punctuality is tied to professional credibility might read this as disorganization. A Paraguayan colleague might read rigid adherence to start times as indifference to what people are managing outside the office. Neither is refusing the other's logic, but they are prioritizing different forms of reliability.
+
+Tempo also varies across the country. Asunción operates on institutional schedules, but smaller towns and the eastern border region follow rhythms shaped by commerce, kinship networks, and seasonal work. What counts as an interruption differs depending on where you are. If you need a decision or a response by a fixed date, state that clearly and early, and account for the structural and social factors that shape when things can move.

@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Israeli food culture is rich and diverse, drawing on Middle Eastern, North African, and Eastern European traditions. Hummus, shakshuka, grilled meats, fresh salads, and an array of locally grown fruits and vegetables are all sources of genuine national pride. Showing interest in the food goes beyond politeness. It opens a connection point that Israelis recognize as cultural openness, and it sets a tone of genuine engagement rather than transactional courtesy.
+
+The line between personal and professional dissolves quickly over food. Israelis will share opinions, tell personal stories, and argue about politics at the table. This is how connection happens, and treating it as oversharing misses the point. A meal with Israeli colleagues is likely to be lively, opinionated, and personal. Leaning into that energy, rather than trying to keep things formal or neutral, builds warmth faster than any structured agenda. For a colleague from a culture where business meals follow a more reserved script, this can feel jarring. From the Israeli side, colleagues who remain guarded or steer every topic back to the project may come across as distant or disengaged.
+
+The Jewish calendar shapes dining in practical ways. Shabbat begins Friday evening, so scheduling a business dinner on a Friday night will exclude observant colleagues. Passover brings specific food restrictions, and Yom Kippur is a fast day. Scheduling meals with awareness of these dates shows respect, not just for religious practice but for the rhythm of daily life. Many restaurants are kosher, including non-Israeli cuisine, so confirming dietary preferences in advance avoids awkward moments and shows you've done your homework.

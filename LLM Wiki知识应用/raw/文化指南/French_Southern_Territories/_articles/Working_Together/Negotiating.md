@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+The French Southern Territories host no permanent civilian population and no commercial negotiations in the conventional sense. The islands support rotating scientific research stations managed by French polar institutes, where collaboration is governed by research protocols, international treaty obligations, and logistical necessity rather than market-driven bargaining. Decisions about resource allocation, project priorities, and station logistics are made within institutional hierarchies in mainland France, often months in advance of deployment.
+
+What happens on the ground reflects the realities of extreme isolation. When a supply ship is delayed or equipment fails, researchers and support staff work through problems together because there is no alternative. Flexibility becomes operational, not tactical. Adjustments are made quickly and pragmatically, often in consultation with station leaders via satellite link to metropolitan administrators. The absence of external leverage means that the usual tools of negotiation, such as competitive offers or strategic delay, have no place. Decisions are shaped instead by shared constraints: weather windows, limited cargo capacity, and the need to maintain scientific continuity across rotations.
+
+For international researchers joining French-led missions, understanding this context means recognizing that formal agreements are finalized before arrival. What remains is coordination within a framework already set, where collaboration depends on technical competence, reliability under pressure, and respect for the chain of command that keeps isolated stations functioning safely.

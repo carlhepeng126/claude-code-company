@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Making a business contact in Guyana usually begins with who you know rather than where you work. In a society where family ties and social networks shape daily life, a personal introduction from someone already trusted can move things forward faster than a cold email or phone call ever will. People want to feel a sense of connection before committing to business, so expect early conversations to touch on shared acquaintances, background, or recent local events. These exchanges build rapport and quietly establish whether you're someone worth investing time in.
+
+Once initial contact is made, appointments are typically set by phone or email and should be arranged at least a week in advance. Confirm the day before, and allow flexibility in your schedule. Meetings may start later than planned or shift in length depending on who else is present or what comes up during the conversation. A colleague from a culture where schedules are tightly controlled may find this fluidity unpredictable, while someone from Guyana might view a rushed or overly structured meeting as impersonal or transactional. The willingness to adjust shows respect for the relationship, not just the agenda.
+
+Networking here often happens in informal settings, at community events, or through extended social circles. Younger professionals in Georgetown may be comfortable connecting via LinkedIn or moving quickly to business topics, but outside the capital and in more traditional sectors, introductions still tend to rely on trusted intermediaries and take more time to develop.

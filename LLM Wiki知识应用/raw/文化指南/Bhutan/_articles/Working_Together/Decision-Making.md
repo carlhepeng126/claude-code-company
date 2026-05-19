@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+In Bhutan, decisions develop through consultation rooted in Buddhist principles and a preference for harmony over speed. The emphasis on collective wellbeing, shaped by centuries of Buddhist governance and the national philosophy of Gross National Happiness, means that choices are weighed not only for their practical outcomes but for their effect on relationships and community balance. Rushing a decision, especially one that affects others, risks overlooking these wider implications. Senior figures hold the formal authority to decide, but they are expected to seek input from those with relevant knowledge or those who will be affected by the outcome.
+
+Consultation happens through quiet conversations rather than formal debate. A manager may approach trusted colleagues or team members individually to gather views before arriving at a conclusion. This allows people to speak candidly without the pressure of contradicting someone in a group setting, and it helps the decision-maker understand where resistance or concern might arise. If you are waiting for a decision and the process feels slow, it may be because the manager is still building agreement behind the scenes. Offering your input when invited, and doing so privately rather than in a large meeting, will be more effective than pushing for a faster resolution in front of others.
+
+Hierarchy shapes who has the final word, but that does not mean decisions are imposed without discussion. The goal is to arrive at a choice that everyone can support, even if it takes longer. A colleague from a culture where decisions are made quickly by a single leader may find this process indirect or inefficient, while someone from Bhutan may view rapid, top-down decisions as dismissive of the people they affect.

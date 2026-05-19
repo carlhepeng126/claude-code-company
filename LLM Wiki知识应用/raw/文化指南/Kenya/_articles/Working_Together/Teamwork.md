@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Kenyan teams draw from diverse traditions that shape how people collaborate, speak up, and build trust. Bantu heritage emphasizes collective effort and deference to senior voices, while Nilotic traditions often encourage debate and personal initiative, and Cushitic traditions stress negotiation and entrepreneurial action. These styles coexist in many workplaces, particularly in Nairobi and Mombasa, where teams bring together different ethnic and religious backgrounds. The result is that some colleagues may press their ideas confidently and expect open discussion, while others wait for the right moment or the right senior person to invite their contribution. Understanding this variation helps prevent one communication style from dominating all others.
+
+Age and seniority remain significant. Rooted in age-set systems that once organized responsibility and authority across life stages, the expectation persists that senior colleagues provide guidance and that younger team members contribute energy and execution. This means that a junior colleague may hold back a strong idea until they sense approval or encouragement from someone older or more established. If you lead a meeting, create structured opportunities for everyone to contribute, not just those who speak first or loudest.
+
+Trust forms the foundation of effective teamwork and takes time to establish. Relationships often matter more than formal process at the start, and teams perform better when members know one another beyond their roles. Humour and office conversation help build that connection. At the same time, roles and responsibilities are usually clearly defined, and colleagues may be reluctant to step into someone else's area without explicit permission. If a team member is absent, another may wait for instruction rather than assume the task. Make agreements about coverage and flexibility explicit early, and revisit them as the team evolves.

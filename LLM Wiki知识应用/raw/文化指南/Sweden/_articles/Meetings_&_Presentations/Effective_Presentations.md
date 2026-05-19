@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Swedish audiences respond to clarity, realism and intellectual honesty. They expect you to show your reasoning, not just your conclusion. Presentations should follow a logical arc — problem, options, trade-offs, recommendation — and make it clear how you weighed competing factors. People want to see that you've thought rigorously, not that you've rehearsed a polished pitch. Overly slick delivery or emotional appeals invite skepticism. So does hyperbole. Claims like "game-changing" or "revolutionary" will be scrutinized closely, and if the evidence doesn't support them, credibility drops fast.
+
+Data is expected, but so is candor about where that data falls short. Acknowledging limitations, uncertainties or risks signals confidence rather than weakness. Swedish audiences value what one colleague described as the "honest broker" stance: you present the full picture, including what you don't know, and trust the audience to engage with complexity. A presenter from a culture where certainty and assertiveness build authority may find this unsettling, as if doubt undermines the case. From a Swedish perspective, the opposite is true — glossing over risks or overstating confidence suggests you haven't done the full analysis, or worse, that you're trying to manipulate the outcome.
+
+Visuals should be simple and functional, aligned with a design culture that favors restraint over decoration. Heavy branding, animations or cluttered slides distract from the substance and can feel performative. One presenter noted that in Swedish offices during the festive season, you'll see one folded, glowing advent star rather than a full display — the same principle applies in meetings. Restraint signals focus and self-assurance.
+
+Leave time for questions and joint reflection. People expect to interrogate assumptions, test the logic and explore alternative interpretations. This is how the group refines its thinking together, and it's a sign of engagement, not resistance.

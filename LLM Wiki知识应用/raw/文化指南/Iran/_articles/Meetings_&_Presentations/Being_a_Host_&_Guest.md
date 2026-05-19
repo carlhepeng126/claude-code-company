@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hosting in Iran is understood as a form of generosity and care, often expressed through abundance. A guest may be served multiple rounds of food, several desserts, and tea refilled throughout the evening. Hosts take genuine pride in this level of provision, and accepting what is offered, even in modest amounts, shows that you value the effort and the relationship. Complimenting specific dishes or the care taken to prepare them is appreciated. Insisting on only a tiny portion can read as discomfort or distance, so it's better to accept a reasonable amount and finish what you take. Leaving food on your plate can be read as wasteful or ungrateful.
+
+Gift-giving follows a similar logic. Thoughtful gifts such as good chocolates, saffron, nuts, something from your own city, or books and music are valued. Very expensive or ostentatious gifts can create discomfort or a sense of imbalance, so the focus should be on what is considered rather than costly. If you're uncertain about preferences, items that can be shared or enjoyed together work well.
+
+Departures can involve extended negotiation. Even late in the evening, a host may insist it's still early and press you to stay for one more tea. This is often ta'arof, the ritual exchange of polite offers and refusals, and not a literal request. When you genuinely need to leave, acknowledge the invitation warmly, give a clear reason such as an early flight, and begin moving toward the door. The host will usually respect that you have obligations, even if they continue the ritual a little longer.

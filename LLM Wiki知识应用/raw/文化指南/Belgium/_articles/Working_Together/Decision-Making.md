@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+In Belgium, deciding who gets to decide is often the first and most consequential question. A proposal may fall under federal jurisdiction, regional competence, community oversight, municipal authority, or some combination of all four, and getting the level wrong can trigger legal challenges or political resistance. This concern runs deep because the country's institutional architecture distributes power across multiple tiers, each protective of its remit. Before anything moves forward, experienced Belgian colleagues will ask which authority holds the mandate and whether other levels need to be consulted or informed.
+
+Once the right jurisdiction is identified, decisions typically begin as informal conversations among a small group of key people. These early exchanges test feasibility, surface objections, and build alignment before anything is formalized. The process then moves into broader consultation with social partners, regional bodies, political parties, or other stakeholders, depending on the issue. Only after this phase does a decision become anchored in a written agreement, law, or decree. For colleagues from cultures where decisions are made quickly by a single authority, this can feel drawn out. From a Belgian perspective, skipping consultation creates procedural vulnerabilities that opponents will use later to block or unravel the decision.
+
+The system can stall entirely, as seen during prolonged periods without a federal government, but Belgian professionals have adapted by working in interim arrangements, launching pilots, and taking local initiative while formal decisions remain pending. Once a decision is formally locked in, however, it becomes durable and politically costly to reverse. This makes the consultation phase less a delay than a form of insurance.

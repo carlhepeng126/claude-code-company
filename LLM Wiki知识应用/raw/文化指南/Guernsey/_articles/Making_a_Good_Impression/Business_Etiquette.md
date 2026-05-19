@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Business etiquette in Guernsey reflects the island's dual identity: a British Crown dependency with its own cultural rhythms. Formality is understated, and professional interactions begin with a reserved kind of courtesy. Greetings are polite but not effusive. A handshake and brief eye contact are the norm. Using titles and surnames at first is expected, though the shift to first names often happens quickly once rapport is established. Because Guernsey is a small community, people are careful to present themselves well. Reputation travels fast, and early impressions shape how future interactions unfold.
+
+Punctuality is taken seriously and reflects respect for others' time. Arriving late to a meeting without explanation can leave a poor impression, especially in sectors like finance and law where precision is valued. Colleagues from cultures where time is more fluid may find this emphasis rigid, while Guernsey professionals working with more flexible counterparts may interpret delays as a lack of commitment. Meetings are usually structured and agenda-driven, though there is room for small talk, particularly in smaller firms or family-run businesses where personal connection plays a larger role.
+
+Dress codes are formal in client-facing roles, particularly in financial services, but can be more relaxed in smaller companies or creative industries. When in doubt, err on the side of conservative business attire until you have a sense of the setting. Gifts are not expected in business contexts and are best saved for established relationships. If visiting someone's home, a small, thoughtful gift such as wine or chocolates is appreciated.

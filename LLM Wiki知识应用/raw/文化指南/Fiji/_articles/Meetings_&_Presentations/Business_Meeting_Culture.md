@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Fiji move at a relationship pace, not a decision pace. Time is taken to gauge trust and comfort before anything substantive is agreed, and this extends well beyond the first conversation. Pushing for outcomes in early meetings can close doors rather than open them, because the priority is not efficiency but building confidence in the person, not just the proposal. A colleague from a culture where decisions are made quickly may read this as evasive or uninterested, while a Fijian counterpart may read rapid closure as transactional and therefore risky.
+
+Formality depends less on setting than on seniority and familiarity. Meetings with chiefs, elders, or senior government officials require formal dress, clear hierarchy, and respectful tone. In these settings, speaking directly to the most senior person before building rapport can be taken as presumptuous. Junior or mid-level colleagues typically defer upward, and interrupting or disagreeing openly with a senior figure is rare. Dress codes remain conservative, especially outside Suva, where modesty in appearance reflects respect for the group.
+
+Silence in Fijian meetings often means processing, not agreement. Asking "Are we all aligned?" after a quiet pause may prompt polite nods that do not reflect real consensus. Following up individually after the meeting, particularly with those who did not speak, will give a clearer read on where things actually stand. Small talk is not filler. It establishes social connection and signals that the relationship will outlast the transaction. Declining invitations to share tea or a meal after a meeting can suggest the partnership is purely functional, which weakens trust rather than saving time.

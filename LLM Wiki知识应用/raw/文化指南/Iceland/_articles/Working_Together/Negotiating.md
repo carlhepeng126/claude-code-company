@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+Icelanders come to the table ready to talk substance. Small talk is brief or absent, and it's normal for business to continue over dinner or in the bar afterward. This directness is paired with an instinct for fairness shaped by decades of public debate about quotas, fish stocks, and energy revenues. Negotiating in a small society means everyone knows how the benefits were divided, so Icelandic counterparts will ask sharp questions about who captures value and who carries risk. They want a deal that can be defended in a place where scrutiny is constant.
+
+That fairness intuition has been sharpened by the banking collapse. The 2008 crash is still a reference point, and people remember foreign currency loans and glossy pitches that promised no downside. As a result, expect tough questions about leverage, exposure, and worst-case scenarios, especially in large or complex deals. Showing explicitly where your proposal is more conservative than it could be elsewhere, and that you're not treating Iceland as a high-leverage playground, builds credibility faster than optimistic projections.
+
+Discussions move quickly once the core terms feel fair. Decisions are often made on instinct rather than drawn-out analysis, and if a call turns out to be wrong, direction changes just as fast. Anyone at the table, regardless of rank, can challenge an assumption or question a senior counterpart's view. This consensus-based style means the conversation can feel blunt, but it's efficient and real agreement is reached faster than in cultures where dissent is private.
+
+Icelandic counterparts also price in logistics automatically: shipping distances, weather delays, single-road access to regions, and the thinness of the labor pool. If your numbers ignore these realities, the proposal will look unserious. Factor them into your costings early and visibly, and be ready to adjust terms in ways that reflect the constraints of remoteness. A partner who understands that freight doesn't run on schedule during storms, or that replacing a specialist takes months, earns trust that outlasts the negotiation.

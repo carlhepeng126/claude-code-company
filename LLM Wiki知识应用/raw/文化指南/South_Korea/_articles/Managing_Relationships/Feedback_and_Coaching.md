@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In South Korea, feedback is shaped by Confucian expectations of role and dignity. Seniors hold responsibility for guiding juniors, but they must also protect the junior person's standing. Harsh public criticism damages both the relationship and the individual's reputation within the team. Education in this context is understood as character building, not just skill correction. Feedback therefore often comes wrapped in stories, examples, or gentle suggestions that encourage reflection rather than direct judgment. A manager might describe how a similar challenge was handled in the past, allowing the listener to draw their own conclusion without being told they have failed.
+
+Being singled out for criticism in front of others can cause deep shame, and the emotional impact can linger well beyond the moment. This is why critical feedback is almost always delivered in private, with language that emphasizes growth and development rather than fault. Starting with specific strengths and positive observations helps anchor the person's sense of worth before gaps are named. Inviting the person to reflect on their own performance first can open the door to a more honest exchange, and shows respect for their self-awareness.
+
+Younger Koreans, especially those with international experience, may be more comfortable with direct feedback, but the expectation remains that it should be respectful and framed around improvement. Consistent follow-up after feedback is given shows that the intent is genuine support, not punishment. A single conversation with no return signals that the feedback was performative rather than caring. When feedback is given with warmth and accompanied by ongoing attention, it reinforces trust and the sense that development is a shared responsibility, not a reprimand.

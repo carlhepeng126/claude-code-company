@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+The quiet tone many Omanis use can mislead colleagues from cultures where volume and energy signal conviction. A calm delivery doesn't mean vagueness or flexibility. When someone says "perhaps this is not the right time," they have already decided. The boundary is real, just expressed with courtesy. Pushing harder will earn you a reputation for poor judgment, not persistence. If you need clarity, ask follow-up questions gently and watch for shifts in phrasing or pauses, which often say more than the words themselves.
+
+Offering coffee, dates, or fruit isn't small talk. It's karam, an ethical obligation of generosity that shapes how hospitality is understood. Even a brief office meeting may include something served. Refusing abruptly feels like rejecting the gesture itself. If you're genuinely unable to eat or drink, accept a small portion and express thanks. The ritual matters as much as the item. Similarly, if you're hosting an Omani colleague, offering something reflects that you understand the reciprocal nature of respect.
+
+Openly contradicting someone or pressing them into a corner in front of others conflicts with values around hayā' (modesty) and avoiding 'ayb (shame). The embarrassment may outlast the content of the disagreement. If you need to challenge an idea, do it privately or frame it indirectly in a group setting. Phrasing like "perhaps we could also consider" preserves dignity and keeps the door open. For colleagues from settings where debate is expected to be direct and public, this may feel slow. From the Omani side, directness without care for face can feel aggressive, even when the intent is purely factual.
+
+Many Omanis structure their day around prayer, Quran reading, and family obligations. Scheduling a workshop that runs through prayer times without acknowledgment, or proposing travel that assumes unlimited evening availability, signals a lack of awareness. Mentioning that you've built breaks into a plan, or asking about timing preferences early, shows cultural respect before anyone needs to raise it.

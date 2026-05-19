@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining on the Cocos (Keeling) Islands is rare and informal, shaped by the islands' small population, geographic remoteness, and limited commercial infrastructure. Opportunities for formal business meals are minimal. The two atolls host a tight-knit community where most professional interactions happen through direct conversation rather than structured social events. Where entertaining does occur, it is likely to take the form of a casual meal or shared tea, often at someone's home or in one of the few communal gathering places.
+
+The islands have no commercial restaurant scene. If a visiting colleague is invited to share a meal, this typically reflects an extension of hospitality rather than a formal business ritual. Food may be home-cooked, drawing on Malay culinary traditions within the Cocos Malay community or reflecting the backgrounds of those who live on West Island. The gesture itself builds rapport, but the setting and style remain modest. Alcohol is generally not part of these occasions, both because of limited availability and the cultural norms of the Muslim Cocos Malay majority.
+
+Conversations during shared meals tend to focus on family, island life, and practical matters rather than business strategy. Pushing for formal negotiation or outcomes during a meal can come across as out of step with the relational rhythm of the islands. Reciprocating hospitality, even in a small way, is noticed and valued. A colleague from a culture accustomed to entertaining in restaurants with clear business agendas may find this absence of structure ambiguous, while someone from the islands meeting a visitor who declines a home invitation may read it as reluctance to connect personally.

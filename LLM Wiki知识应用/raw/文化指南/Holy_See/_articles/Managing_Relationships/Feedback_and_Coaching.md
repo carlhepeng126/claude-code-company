@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+The Holy See operates through a deeply relational culture shaped by centuries of theological reflection, hierarchical accountability, and a diplomatic tradition where words are chosen with precision. Feedback is rarely transactional. It unfolds through conversation, often beginning with affirmation of shared mission and the person's contribution to it. Criticism, when necessary, is delivered privately, indirectly, and always with concern for the recipient's dignity. A senior figure might say, "Perhaps we might consider how this aligns with the spirit of the commission," rather than naming fault directly. This indirection reflects both institutional courtesy and a pastoral sensibility in which correction is understood as spiritual accompaniment, not performance management.
+
+Written evaluations exist in administrative roles, but they tend to be formal, restrained, and secondary to face-to-face conversation. Trust is built through sustained personal engagement, and a single document cannot replace the relational knowledge that underpins effective guidance. Managers or mentors may draw on scriptural references, Church teachings, or historical precedent to frame a point, embedding the feedback in a larger tradition rather than presenting it as individual judgment.
+
+Public praise is offered sparingly and with care. While affirmation is valued, singling someone out too prominently can disrupt the communal ethos and risk appearing self-serving. Recognition is more often expressed through quiet acknowledgment or by entrusting the person with greater responsibility. For colleagues from settings where direct, frequent feedback is expected, this restraint may feel ambiguous. For those within the Holy See, it reflects a culture where meaningful coaching unfolds slowly, relationally, and through continuous dialogue rather than scheduled review.

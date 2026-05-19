@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in the Democratic Republic of Congo depend heavily on personal connection and social positioning before substantive discussion can take place. The opening phase often extends well beyond brief pleasantries. Participants use this time to assess character, confirm mutual respect, and establish relational footing. Rushing to the agenda before these social foundations are set can signal disrespect or imply that the relationship itself is unimportant. Allow this stage to unfold naturally, and recognize that what may feel like delay is the work of building the trust that makes collaboration possible.
+
+Hierarchy shapes who speaks, when, and with what authority. Senior figures are expected to lead discussions and make decisions, while junior colleagues may remain quiet even when they hold relevant expertise. Invitations should reach the appropriate level of seniority, as decisions made without the right people present may not hold. In cross-cultural settings, this can create tension. A colleague from a culture where input is expected from all attendees may read silence as disengagement, while a Congolese participant may view unsolicited contributions from junior team members as a breach of protocol.
+
+Formality is the default, particularly in first meetings. Titles, greetings, and tone all reflect an awareness of status and the relational stakes involved. As trust develops, warmth and humor may emerge, but early informality can undermine credibility. Expect discussions to be cautious and indirect when uncertainty or risk is present. Clarity on intentions, timelines, and commitments helps, but pressing for immediate decisions often backfires. Building consensus takes time, and patience is read as professionalism, not passivity.

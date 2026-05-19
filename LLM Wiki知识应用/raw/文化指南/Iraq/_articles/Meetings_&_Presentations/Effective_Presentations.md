@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Some audiences in Iraq want hard technical detail. Oil sector teams, central bank officials, and Kurdistan Regional Government investment boards expect depth. They will test your command of the numbers. Other rooms are tuned more to political risk, tribal impact, and security implications than to spreadsheets. Knowing which audience you are facing shapes the deck you need to bring. Including localised data helps in either case. Governorate-level breakdowns, realistic acknowledgment of security constraints, and attention to sectarian or ethnic distribution all signal that you understand the country as it actually is, rather than as a simplified national average.
+
+Presentations may be delivered in English, but the real persuasion often happens in whispered Arabic or Kurdish explanations running alongside your words. What sounds clear in your polished English sentence may be reframed, clarified, or softened by a colleague translating for someone senior. Work with local team members on key phrases and frames before the meeting. If your argument does not survive translation into Arabic or Kurdish, it may not survive the room.
+
+Imagery tied to reconstruction, conflict, or displacement can provoke pride, pain, or suspicion. People have seen many slides promising stability and jobs that never materialised. Balance optimism with modesty and realism. Over-selling can backfire in a country shaped by repeated disappointment. Talking about your company's track record, backed by photos, certificates, or specific project stories, tends to land better than abstract future vision. Repetition, analogy, and visual support all help ideas stay in people's memory. Keep slides uncluttered and assume internet will be slow and power supply uncertain.

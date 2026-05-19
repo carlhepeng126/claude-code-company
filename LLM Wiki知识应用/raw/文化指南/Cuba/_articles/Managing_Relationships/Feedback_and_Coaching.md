@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Cuba is shaped by the tension between hierarchical authority and the value placed on personal dignity. Managers may offer direct criticism in meetings or group settings, but this directness reflects the formal power structure rather than an invitation to open dialogue. Criticism from a boss is understood as coming from their position, and employees typically receive it without visible pushback. Challenging a superior publicly would risk being seen as disrespectful or undermining authority, so most workers respond with quiet acceptance, even if privately they disagree or feel the feedback was unfair.
+
+This public directness does not extend to peer relationships, where feedback is given more carefully. Among colleagues of similar rank, preserving personal relationships and avoiding conflict often outweighs the urgency of correcting a mistake. A teammate might drop subtle hints or rely on humor rather than state a concern outright. If the issue persists, they may raise it informally with a trusted intermediary or wait for a manager to step in. Direct peer-to-peer critique can strain relationships, so many Cubans prefer to let hierarchy handle correction.
+
+For international managers unfamiliar with this pattern, the implication is clear. If you want honest input from your Cuban team, create private opportunities for conversation rather than expecting people to speak up in group reviews. Positive recognition, by contrast, works well when shared publicly and helps reinforce team cohesion without singling anyone out uncomfortably.

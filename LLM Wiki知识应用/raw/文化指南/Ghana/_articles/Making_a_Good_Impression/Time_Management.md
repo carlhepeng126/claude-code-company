@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Ghana bends around people and circumstance, but how much depends sharply on sector and setting. The joke about "Ghana Man Time" reflects a real fluidity in public events and some government spaces, where a start time of 10 a.m. may mean 10:45 or later, especially if a senior person has not yet arrived. In family-owned firms, social situations, and community gatherings, time stretches to accommodate relationships and unforeseen needs. But banks, airlines, multinationals, and export-driven companies run to the clock; in those environments, chronic lateness reads as unprofessional, and deadlines hold.
+
+The flexibility is rarely casual indifference. Accra's traffic can turn a 20-minute drive into two hours without warning, and *dumsor* (power outages) can knock people offline mid-meeting. These disruptions are real, not invented excuses. More telling still are funerals and festivals, which reorder normal schedules entirely. A major family funeral is not optional socially, and taking leave or slipping out to attend is expected. If you are managing a project timeline, ask early whether any such commitments overlap; showing flexibility here strengthens loyalty in a way that strict enforcement cannot.
+
+A colleague from a culture where meetings start exactly on time may read late arrivals as disrespect or lack of commitment, while a Ghanaian counterpart may view rigid punctuality in the face of genuine obstacles as cold or unrealistic. If your context genuinely requires strict timing, because of flight windows or regional calls, state that clearly and explain why. Build buffers around key appointments and deadlines, and treat disruptions as variables to plan for rather than violations to reprimand.

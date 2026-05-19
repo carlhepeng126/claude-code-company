@@ -1,0 +1,11 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+In Tunisia, commercial relationships begin with personal connection. Offering tea or coffee, exchanging pleasantries, and taking time to establish rapport before discussing terms show respect and build a foundation for the work to come. Accepting hospitality when it is offered matters. Declining abruptly may be read as dismissive, not efficient. A Tunisian supplier might interpret a foreign partner's eagerness to skip these moments and move straight to contract clauses as coldness or lack of seriousness. In return, a customer from a culture where efficiency drives the opening conversation might wonder why the discussion feels slow, not recognizing that trust is being established through courtesy and shared time.
+
+Reputation and follow-through shape long-term loyalty more than price or speed. Tunisian customers and suppliers remember commitments kept and promises broken. After-sales support and responsive problem-solving are expected, especially since formal consumer protections exist but their enforcement can be inconsistent. Reliability becomes personal. A partner who responds thoughtfully when something goes wrong builds credibility that outlasts a single transaction.
+
+Regional differences influence negotiation style. Coastal hubs with a Mediterranean trade legacy may negotiate more directly while maintaining politeness, while partners in the interior may rely more heavily on relationships and slower-paced trust building. Adapting tone to the region and the individual shows awareness, not assumption.
+
+Language choice also communicates respect. Tunisia's multilingual environment means customers appreciate being spoken to in their preferred language, whether Arabic, French, or English. But tone matters as much as vocabulary. Politeness and respectful phrasing, especially when navigating concerns, help maintain the relationship. Face-to-face or voice communication is often preferred over email when emotion or nuance is involved.

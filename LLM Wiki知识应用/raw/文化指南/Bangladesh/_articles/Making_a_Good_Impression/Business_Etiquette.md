@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Professional interactions in Bangladesh begin with formality and warmth. Greetings reflect hierarchy and familiarity, with titles used consistently to show respect. Addressing someone as "Sir" or "Madam," or using professional titles like "Doctor" or "Professor," acknowledges their position and the relationship you hope to build. Younger colleagues often add "-bhai" (brother) or "-apa" (sister) when addressing seniors, even in office settings, blending professional respect with the relational closeness that underpins much of Bangladeshi workplace culture. Moving to first names happens gradually, and only when invited. Rushing this shift can feel presumptuous.
+
+Dress norms lean formal, especially in established sectors like banking, government, and multinational corporations. Men typically wear suits or formal shirts with trousers, while women often choose salwar kameez or saris, though Western business attire is also common in corporate environments. Modesty guides these choices. In smaller firms or startups, especially in Dhaka's growing tech sector, dress codes relax somewhat, but erring on the formal side during initial meetings is a safe approach.
+
+Dining etiquette also reflects hierarchy and hospitality. Business meals are common, and declining food or tea offered by a host can seem abrupt. Meals are often eaten with the right hand, and using the left for food is considered impolite. If dining in a traditional setting, expect rice and shared dishes. Wait for the most senior person to begin eating before you start, and if you're uncertain about how to proceed, follow your host's lead. Offering to share a meal yourself, once a relationship has developed, reinforces reciprocity and goodwill.

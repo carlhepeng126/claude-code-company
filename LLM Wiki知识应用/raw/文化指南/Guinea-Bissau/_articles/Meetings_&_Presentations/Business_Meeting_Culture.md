@@ -1,0 +1,11 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Arranging a meeting in Guinea-Bissau works best when you allow time for relationship building before the agenda begins. Meetings are rarely just transactional. People want to know who they are working with, and trust is built through conversation, not efficiency. Expect the first part of any meeting to be spent on greetings, introductions, and often stories that reveal character or connection. Jumping straight into business proposals can feel abrupt and signal that the relationship itself holds little value. If you're working with senior figures in government or established companies, this relational foundation becomes even more central, as decisions are shaped by personal confidence as much as by the details of a proposal.
+
+Hierarchy shapes who speaks and when. Senior people lead the conversation, and younger or junior team members may remain quiet unless invited to contribute. If you enter a meeting and address questions to the wrong person, or bypass the senior figure in the room, you risk undermining both your counterpart's authority and your own credibility. It's worth confirming in advance who holds decision-making power, and directing your opening remarks and key questions accordingly.
+
+Meetings may shift between Portuguese and Kriol, depending on the setting and the participants. Portuguese is the formal language of business and government, but Kriol is widely spoken and often preferred in more informal or local contexts. If you're working through an interpreter, allow extra time. Clarifying points and ensuring shared understanding takes longer, and rushing through this stage can lead to misalignment later. A colleague from a culture where meetings follow tight agendas and quick decisions may find the pace slow, while someone from Guinea-Bissau may read a tightly controlled agenda as rigid or distrustful.
+
+Decisions are rarely made in the room. Even if a meeting ends on a positive note, expect follow-up conversations, consultations with others, and time to reflect. Pressing for immediate commitments or written agreements can backfire, as it suggests impatience or a lack of respect for how relationships and decisions unfold here.

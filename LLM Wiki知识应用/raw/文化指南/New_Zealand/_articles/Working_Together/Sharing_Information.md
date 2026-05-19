@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+New Zealanders expect honesty without spin. Transparent communication builds trust faster than polished reassurances, and bad news delivered plainly will get a better hearing than cautious optimism that turns out to have glossed over problems. Understatement is seen as credible; over-promising raises suspicion. If a project hits a snag, say so. Going quiet when things get difficult reads as evasive and will make the next conversation harder. People would rather hear what's actually happening, even when it's uncomfortable, than be managed or shielded from reality.
+
+When working with Māori organizations or data relating to Māori communities, expect conversations about who controls that information and how it's used. The principle of kaitiakitanga (guardianship) and Treaty rights mean that Māori partners often insist on co-governance of data from the outset. Uploading Māori data into a global system without consent or involvement will be seen as extractive, not efficient. Design governance, use, and benefit-sharing together before the data moves, not after.
+
+New Zealand's professional and media networks are small and tightly woven, especially outside the main centers. News travels quickly across sectors and towns. What you say internally can surface publicly faster than you might expect. If you wouldn't be comfortable standing behind a statement in public, reconsider how you're framing it inside the organization. Informal social gatherings also function as information channels. A colleague from a culture where professional and social spheres are more separate might be surprised at how much gets shared over coffee or at after-work drinks. From the New Zealand side, a reluctance to share outside formal meetings can come across as guarded or overly cautious.

@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Botswana, professional relationships often begin through someone you already know. Personal introductions remain the most effective way to establish credibility, particularly when entering a new sector or working with government ministries. A colleague or mutual contact who can vouch for you helps build the initial trust that formal credentials alone may not provide. This reflects a society where reputation and reliability are assessed through networks of known connections. If you're approaching a new organization cold, expect the process to take longer. Email or phone contact is common and appropriate, but be prepared to invest time in follow-up conversations that allow the other person to get a sense of who you are before committing to a meeting.
+
+Scheduling meetings a week or more in advance is standard practice, especially with senior figures whose calendars fill quickly. Reconfirming a day or two beforehand is both practical and expected. Meetings may start later than the agreed time, and interruptions or overlapping commitments are not unusual. Someone from a culture where punctuality is tightly observed may read this as disorganization or disrespect. From a Botswana perspective, relationships take precedence over rigid schedules, and accommodating an urgent matter or an unexpected visitor reflects responsiveness rather than poor planning.
+
+Urban professionals in Gaborone or Francistown may work at a faster pace and be comfortable with digital communication, while in smaller towns or rural districts, building rapport often takes longer and relies more heavily on face-to-face interaction. If you're working across regions, adjust your timeline and communication style accordingly.

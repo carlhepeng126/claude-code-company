@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Icelanders grow up on sagas, straightforward narratives where events and choices speak louder than embellishment. That same preference shows up in the meeting room. A presentation that sets the scene, identifies the problem, lays out the options, and tells what happened or what you propose tends to land better than abstract strategy clouds. Facts, accuracy, and openness are expected. Showmanship raises suspicion rather than interest, and grandiose claims without supporting evidence will undermine your credibility fast.
+
+The 2008 banking crash deepened an already present distrust of financial fairy tales. Glossy projections of inevitable exponential growth or hockey-stick graphs without clear grounding in real-world phenomena trigger alarm. Icelanders are comfortable with data, particularly when it connects to something tangible: energy output, water levels, tourism flows, seismic readings. If your charts tie clearly to on-the-ground realities and you name the risks and limits openly, you build trust. Honest caveats increase your credibility more than relentless optimism. A presenter from a culture where enthusiasm and confidence are expected throughout may find this caution puzzling, while an Icelandic audience may read that same enthusiasm as evasiveness or inexperience.
+
+Expect your audience to listen quietly. Silence reflects attention, and questions afterward may be unusually direct. This stems from flat organizational structures where rank matters little in the room and clarity is valued over deference. Prepare detailed handouts or make your materials available digitally. Icelanders appreciate precision and will want to review the substance after the presentation ends.

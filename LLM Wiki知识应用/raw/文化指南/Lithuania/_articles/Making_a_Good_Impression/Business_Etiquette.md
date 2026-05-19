@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Reserved conduct often signals credibility in Lithuanian business settings. Discretion, rooted in the country's 20th-century experience of surveillance and disruption, means that careful disclosure still reads as sensible rather than withholding. Understatement and grounded statements are often more persuasive than expansive promises. When colleagues speak plainly and avoid exaggeration, they are building trust through restraint. A colleague from a culture where enthusiasm is verbally demonstrated might perceive this as coldness, while Lithuanian counterparts might read effusive talk as lightweight or unserious. Bring enough business cards to a first meeting, take a moment to read each one you receive, and avoid folding or creasing them.
+
+Hospitality is substantial but not necessarily effusive. Care shows up through doing things properly rather than through verbal warmth, and hosting can be attentive without being demonstrative. Meals, seasonal rituals, and shared activities often matter more than constant conversation in deepening relationships. Gifts are exchanged thoughtfully in business and office contexts. When visiting someone's home, wine or flowers are appropriate. Avoid white flowers or chrysanthemums, which are linked to weddings and funerals, and avoid even numbers of stems, which also suggest funerals. Gifts are usually opened on receipt.
+
+Eye contact is important and expected. Looking away or avoiding someone's gaze will be read as evasiveness. Physical gestures are usually restrained, and personal space is respected. Stand an arm's length apart in conversation. A handshake is standard. Negative opinions are often softened or left unspoken to avoid causing offence, which can make disagreement hard to read. Watch for pauses, quiet answers, or shifts in tone as signs that someone has concerns they may not voice directly.

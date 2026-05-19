@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Jamaican hospitality often reflects what might be called yard sensibility: home is social space, and how you enter it is observed and remembered. Whether rooted in the shared tenement yards of earlier generations or simply in the cultural idea that a household is a lived, peopled environment, visitors are received warmly but also assessed. How you greet, how you acknowledge those present, whether you seem genuine, and whether you respect the household's rhythms all shape how you are read. Greeting properly and acknowledging elders first are not formalities. They indicate that you understand the moral order of the space, and in many Jamaican settings, respect is what opens the door to trust.
+
+Generous hosting does not mean guests should take liberties. There are strong, often unspoken rules around not acting entitled in someone's home. Helping yourself, assuming access, or treating the space casually before the relationship has deepened can come across as disrespect. Asking first, even about small things, shows that you recognize boundaries. Many households also carry a sense of what is proper, often shaped by church culture: language, dress, whether alcohol is present, and the tone of conversation may all reflect moral rather than aesthetic preferences. Reading those cues and matching your behavior to them demonstrates awareness and regard.
+
+Food and drink are often offered as a way of saying you are safe here and part of the gathering. Refusing everything can unintentionally create distance, while accepting, even modestly, communicates ease and appreciation. The exact form varies by generation and setting, but the gesture itself is relational, not transactional. If you receive a formal invitation, respond in writing. A thank you note after being hosted is still valued as a sign of upbringing and regard.

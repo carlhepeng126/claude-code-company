@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Punctuality in Tunisia depends heavily on context. Urban settings, especially in multinational firms and export-oriented industries, follow structured norms shaped by French administrative culture, where arriving on time and meeting deadlines are considered professional essentials. In these environments, lateness is seen as unprofessional. In government offices or family-run businesses, flexibility remains more common. Kinship ties and situational priorities can shift timelines, particularly when business is intertwined with personal relationships.
+
+Traditional rural communities organized life around seasons and social rhythms rather than clock time, and this thinking still influences how time is understood across Tunisia. Meetings rarely begin without polite conversation first, even when scheduled punctually. This reflects the cultural expectation that relationship-building precedes agenda items. Colleagues from cultures where meetings start precisely at the stated time may read this as casual or disorganized, while Tunisian counterparts may view an immediate jump to business as abrupt and relationally cold. Building in time for these social rituals helps anchor expectations on both sides.
+
+Ramadan reshapes the working day significantly. Hours are reduced, and afternoon energy levels drop. Scheduling meetings early in the day or after sunset, and allowing for adjusted pacing, shows awareness of this rhythm. Clear timelines agreed upfront help bridge differences in how time is managed across sectors and settings, providing a shared reference point without imposing rigidity where flexibility is culturally expected.

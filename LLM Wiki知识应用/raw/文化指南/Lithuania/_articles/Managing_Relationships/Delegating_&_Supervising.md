@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Lithuania's 20th century history left a practical legacy in the workplace: wariness toward formal authority and a learned habit of public agreement paired with private disengagement. The first Soviet deportations in 1941 removed the political and professional class, and armed resistance continued until 1953. Top-down hierarchy was imposed but initiative was punished, which created a tension still visible today. Older colleagues may nod in meetings but remain uncommitted, while younger workers educated after independence in 1990 show far more comfort with autonomy and entrepreneurial thinking. This generational split runs through most organizations and affects how delegation is received.
+
+One-on-one follow-ups are essential, especially with older team members. These conversations are not about catching someone out but about creating room for actual views to surface. What is said in a group setting may reflect institutional caution rather than personal position. Supervisors from cultures where verbal agreement signals commitment may misread this as consensus, only to discover later that nothing moves forward. From the Lithuanian side, constant check-ins or pressing for faster timelines can feel like manipulation. Overt time pressure typically slows things down rather than speeding them up, as it reads more like a negotiating tactic than a genuine deadline.
+
+Younger Lithuanians often welcome independent responsibility and complex tasks, but this needs to be explicitly invited and visibly rewarded. The cultural memory of initiative being dangerous is recent enough that it still shapes behavior in traditional hierarchies. In modern, internationally connected companies, approval processes are streamlined. In older structures, they remain multi-layered and slow, a direct inheritance from Soviet bureaucratic models. The difference between sectors can be stark.

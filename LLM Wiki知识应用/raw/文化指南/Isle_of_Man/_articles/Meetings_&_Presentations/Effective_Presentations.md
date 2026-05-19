@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations on the Isle of Man favor substance over style. The island's professional culture values clear thinking, modesty, and practical application. Audiences respond well to presenters who know their material thoroughly and deliver it without fanfare. Credibility comes from depth of knowledge and a straightforward manner, not from polished performance or elaborate visuals. If you lean heavily on design or rhetorical flourish, people may question whether you have real expertise to share. Keep slides minimal and use them to support what you say, not to replace it.
+
+A measured pace works best. Manx audiences prefer time to absorb information and weigh its relevance. Rushing through content or pushing for immediate agreement can feel pressuring. Build your case logically and allow space for reflection. Questions may come after the formal presentation rather than during it, particularly if the topic involves risk or resource allocation. This reflects a preference for considered judgment over quick reaction, and it also means people may want to consult privately before committing to a view.
+
+Hierarchy shapes how feedback surfaces. Senior figures may stay quiet during the session and offer input one-on-one afterward, while more junior colleagues might speak up in the room. Don't mistake silence for disengagement or assume the person asking the most questions holds the decision. Follow up individually with key stakeholders to understand where the real questions lie and what concerns need addressing before you can move forward.

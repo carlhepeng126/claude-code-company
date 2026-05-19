@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Guam, professional settings blend American directness with Pacific Islander respect for seniority and kinship. First names are common from the outset, especially in everyday work contexts, but this informality doesn't eliminate hierarchy. Titles like "Mr.," "Ms.," or professional designations such as "Doctor" or "Mayor" are still used when addressing elders, senior leaders, or people in formal roles. The default is often to follow the lead of the person being addressed. If someone introduces themselves with a first name, it's an invitation to use it. If they offer a title, use it until told otherwise.
+
+Age and position matter more than formality alone. Younger professionals typically defer to older colleagues by using titles or waiting for permission to shift to first names. In government offices, community meetings, or family-run businesses, this deference becomes more visible. A colleague from a culture where first-name use signals equality across all levels might read this as inconsistency, while someone from Guam might find immediate informality with a senior figure disrespectful, even when first names are standard elsewhere in the organization.
+
+Written communication tends to mirror spoken style. Emails may open with first names, but when addressing external partners, government officials, or unfamiliar contacts, a more formal salutation using title and last name is safer. The shift to informality happens through relationship, not policy. If unsure, start with a title and let the other person set the tone. Once rapport is established, the register usually softens, but respect for seniority remains constant.

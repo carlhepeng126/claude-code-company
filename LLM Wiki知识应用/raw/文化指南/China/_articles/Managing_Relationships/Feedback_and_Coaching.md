@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Public criticism in China risks group embarrassment and damages the relationship that underpins the work itself. Private one-to-one conversations allow honest developmental talk without face loss. Feedback delivered in front of colleagues, especially from a manager to a junior team member, can humiliate rather than improve. This preference for privacy reflects the relationship-oriented foundation of collaboration, where trust and dignity are built over time and must be actively protected. A manager offering correction in a closed-door meeting, framed as support for the person's growth, opens the door to candor. The same words said in a team setting close it.
+
+Framing feedback as growth rather than fault-finding makes a practical difference. The gaokao system instills years of intense academic pressure and diligence, but it also heightens sensitivity to failure. Coaching that emphasizes progress and development tends to land better than blunt criticism. Using specific examples and narratives also helps. Stories and concrete instances feel more natural than abstract advice, reflecting a traditional preference for learning through observation and context. A manager might walk through a situation step by step, showing what worked and what could improve, rather than offering a generalized critique.
+
+Hierarchy shapes how feedback flows. Senior input tends to be received with more weight, while junior staff may hesitate to critique upward out of respect for authority. If a team culture is to shift toward more open exchange, it often requires senior leaders to model receptivity themselves. Younger professionals, particularly those identifying with the "lying flat" trend, may also expect coaching to acknowledge burnout and sustainable pace, not just ambition. Realistic progress paths matter more now than relentless drive alone.

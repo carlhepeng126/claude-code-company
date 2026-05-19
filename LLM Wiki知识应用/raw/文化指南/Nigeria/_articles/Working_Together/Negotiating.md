@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+Negotiations in Nigeria often draw on a tradition of bargaining shaped in markets, where price and fairness emerge through conversation, humour, and patience. Many people grow up watching exchange as a social art, where back-and-forth is the normal way to find the shape of a deal. Expect discussion to move in circles before closing, with parts of an agreement sometimes reopened for further exploration. This is how people test flexibility and confirm that everyone feels the outcome is balanced. Treating the first offer as final can feel abrupt and leave little room for the relational work that builds trust.
+
+Respect functions as a form of legitimacy. Showing it through proper greetings, use of titles, and deference to age establishes that you understand how standing works and that the relationship can be built safely. When respect is missing or perceived as absent, the issue becomes more than rudeness. It can signal that the other party is unsafe or lacks upbringing, and the negotiation may stall or stiffen in response. In cultures where decisions are made quickly and directness is valued, this attention to tone and titles may feel slow or overly formal. From a Nigerian perspective, a partner who skips these steps may appear careless or dismissive, lacking the social grounding needed for a serious commitment.
+
+When stakes are high or tension rises, intermediaries often play a central role. These are not simply messengers. They are respected figures who can guide both sides toward a solution that preserves dignity and avoids leaving a public loser. This reflects a broader settlement tradition where moral authority and social standing help restore balance. Building rapport with someone close to the decision-maker, or engaging a trusted third party, can move discussions beyond talk and into action.
+
+Listen carefully for indirect refusals. A direct no can be seen as harsh, so people may signal disagreement through a proverb, a story, or light humour. These are culturally legitimate ways to deliver warning or critique without breaking the relationship. Creating pathways that allow both sides to shift position without public embarrassment keeps the negotiation moving and the partnership intact.

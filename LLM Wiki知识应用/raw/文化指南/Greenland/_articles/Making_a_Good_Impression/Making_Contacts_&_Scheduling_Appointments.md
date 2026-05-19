@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Greenland's small, interconnected communities, making business contacts depends less on formal introductions and more on existing social ties. The population is concentrated in coastal towns where personal networks overlap, and people tend to know each other through family, school, or shared community life. When reaching out for the first time, mentioning a mutual connection or explaining how you came to know of someone helps establish context and legitimacy. Cold outreach without any reference point can feel abrupt in a setting where most professional relationships grow out of existing social ones.
+
+Scheduling appointments works best when planned well in advance, particularly during periods when weather or travel logistics might shift unexpectedly. Flights between settlements can be delayed or cancelled, and local schedules often accommodate subsistence activities, family obligations, or community events that take precedence over work commitments. Confirming a meeting a day or two beforehand is standard practice, and flexibility around timing shows respect for these competing priorities. A colleague accustomed to tight, back-to-back scheduling may find this fluidity frustrating, while someone from Greenland might view a rigid agenda as disconnected from the realities of daily life.
+
+Informal, face-to-face contact often moves things forward more effectively than email exchanges. In smaller towns especially, dropping by an office or meeting someone in a shared public space can achieve more than several rounds of written correspondence. Building rapport through casual conversation before moving to business topics helps establish the personal foundation on which professional collaboration is expected to rest.

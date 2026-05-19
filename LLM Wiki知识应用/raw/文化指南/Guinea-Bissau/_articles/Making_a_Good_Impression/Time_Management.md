@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Guinea-Bissau moves to a relational rhythm shaped by decades of political instability, weak infrastructure, and an economy still largely built on subsistence farming and informal trade. Appointments and deadlines bend to accommodate transport breakdowns, power cuts, family obligations, and the often unpredictable availability of people in positions of authority. A meeting scheduled for 10am may begin at noon, not through carelessness but because the road flooded, the minister was delayed, or a family matter required attention. People prioritize presence and relationship over the clock, and rushing a conversation or cutting it short to meet a schedule can be read as disrespect.
+
+This flexibility is more pronounced in government offices, rural areas, and informal settings, where the idea that time can be tightly controlled feels out of step with daily reality. In Bissau's small private sector and among international organizations, there is growing awareness of external expectations around punctuality, but even here, deadlines are often treated as approximate. A colleague from a culture where schedules are fixed may find this frustrating and interpret delays as a lack of professionalism. From the Guinea-Bissau side, insistence on rigid timelines can feel impersonal, as though the task is being valued over the person.
+
+If you are working with counterparts in Guinea-Bissau, confirm plans the day before and allow buffer time for delays. Set multiple interim checkpoints rather than a single final deadline, and follow up regularly without assuming agreement means immediate action. Recognize that flexibility is a strategy for navigating uncertainty, not indifference to outcomes.

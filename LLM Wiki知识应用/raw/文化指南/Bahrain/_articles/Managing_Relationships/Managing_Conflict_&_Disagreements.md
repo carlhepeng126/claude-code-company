@@ -1,0 +1,11 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Bahrain is a small island where professional and social networks overlap, and the same person you disagree with today may reappear in another ministry, another company, or at a diwaniya next month. This creates strong incentive to manage conflict in ways that preserve the relationship, even when the underlying issue remains unresolved. Open confrontation, especially in front of others, can damage not just individual reputation but family standing and future opportunities across business and social life. The goal is often reconciliation rather than resolution.
+
+This shows up in a tradition known as sulh, where respected figures — often senior managers or community elders — step in to help both sides save face and restore working relations. The focus is on lowering the emotional temperature and allowing retreat without public loss of honor. If you push for a clear win in a meeting or insist on addressing the dispute head-on, you may find the issue escalates privately instead. Consider involving a neutral intermediary early, someone trusted by both parties, to broker a solution both can accept without being seen to back down.
+
+Surface calm does not mean the conflict has disappeared. You may see polite smiles and formal courtesy in the room while anger flows afterward in Arabic on WhatsApp or in village conversations. If you assume the issue is settled because no one objected openly, you may miss the backchannel where the real disagreement is playing out. Listen for signs of withdrawal, quiet resistance, or indirect feedback, particularly from Gulf and South Asian colleagues who may signal discomfort without naming it.
+
+Be alert to whether a dispute is picking up sectarian or class overtones, especially if one group feels consistently overlooked. A logistical disagreement can quickly take on deeper meaning if people interpret it as "they always treat our area like this." Address those perceptions respectfully rather than dismissing them as irrelevant to the task at hand.

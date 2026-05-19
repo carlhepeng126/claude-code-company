@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Collaboration in Cuba is deeply relational and built through trust networks that extend beyond formal structures. Teams often form around personal loyalty and shared history rather than assigned roles alone. Colleagues expect to know each other as people, and rapport underpins coordination. This reflects a culture where relationships create stability in an environment where formal systems have been inconsistent. A manager from a task-focused environment might interpret this investment in connection as slow or indirect, while Cuban colleagues may see a purely procedural approach as cold or unlikely to sustain genuine commitment.
+
+Hierarchy shapes how teams function, but it operates with warmth rather than distance. Senior figures are expected to guide and protect their team, and this includes attention to personal circumstances alongside professional expectations. Decisions typically flow downward, yet the tone is more familial than authoritative. Junior members are unlikely to challenge direction openly, as public disagreement risks causing discomfort. Feedback, especially corrective, is most effective when delivered privately and with care for dignity. Public recognition tends to focus on collective achievement rather than singling out individuals, preserving group harmony and avoiding envy or exposure.
+
+Younger professionals, particularly in Havana and in sectors with international contact, are beginning to bring more direct communication styles and openness to structured collaboration. This shift is gradual and uneven. In state enterprises and smaller cities, traditional hierarchies and relational caution remain strong. Cross-cultural teams working in Cuba should allow time for relationships to develop before expecting full candor, and recognize that trust, not urgency, determines when collaboration deepens.

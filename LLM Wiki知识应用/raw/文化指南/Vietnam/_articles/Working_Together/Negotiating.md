@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Vietnamese negotiation often moves in stages, with relationship building and technical discussion intertwined. Historical memory of foreign domination can sharpen sensitivity to patronizing tone or pressure tactics, even when nothing is said directly. Respect functions as part of legitimacy, and how you frame proposals can be as consequential as what you propose. Grounded plans that acknowledge constraints tend to be more persuasive than bold rhetoric. Decades of rapid change since Đổi Mới have trained a strong practical filter, and people listen for whether you understand implementation reality and how conditions might shift.
+
+Both relational warmth and rational argument shape how proposals are received. Vietnamese culture recognizes tình (sentiment, moral obligation) alongside lý (reason), meaning the quality of the relationship is evaluated alongside the logic of the deal. If you appear technically sound but dismissive or transactional, the proposal may stall. This also means that disagreement is best expressed in controlled, face-safe language. Keep your tone firm on essentials but respectful in phrasing, and avoid aggressive closing language, especially early in the relationship.
+
+Visible consensus often follows private alignment rather than preceding it. Real friction may be processed in smaller conversations before it surfaces publicly, which means the formal meeting is sometimes where agreement is confirmed rather than where positions shift. A colleague from a culture where decisions are made quickly in open debate may read this as delay or evasion, while a Vietnamese counterpart may see rapid public closure without prior alignment as reckless or face-threatening. Leave room for internal consultation. Suggest a pathway for decision-making rather than demanding immediate resolution in front of others, and treat consistency and steady responsiveness as part of the persuasive process.

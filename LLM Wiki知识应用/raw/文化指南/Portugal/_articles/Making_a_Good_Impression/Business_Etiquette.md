@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Portuguese business culture starts with restraint and gradually opens. The initial impression is often one of polite containment rather than effusiveness. People are cordial but measured, observing before revealing. This is less about coolness than about caution rooted in history. Decades of dictatorship under the Estado Novo regime encouraged discretion in public settings, and that habit has softened into a preference for building trust through shared time rather than early declarations. What may seem formal at first is often just the beginning of a relationship that warms steadily once comfort is established.
+
+Communication tends to be indirect and responsive. Portuguese colleagues may argue their point in a circular way, weaving between ideas rather than building a linear case. The pace can be quick, and the topic may shift before you have fully absorbed the last point. Learn to read tone, pauses, and context. Direct confrontation or public criticism is avoided because dignity and saving face remain central to social interaction. Criticism, if necessary, is delivered privately and framed with care. A colleague from a culture where feedback is given bluntly in meetings may perceive this as evasiveness, while a Portuguese counterpart may view that directness as abrasive or disrespectful.
+
+Gift-giving in business is a gesture of friendship, not formality. A small, thoughtful gift from your own country is welcome, especially if it reflects the seniority of the recipient without suggesting a bribe. If invited to someone's home, bring flowers or chocolates rather than wine, which is considered everyday rather than celebratory. Avoid lilies, chrysanthemums, or red blooms, all associated with funerals. Portuguese companies often exchange Christmas gifts with clients, so suppliers should anticipate this custom.

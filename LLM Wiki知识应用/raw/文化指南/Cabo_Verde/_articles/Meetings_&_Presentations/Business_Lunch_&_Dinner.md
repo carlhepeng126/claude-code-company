@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals in Cabo Verde tend to be relaxed and relationship-focused rather than tightly scheduled events. While formal meetings often take place in offices, lunch or dinner offers a different setting where hierarchy softens slightly and conversation ranges beyond immediate work topics. The meal itself is a way to get to know someone, and there's an expectation that business will emerge naturally from the exchange rather than be forced early on. Starting a lunch by pulling out an agenda or steering straight into contract details can feel abrupt and may weaken rapport before it has had time to form.
+
+Cabo Verdean cuisine reflects the islands' Atlantic position and history of migration and trade. Fish and seafood are central, often grilled or stewed with tomato, onion, and peppers. *Cachupa*, a slow-cooked stew of corn, beans, and sometimes fish or meat, is considered the national dish and appears on many restaurant menus. Meals are typically accompanied by rice, manioc, or sweet potato. Desserts are often simple: fresh fruit, coconut sweets, or *pudim* (a caramel flan). Coffee, strong and sweet, usually marks the end of the meal.
+
+Restaurants may not serve alcohol widely outside of hotels or tourist areas, though beer and local spirits like *grogue* (a cane rum) are available in more relaxed settings. If you're arranging a meal, it's worth checking the venue in advance, particularly if your counterpart observes religious practices. Sharing food is common, and offering a taste from your plate is a gesture of warmth. Pace is generally unhurried, and meals can extend well beyond an hour, particularly at dinner.

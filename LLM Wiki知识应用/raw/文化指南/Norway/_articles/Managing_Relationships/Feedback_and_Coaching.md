@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Norway tends to be direct because clarity is culturally read as honesty and respect for shared reality. The goal is to keep things clean and workable rather than to perform politeness. This directness grows out of a flatter moral culture where feedback is often treated as something peers exchange, not something delivered downward. That reduces ceremony, but it also means people can be sensitive to anything that looks like a performance of superiority. If your feedback comes with visible hierarchy or emotional intensity, it may be read as pressure rather than partnership.
+
+Tone matters as much as content. A steady, calm delivery style shows that the feedback is about the work or the shared goal, and that you are offering it as an equal. Raising your voice or leaning into drama can feel like an attempt to dominate. Similarly, because personal life is culturally treated as private, feedback that wanders into identity, personality, or private circumstances can feel intrusive. The boundary between what is relevant and what is too personal is strongly felt. Keep your observations anchored in observable issues and shared objectives.
+
+In Oslo and other internationalized settings, multiple feedback cultures coexist. People may negotiate norms explicitly rather than assuming a single Norwegian pattern. If you are working across styles, agreeing early on what feedback looks like and when it happens can prevent mismatched assumptions. A colleague from a culture where feedback is softened or delayed may read Norwegian directness as blunt, while a Norwegian colleague may read indirectness as evasion or unclear intent. Both responses follow their own logic.

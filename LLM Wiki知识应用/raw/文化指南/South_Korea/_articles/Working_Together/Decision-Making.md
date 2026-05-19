@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+In South Korea, decision-making authority sits firmly at the top. Senior leaders hold final decision rights, even when input is gathered from across the team. Younger staff provide analysis, research and options, but they defer to top management when it comes to approval. This reflects a Confucian understanding of responsibility, where seniority brings not just privilege but also duty. Age and rank are seen as markers of experience and moral weight, so the person who decides is also the person who will be held accountable if things go wrong. Decisions are framed in terms of group impact and long-term stability, not just immediate outcomes.
+
+Many leaders consult privately before making visible decisions. They seek input from trusted advisors, often outside formal meetings, to build alignment and reduce risk. This means that what happens in the meeting room may not be where the decision is truly made. Follow-up conversations, internal review and informal soundings are all part of the process. For colleagues from cultures where decisions are made quickly and openly in group settings, this can feel slow or opaque. From a Korean perspective, rushing to a decision without proper consultation risks overlooking consequences and losing face if the choice proves wrong.
+
+Concern about reputational risk and failure makes decision-making cautious, particularly in large organizations. Framing recommendations in terms of collective benefit, risk management and evidence-based options makes it easier for leaders to choose and justify a path. Allow time for reflection rather than expecting immediate commitment, and identify who truly holds decision authority beyond job titles. Personal ties such as school, birthplace or family connections can influence who is consulted and whose view prevails, so understanding these relationships helps clarify how decisions move forward.

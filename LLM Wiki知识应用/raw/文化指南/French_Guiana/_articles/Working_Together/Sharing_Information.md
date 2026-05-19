@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+In French Guiana, sharing information professionally reflects a careful balance between French administrative culture and Caribbean relationship norms. People expect clear documentation and proper channels, shaped by the French legal and bureaucratic framework that structures workplaces. At the same time, information flows more naturally once a personal connection exists. A colleague may withhold useful context in an initial meeting but share it readily once rapport is established. This combination means that formal requests alone rarely produce the full picture. Building trust through regular face-to-face interaction, even informally, opens access to information that would otherwise remain unstated.
+
+Hierarchy influences who shares what and when. Junior staff often defer to managers before passing information upward or outward, even when they hold relevant knowledge. Bypassing this chain can create tension, as it may be seen as undermining authority. At the same time, information does not always cascade downward as expected. Managers may assume that team members will ask directly if they need something, rather than proactively distributing updates. If you are used to regular status reports or shared dashboards, you may need to ask more often and more directly than feels natural.
+
+Regional and cultural diversity within French Guiana adds another layer. Colleagues from Amerindian, Maroon, Creole, or metropolitan French backgrounds may have different expectations around what should be shared openly versus what remains within a trusted group. In smaller communities or among colleagues with deep local ties, information often circulates through informal networks before it appears in formal channels. Understanding this means recognizing that timely access to information may depend as much on your presence in the right conversations as on your position in the organizational chart.

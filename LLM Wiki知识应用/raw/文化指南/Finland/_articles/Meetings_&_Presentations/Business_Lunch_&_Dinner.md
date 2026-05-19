@@ -1,0 +1,11 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Many Finns eat a hot lunch in the workplace canteen between 11:00 and 12:30. It's subsidised, quick, and designed to be functional rather than social. The one-hour slot is standard, and the meal itself is often eaten without much ceremony. This reflects a broader preference for keeping work tasks efficient and respecting everyone's schedule. Two-hour business lunches are rare outside senior-level or international contexts. If you're meeting a Finnish colleague over lunch, treat it as a chance for short, focused conversation or an informal check-in, not as the setting for lengthy negotiations or relationship-building.
+
+Buffets are common, especially in workplace canteens, and there's an unwritten norm around moderation. Finns generally take modest portions first and avoid piling plates high. Going back for a second helping is fine, but wasting food or making a big show of how much is on offer reads as inappropriate. The principle is simple: take what you'll eat. Avoid loud commentary about the food unless someone else opens that door.
+
+Dinner is more popular than lunch for entertaining, partly because there's less time pressure and partly because alcohol is more acceptable in the evening. Finnish food has traditionally been meaty and high in fat, though fish and lighter options are now more common. Reindeer is sometimes offered to visitors as a local specialty. Wine is increasingly served with meals, especially in restaurants or when hosting guests, and schnapps, a small shot of vodka or aquavit, may appear before cold fish courses or crayfish. It's considered part of the ritual, not a call to excess.
+
+The main corporate social event is often the *pikkujoulut* (little Christmas party) in late autumn. It's more festive and relaxed than most work events, with food, drinks, and sometimes karaoke or live music. People do loosen up, but Monday still arrives. If you're invited, enjoy yourself, but stay within limits you won't regret the next day. Reputations can shift at these gatherings, and colleagues will remember how you carried yourself.

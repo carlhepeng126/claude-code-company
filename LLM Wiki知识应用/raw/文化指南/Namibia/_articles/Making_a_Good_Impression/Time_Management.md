@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Namibia is organized around multiple realities: geography, seasonality, and the moral weight of community obligations. Distance functions as a real scheduling constraint. Sparse settlement patterns and long travel times mean that movement must be planned around road conditions and the practical costs of getting from one place to another. What looks like a short journey on paper can take hours, and this shapes how people commit to meetings and when they can realistically arrive. Travel time is lived constraint, not an excuse.
+
+Environmental rhythms also structure availability. In pastoral and farming-linked regions, rain patterns, drought cycles, and livestock realities influence when people travel, gather, or prioritize certain obligations. Seasonality becomes a social organizer, affecting not just agricultural work but the timing of movement and decision-making. Church and community events such as funerals, weddings, and church conferences can re-prioritize calendars quickly because they are understood as duties of belonging. Attendance is a moral obligation, and planning benefits from recognizing that these events can shift availability with little advance notice.
+
+Urban and rural contexts run on different organizing logics. Windhoek and other towns often follow more institutional schedules, where punctuality and deadline adherence are expected and respected. Rural settings may be more event-driven, where community obligations and environmental conditions shape the tempo of daily life. These are not stereotypes about lateness but differences in what must be honored first. Regional variation also influences pacing: northern, coastal, river-region, and southern communities each reflect different daily rhythms shaped by ecology, livelihood, and proximity to borders.

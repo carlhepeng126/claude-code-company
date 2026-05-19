@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hosting in Germany reflects the broader cultural commitment to reliability and respect through preparation. A good host provides clear, detailed invitations that include start times, addresses, parking instructions, and any dietary expectations. Ambiguity or last-minute changes can feel careless rather than spontaneous. This thoroughness extends to reservations, seating arrangements at formal gatherings, and punctual starts to sit-down dinners. For a German host, smooth organization demonstrates that the guest has been thought about in advance.
+
+The home is more private in Germany than in many cultures. An invitation to someone's house often signals a genuine desire for friendship rather than networking or routine socializing. Guests are expected to respect this boundary by not pushing for invitations and by following household customs when invited. Removing shoes or wearing house slippers, bringing a modest gift like flowers or chocolates, and arriving on time are all part of the unspoken script. A colleague from a culture where entertaining is more frequent or informal may read this formality as distance, while a German host may view casual drop-ins or spontaneous hosting as unprepared and inconsiderate.
+
+Reciprocity is expected over time, often expressed as "next time, we'll host," but it should feel balanced rather than competitive. Lavish or showy generosity can create discomfort rather than gratitude. A short follow-up message the day after being hosted is appreciated and closes the loop. When hosting, spelling out format and even dress code reduces anxiety and shows consideration for your German guests.

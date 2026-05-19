@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Being offered tinto, a small black coffee, in a Colombian office or institution is a basic courtesy. Accepting it, even if you only take a sip, honours the ritual of seeing each other as people before business begins. Refusing everything and rushing straight into the agenda can come across as cold and transactional. The same applies to water or juice. The moment of sharing a drink is brief, but it sets the tone for what follows. A colleague from a culture where meetings begin with agendas rather than refreshments might read this as unnecessary delay, while a Colombian counterpart might find the absence of that gesture impersonal or abrupt.
+
+Colombians cultivate warm, polite, often expressive interaction, but many also hold what's known as *malicia indígena*, a streetwise suspicion that quietly asks "where's the catch?" This doesn't contradict the warmth. It sits alongside it. People are genuinely courteous, but they are also watching for reliability and motives. In practice, this means combining friendliness with clear, calm explanations. Answer questions directly, even when they probe intent, and expect follow-up that tests consistency.
+
+Avoid references to Pablo Escobar, narco dramas, or "is it safe?" questions. For many Colombians, these bring up stigma they are actively trying to move beyond. Show interest in music, nature, food, the peace process, or innovation instead. In some offices, frequent interruptions are normal. People come and go, phones ring, assistants step in mid-conversation. Hierarchy and a sense that urgency is part of daily rhythm make these disruptions more acceptable. Don't react with frustration. Keep your centre, and treat assistants and junior staff with the same respect you show senior colleagues. They often hold influence.

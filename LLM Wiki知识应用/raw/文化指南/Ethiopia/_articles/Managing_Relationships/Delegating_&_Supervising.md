@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Hierarchical authority runs deep in Ethiopia, shaped by an ancient imperial tradition and reinforced by both Ethiopian Orthodox Christianity and Islam. The cultural concept of *yilugnta* (a sense of timid deference to collective welfare and social order) actively discourages individuals from standing out, expressing dissent, or taking initiative that might be read as overstepping. This means that silence in a meeting rarely reflects agreement. It more often reflects a reluctance to step forward in a group setting, where individual visibility can feel socially risky.
+
+One-on-one conversations will give you far more honest information than team discussions. If you want people to flag problems or suggest alternatives, you will need to create and name that opening explicitly, and demonstrate personally that candour will not come at a social cost. Teams typically expect close guidance and clear instruction. A manager from a culture where autonomy is prized might read this as a lack of initiative. A colleague in Ethiopia might read that same manager's hands-off approach as disinterest or unclear leadership.
+
+Individual performance frameworks sit uncomfortably in this vertical collectivist culture. Feedback, recognition, and accountability are better framed around the team or the outcome rather than directed at individuals. Singling someone out, even positively, runs against the grain. Age and seniority also shape credibility. A younger expatriate manager may need to build trust more deliberately, especially with older team members.

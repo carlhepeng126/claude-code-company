@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business relationships in Senegal are often nurtured outside the conference room, in settings that range from neighbourhood dibiteries (grilled meat places) to seaside restaurants to live concerts, wrestling matches, or football games. The choice of venue reflects the evolving nature of the relationship and the level of formality intended. A casual dibiterie or maquis (local open-air restaurant) signals familiarity and ease. A concert or sporting event offers a more relaxed frame in which people can connect beyond professional roles. Each setting builds the relationship differently, and accepting invitations to these places demonstrates your willingness to engage beyond formalities.
+
+Hospitality in these contexts reflects teranga, the Senegalese ethic of generosity and care. Even in simple settings, a host will order generously, check that everyone is comfortable, and ensure no one is sidelined in conversation. Splitting the bill equally is uncommon. The host typically assumes the cost, and the gesture itself reinforces the relationship. When you host, follow the same logic: order enough, pay attention to who might be quieter or less engaged, and make sure everyone feels included, not just the senior person at the table.
+
+Live music is an active part of the evening, not background noise. Sharing a performance by a well-known singer or local band can strengthen relationships in ways that formal dinners cannot. Asking about the music, the artist, or the genre shows genuine interest and opens conversation that goes beyond business. Business itself may come up lightly or not at all during these gatherings. The host usually decides when, and pressing too early can feel transactional. The evening itself is the point: a chance to understand each other more fully and demonstrate that the relationship matters beyond the contract.

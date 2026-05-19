@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Guadeloupe typically begin with personal connection before business begins. Spending time on informal conversation at the start reflects the relational foundation of professional life here. Rushing through greetings or launching straight into an agenda can feel abrupt and may undermine trust. A colleague from a culture where meetings follow strict schedules might interpret this opening as inefficient, while someone from Guadeloupe meeting colleagues who skip this phase may see it as cold or transactional. Building rapport is not a delay but a way of establishing the relationship that allows the work to proceed.
+
+Hierarchies shape who speaks and when. Senior figures are expected to guide the discussion, and their presence signals seriousness. Invitations should reach the appropriate level of seniority to ensure decisions can be made. Contributions from junior participants may be limited unless explicitly invited, particularly in more formal settings. If you need input from specific individuals, consider setting the tone early to encourage broader participation.
+
+Decisions are rarely made during the meeting itself. Discussions tend to explore ideas and assess alignment rather than lock in outcomes on the spot. Pushing for immediate commitments can create discomfort or lead to vague assurances that are not followed through. Allow time after the meeting for reflection and consultation. Follow-up conversations often clarify what was agreed and move things forward more reliably than expecting a definitive answer before the room clears.

@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Mexico is central to building the personal relationships on which professional collaboration depends. Meals are where trust deepens and people see how someone behaves beyond formal settings. Accepting an invitation is a gesture of respect and openness. Declining without good reason can slow the development of trust. These gatherings are rarely transactional. Business may be discussed lightly or not at all, and it's typically the host who introduces work topics, if anyone does. Raising business too early can make the occasion feel instrumental rather than relational.
+
+The meal itself varies by time and setting. Power breakfasts in cities like Mexico City and Monterrey tend to be more focused, with figures and strategy discussed directly. Lunch, often the main meal of the day starting around 1.30 to 2pm, can stretch several hours and is used for networking, storytelling, and sometimes closing a deal. Dinner, usually lighter and served around 9pm, is more social, with conversation turning to family, shared interests, and personal connection. Showing interest in regional food traditions, from Oaxacan cuisine to northern grilled meats to coastal seafood, is appreciated and signals cultural respect.
+
+Religious and regional norms influence alcohol expectations. Many Mexicans drink socially, but others abstain, especially in more devout or rural communities. Asking about preferences or offering non-alcoholic options avoids awkwardness. The person who extends the invitation usually pays, and suggesting a split can be seen as impolite. Where hosting dynamics are sensitive, settling the bill discreetly in advance can be useful. Service is typically not included, so a tip of around ten to fifteen percent is expected.

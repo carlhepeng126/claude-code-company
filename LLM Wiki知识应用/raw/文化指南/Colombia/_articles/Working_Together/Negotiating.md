@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiations in Colombia open with jokes, stories, and flirtatious warmth, a display of *calor humano* (human warmth) that sets the relational foundation for everything that follows. But underneath the friendliness sits *malicia indígena*, a sharp, street-smart instinct for where someone might be shifting risk, inflating costs, or abusing power. A Colombian counterpart will read your proposal not just for what it says but for where it might hurt them or their team. If you present a deal without explaining how risk and benefit are distributed, you may find questions coming back wrapped in humor but carrying real concern.
+
+Pushes and appeals are rarely framed as cold, numeric bargaining. Instead, you will hear phrases like "Doctor, ayúdeme" (Doctor, help me) or "con esa tarifa no me da" (with that rate, it doesn't work for me). These are not theatrics. They are emotional narratives that explain pressure, thin margins, and survival in a context where many businesses operate with little buffer. A colleague from a culture where negotiation means swapping numbers quickly may hear this as delay or indirectness. A Colombian counterpart, in turn, may read a data-heavy, emotionally neutral proposal as a sign that you do not understand the realities they face or that you are unwilling to help when flexibility becomes necessary. If you respond to these appeals with creative solutions that acknowledge their constraints, loyalty often runs deep.
+
+Most deals involve invisible stakeholders. A union with the power to stop operations, a community leader who controls access to a road, a municipal official who expects recognition. Colombians assume these actors exist even if your slide deck does not mention them. Ask early, "¿Quién más se vería afectado por este acuerdo?" (Who else would be affected by this agreement?), and plan how to inform or benefit them, or they may appear later as obstacles you did not anticipate.

@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Timor-Leste is shaped by the interplay of resistance-era values and traditional elder authority. Many current leaders, including senior government and business figures, earned their standing through participation in the independence struggle. This history means that leadership is often associated with personal sacrifice, moral authority, and a willingness to serve the collective. Leaders are expected to demonstrate humility and to act as protectors of the group, especially when dealing with outsiders or advocating for community needs.
+
+At the same time, respect for age and seniority remains deeply rooted. Elders hold influence not only within families but also in community and organizational settings. Decisions are rarely made in isolation. Even when a leader has final say, consultation with trusted advisors, older colleagues, or respected community members is expected. This process can take time, and managers from cultures where decisions are made quickly may read the consultation as hesitancy or inefficiency. From a Timorese perspective, skipping consultation risks alienating key stakeholders and undermining the legitimacy of the decision itself.
+
+Younger professionals, particularly those educated abroad or working in international organizations, may push for more participative approaches. However, open challenge to a senior leader's view is still uncommon in formal settings. Disagreement is more often expressed privately, through intermediaries, or indirectly in group discussions. A manager who invites input but then hears little in a meeting should not assume agreement. Follow up one-on-one to create space for honest feedback.

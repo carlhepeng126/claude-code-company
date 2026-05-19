@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Slovak negotiation style draws on a cultural orientation that prefers practical realism over theatrical persuasion. The country's history of peaceful political transformation in 1989 and the orderly separation from the Czech Republic in 1993 suggests a broader preference for agreement-making that reduces uncertainty and preserves working relationships. Persuasion works best when it feels grounded and sincere rather than like a performance. Clear trade-offs, realistic commitments, and a calm tone build trust more reliably than forceful selling. If you present a proposal with overblown assurances or dramatic pressure tactics, your counterpart may read it as unreliable rather than confident.
+
+The process may move slowly, especially when decisions need to travel up the hierarchy. Pushing for speed or expressing impatience can weaken your position, as it suggests you are less invested in the durability of the outcome. Summarize agreements as you reach them and clarify next steps in writing, as there can be a tendency to give agreeable answers in the moment rather than direct refusals. Revisiting what has been confirmed helps keep both sides aligned without assigning blame, which is especially important in a culture where direct criticism can damage rapport.
+
+Fairness and respect are especially salient where trust has been strained by exclusion or inequality. In Hungarian-speaking regions, for example, language and identity may form part of what feels respectful in discussion. Small adaptations, such as acknowledging local realities or using appropriate terminology, signal that you recognize the diversity within the country rather than assuming a single national frame. This sensitivity reinforces legitimacy and helps negotiation stay on stable ground.

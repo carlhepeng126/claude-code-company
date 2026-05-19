@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Tuvalu, time follows the rhythm of community life rather than the clock. Meetings and commitments are shaped by relational priorities, the weather, and the reality of living on small, remote islands where travel depends on tide and availability. A scheduled appointment might shift because someone needs to help with a family matter, because a boat departure has been delayed, or simply because the conversation that came before it was not yet finished. This flexibility reflects a worldview in which maintaining relationships and responding to immediate needs takes precedence over rigid schedules.
+
+The distinction between formal and informal settings can help clarify what to expect. In government offices or when engaging with international partners, there is growing recognition that punctuality supports professionalism, particularly where external deadlines or donor timelines are involved. Even so, meetings may still begin once everyone has arrived and greetings have been properly exchanged. In community or family contexts, time is more fluid. A gathering set for midday may start an hour later without explanation, and no offense is taken.
+
+A colleague from a culture where meetings start exactly on time may read this flexibility as disorganization or lack of commitment. From a Tuvaluan perspective, starting before everyone is present, or cutting short a conversation to keep to schedule, can feel abrupt and disconnected from the human purpose of the meeting. Recognizing this difference means adjusting expectations on both sides. If you are working with Tuvaluan counterparts, build buffer time into your planning and confirm arrangements closer to the date. If you are Tuvaluan and working with partners who rely on fixed schedules, signaling delays early and reconfirming times helps maintain trust without abandoning the relational approach that underpins local collaboration.

@@ -1,0 +1,38 @@
+filters:
+  and:
+    - file.folder == "ACT笔记-深度思考/7-Rading"
+views:
+  - type: cards
+    name: 表格
+    filters:
+      and:
+        - file.folder == "ACT笔记-深度思考/7-Rading"
+    order:
+      - file.name
+      - cover
+      - readingTime
+    image: note.cover
+    imageAspectRatio: 1.15
+  - type: cards
+    name: 视图
+  - type: list
+    name: 视图 2
+    order:
+      - file.name
+      - author
+      - readingTime
+      - readingStatus
+      - readingDate
+      - progress
+      - cover
+  - type: table
+    name: 视图 3
+  - type: cards
+    name: 视图 4
+    cardSize: 150
+    image: note.cover
+    imageAspectRatio: 1.25
+  - type: cards
+    name: 视图 5
+    image: note.cover
+    imageAspectRatio: 0.9

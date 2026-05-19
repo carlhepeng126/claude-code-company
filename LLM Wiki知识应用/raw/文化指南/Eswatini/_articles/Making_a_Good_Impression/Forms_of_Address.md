@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Titles anchor professional interaction in Eswatini and reflect a deep regard for hierarchy, age, and earned status. The formal use of Mr., Mrs., or Miss, followed by the surname, is expected in workplaces and introductions. Academic or professional titles such as Dr. or Professor should be used when known. The shift to first names happens only once invited, typically after trust has been established through repeated interaction or a clear signal from the senior person.
+
+This formality is rooted in respect for seniority and position within both workplace and community structures. Address conveys recognition of someone's standing, and getting it right opens the door to trust. In settings where hierarchy is visible, junior colleagues may wait for senior figures to initiate a more informal tone. A colleague from a culture where first names are offered quickly may interpret this reserve as stiffness, while someone from Eswatini may read early informality as presumptuous or dismissive of their role.
+
+Greetings typically include a handshake, often soft rather than firm, accompanied by warm eye contact and a verbal acknowledgment such as "Sawubona" (hello) or "Good morning." Rushing this moment or moving too quickly into business undercuts relationship building. Taking time to greet each person individually, especially in group settings, signals respect and shows you understand the relational foundation that underpins professional exchange. Skipping this step, even in the interest of efficiency, can leave an impression of distance or disregard.

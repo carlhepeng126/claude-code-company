@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Turkmenistan is delivered with careful attention to hierarchy and respect for personal dignity. The Soviet legacy of top-down management combined with traditional Turkmen values of deference to authority means that coaching rarely happens between equals. Managers give guidance, but it tends to be framed as instruction rather than dialogue. Direct criticism, especially in front of others, risks causing deep embarrassment and can damage the relationship permanently. Even in private, negative feedback is softened through indirect language or delivered through a trusted intermediary who can frame the message more gently.
+
+Praise is welcome, but it should be measured and sincere. Public recognition can raise a person's standing, but excessive praise may be met with skepticism or discomfort, particularly if it singles someone out too sharply from the group. In a workplace culture shaped by caution and limited trust beyond close circles, effusive compliments from a manager who is not yet well known may feel strategic rather than genuine. Managers from cultures where frequent positive reinforcement is standard may find their feedback acknowledged politely but not taken to heart.
+
+Younger professionals, particularly those with international exposure, may be more open to structured feedback conversations, but even they will expect the tone to remain respectful and the setting to be private. Coaching works best when it is patient, relationship-based, and delivered with an understanding that change happens slowly and often only when the person feels secure.

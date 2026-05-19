@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Entertaining in Kenya is about building relationship, and the meal itself provides time to connect in a more relaxed setting. Food and hospitality are taken seriously across most Kenyan communities, shaped by traditions from Bantu, Nilotic and Cushitic cultures, coastal Swahili influences, and modern urban life. Hosts aim to make guests feel comfortable and valued, and business gatherings are rarely transactional. Showing warmth and engaging genuinely in conversation supports rapport far more than sticking to business topics.
+
+Lunch is often preferred, especially inland, where many people face long commutes and prefer lighter evening meals. In Nairobi and larger cities, meeting for a drink after work is common. On the coast, the rhythm differs. Many Asian and Muslim Kenyans may go home for lunch or bring food to work, making dinner a better option. If hosting Muslims, choose a venue that serves halal meat and avoid offering alcohol. Coastal Muslim contexts may avoid alcohol entirely, while other settings are more flexible. Checking the tone of the table before ordering is always wise.
+
+Food is often enjoyed first, conversation later. It's not unusual to see quiet appreciation during the meal itself, with talk resuming once plates are cleared. The gathering is often the point, a way to strengthen trust and observe how people interact. Business may come up lightly, if at all, and it's usually the host who decides when. Bringing it up too early can feel rushed or instrumental. Reciprocating an invitation, either during the visit or on a return trip, is appreciated and builds continuity.

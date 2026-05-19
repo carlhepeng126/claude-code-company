@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Formal address in Guinea-Bissau reflects both Portuguese colonial legacy and deep respect for hierarchy and age. Professional titles are used with surnames until a relationship develops, and seniority commands visible deference. In official or business settings, address colleagues as Senhor (Mr.) or Senhora (Mrs.) followed by the last name, or by professional title where applicable—Doctor, Engenheiro (Engineer), or Licenciado (a university graduate, often in law or humanities). The shift to first names happens gradually and typically follows an invitation from the senior person, not assumption from the junior.
+
+This formality operates alongside strong relational warmth once initial respect has been shown. Handshakes are standard in professional contexts, often extended and accompanied by direct eye contact. Among those who know each other, greetings may include a light touch on the shoulder or forearm, particularly among men, and women may exchange cheek kisses. The contrast can surprise colleagues from cultures where formality and physical warmth are seen as incompatible. In Guinea-Bissau, both coexist: the title acknowledges position, the gesture acknowledges the person.
+
+Younger professionals in Bissau, especially those with international experience, may adopt more relaxed styles in tech or creative sectors, but defaulting to formality remains safer across generations and industries. In written communication—emails, letters, formal requests—maintain full titles and structured openings. Informality introduced too early can read as disrespect, particularly when age or rank differences are present. Let the other person set the tone for familiarity, and follow their lead rather than rushing the transition.

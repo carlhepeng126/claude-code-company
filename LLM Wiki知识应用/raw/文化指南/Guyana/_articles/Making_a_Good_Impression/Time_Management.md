@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time management in Guyana reflects deep social and relational priorities shaped by the country's colonial history and multi-ethnic makeup. British colonial structures introduced formal scheduling and administrative timelines, but these sat alongside lived realities where social cohesion, family obligations, and face-to-face trust often took precedence. The result is a context where punctuality is understood and acknowledged, but rarely enforced rigidly unless the situation or relationship demands it.
+
+In practice, meetings often begin after an initial period of greeting and informal conversation, particularly in government offices, small businesses, and community settings. This isn't inefficiency. It reflects a belief that relationships must be acknowledged before business can proceed. Arriving exactly on time to a meeting may mean waiting while others settle in, and starting 15 to 30 minutes late is common. A colleague from a culture where meetings begin precisely as scheduled may read this as disorganization, while a Guyanese counterpart may view immediate task focus as transactional or impersonal.
+
+Deadlines and commitments are taken more seriously in sectors with international ties, such as export businesses or multinational firms, where global expectations shape daily rhythms. In family-owned enterprises or public institutions, timelines may shift based on who is involved, what else is happening, or whether a decision requires further consultation. Pressing for speed without understanding the relational context can generate resistance or delay things further, as trust and clarity often matter more than urgency in determining when something moves forward.

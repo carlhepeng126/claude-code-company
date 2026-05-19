@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+Motivation in Burundi is deeply tied to relationships and respect. People respond when they feel valued, seen, and connected to those they work with. A manager who takes time to acknowledge someone's contribution, who shows interest in how they are managing, or who includes them in a decision that affects the team, builds trust that makes people want to give more. Recognition works best when it is personal and genuine, delivered in a way that reinforces dignity rather than singles someone out in a performative way.
+
+Financial incentives matter, but they function differently than in some environments. Salary alone does not drive sustained commitment. What people are often working toward is the ability to support family, contribute to their household's standing, and maintain their place in a wider network of obligation and care. A manager who understands this will see that motivation is less about individual ambition and more about enabling someone to fulfill responsibilities that extend beyond the workplace.
+
+Younger professionals, particularly those with university education or exposure to international firms, may seek opportunities for training, skill development, or roles that offer visibility and career progression. In more rural settings or among those with fewer formal qualifications, stability and steady income may carry more weight than advancement. What remains consistent across contexts is the expectation that work should allow people to meet their social and family commitments. Rigid deadlines that disrupt these responsibilities, or targets imposed without consultation, tend to drain motivation rather than spark it.

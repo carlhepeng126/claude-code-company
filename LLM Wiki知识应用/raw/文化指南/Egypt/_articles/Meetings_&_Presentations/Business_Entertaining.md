@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Where you host speaks before you do. An ahwa (traditional café) or a modest koshari place might suit a longstanding contact of similar social standing. Grilled fish by the Nile or along Alexandria's waterfront fits a relaxed mid-level business relationship. Five-star hotels and Nile cruises signal status, foreign guests, or a high-level tie. Egyptian colleagues read this instantly; the venue calibrates for class, formality and the weight of the relationship. Letting local colleagues suggest or co-choose the setting ensures you avoid mismatches that can feel awkward or even disrespectful.
+
+Business entertaining builds trust, but the settings are still shaped by older social norms. Cafés and late-night venues, especially in working-class neighborhoods, remain largely male spaces. Younger middle-class professionals in Cairo may socialize in mixed groups at malls and restaurants, but many still navigate family expectations around reputation and modesty. If you're hosting a mixed team or including female colleagues, check preferences discreetly and choose venues where everyone can participate comfortably.
+
+How you treat waiters, drivers and valets is closely watched. A person who speaks harshly to service staff or makes a show of wealth can lose moral credibility quickly, regardless of professional competence. Egyptians often assess character through these small interactions, and a pattern of arrogance during a meal can damage a relationship more than a poorly argued proposal. Consistent respect toward everyone in the room, not just the decision-makers, earns trust in ways that formal credentials alone do not.

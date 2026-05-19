@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hospitality in professional China is relationship work made visible. Hosting is not simply generous; it demonstrates that the connection has priority and that effort has been invested in understanding what the guest values. Preparation is noticed and remembered because it reflects seriousness about the partnership. If you host Chinese colleagues or clients, choose a venue and menu that reflects their preferences rather than showcasing your own. This means selecting a restaurant with Chinese food if that's where they are comfortable, even if you're tempted to introduce something new. If you are reciprocating an invitation, match the tone and scale of the event you were given, rather than escalating. Outdoing someone in hospitality can create discomfort and unbalance the relationship.
+
+Gifts play a similar role. A modest, thoughtful gift presented at the right moment establishes mutual respect and acknowledges the relationship. The exchange itself becomes part of the shared history between you. Gift-giving is reciprocal; it creates a sense of ongoing connection and obligation that supports long-term collaboration. When receiving a gift or when tea is served, accept it with both hands. This gesture communicates respect and reinforces the warmth of the exchange.
+
+Including spouses or senior family members at social events, when appropriate, extends the relationship beyond the individual and into a wider circle of trust. This signals that the connection is valued at more than a transactional level. A colleague from a culture where business and personal life are more strictly separated might interpret this as blurring boundaries, while from the Chinese perspective, it demonstrates that the partnership is being treated with real depth and commitment.

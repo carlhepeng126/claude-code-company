@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+The French Southern Territories host only a small, rotating population of scientific researchers, support staff, and military personnel stationed across remote bases. Feedback in this environment unfolds through highly relational, face-to-face exchanges shaped by the proximity and interdependence of isolated station life. Most personnel are French nationals, and French communication norms apply, but the operational context adds its own layer of directness and informality.
+
+Researchers and station leaders give feedback clearly and often immediately, especially when safety, equipment, or project timelines are involved. The isolation means small issues can escalate quickly, so pointing out a problem early is understood as responsible, even protective. However, this directness is balanced by the interpersonal closeness of small teams living and working together for months at a time. Criticism is typically delivered one-to-one, often over coffee or during fieldwork, and is framed as shared problem-solving rather than evaluation. A station chief might say, "We need to rethink how you're logging that data, it's causing confusion downstream," speaking as a colleague rather than a superior.
+
+Public praise is common and helps reinforce morale in environments where recognition from the outside world is rare. Accomplishments are acknowledged in group settings, whether at a meal or during a weekly briefing, and these moments help maintain cohesion. Negative feedback, by contrast, stays private. Publicly calling someone out risks damaging relationships that must hold under close quarters for the remainder of a rotation, and reputational harm in such a small community can outlast the season.

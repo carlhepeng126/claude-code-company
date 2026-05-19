@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Tanzania, time unfolds through relationships and social context rather than clock-driven precision. Greetings, conversation, and personal check-ins form the foundation of trust and cannot be rushed or skipped without undermining the work itself. A meeting that begins with ten minutes of genuine social exchange is building the reliability that makes future collaboration possible. Colleagues from cultures where meetings begin exactly on time may read this as inefficiency, while Tanzanian professionals may view an abrupt start as transactional and likely to produce only surface-level commitment.
+
+Many Tanzanians navigate multiple time systems simultaneously. Urban office schedules run alongside agricultural cycles, informal trade patterns, and community routines shaped by extended family and neighbourhood life. This layered rhythm requires constant adaptation, and flexibility becomes a form of professional competence rather than disorganization. When plans shift to accommodate a family funeral, a religious observance, or a community responsibility, the change reflects moral priorities that hold real social consequences. Participation in these moments affirms belonging and fulfills obligations that cannot be postponed without damaging one's reputation.
+
+In practice, this means deadlines may stretch, and schedules may adjust at short notice. Build buffer time into project plans and confirm arrangements more than once, framing follow-up as coordination rather than pressure. Understand that time spent on connection now supports reliability later, and that responsiveness to people often holds more weight than rigid adherence to an original timeline.

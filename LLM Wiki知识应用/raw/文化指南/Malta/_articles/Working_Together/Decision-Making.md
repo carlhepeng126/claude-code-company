@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in Malta operates through both visible authority and invisible social networks. In a small island society where professional and personal worlds overlap, formal approval from a manager or senior leader may be necessary to proceed, but broader acceptance often depends on who else has been consulted and whose respect has been earned. This dual structure reflects the smallness of the environment: informal influence travels quickly, and decisions gain traction when they align with trusted voices in the network, not only with positional power.
+
+Public commitment can feel riskier than it appears. Dense social networks mean that a visible stance in a meeting or presentation may be remembered and discussed beyond the room. As a result, people often prefer to test ideas privately before declaring support or opposition in a group setting. A colleague from a culture where decisions are debated openly in real time may read this as hesitation or indirectness. From a Maltese perspective, the same open debate may seem unnecessarily confrontational or premature, bypassing the relational groundwork that makes agreement durable.
+
+Malta's dual orientation as both a tightly connected local society and a European Union member adds another layer. In internationally linked sectors such as finance, technology, or tourism, decision-making may blend outward-facing professionalism with local sensibilities. A proposal might be evaluated not only on its business logic but also on how it sits within community expectations or existing relationships. When working across borders, identify early who needs to feel consulted beyond the org chart, and build alignment quietly before pushing for visible agreement.

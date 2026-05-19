@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Guinea-Bissau is shaped by networks that often matter more than formal organizational structure. Collaboration flows through personal relationships and ethnic or regional affinity groups rather than through job titles or team charts alone. These networks reflect the country's long history of decentralized authority and the importance of communal ties in societies where institutions have been fragile. A colleague's willingness to help often depends on whether you share a connection through family, community, or shared experience. If you work with a team in Guinea-Bissau, invest time in building these relationships before expecting work to move quickly. Tasks that appear straightforward may require multiple informal conversations to activate the right connections.
+
+Seniority is respected, but leadership may not always be visible or direct. Elders or more experienced colleagues might guide a project quietly, offering input through indirect channels rather than in formal meetings. This reflects cultural values around preserving face and avoiding open confrontation. Younger or junior team members may hesitate to speak up in group settings even when they hold useful information. Creating smaller, less formal spaces for conversation can help surface ideas that won't emerge in front of a large or senior audience.
+
+Timelines and deadlines can be flexible, particularly when external pressures compete with internal social obligations or when resources are uncertain. A colleague from a culture where schedules are fixed may read this as disorganization, while a Bissau-Guinean colleague may see rigid timekeeping as disconnected from the realities of daily life. Building buffer time into plans and checking in regularly without framing it as pressure helps accommodate this difference without forcing either side to compromise their approach entirely.

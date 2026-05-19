@@ -1,0 +1,11 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+The UAE workplace is among the world's most genuinely multicultural. Emiratis represent less than 15 percent of the population, with the remainder comprising expatriates from South Asia, the Arab world, East Asia, and beyond. This means there is no single management culture to navigate. What exists instead is a layered environment in which Emirati cultural values and Islamic principles set the formal tone, while day-to-day collaboration with diverse colleagues demands significant cultural agility. A manager from a culture accustomed to standardized team norms may find this variation disorienting. An Emirati manager, by contrast, may read an overly uniform approach as tone-deaf to the realities of the team.
+
+Decision-making authority in Emirati-led organizations tends to remain concentrated at senior levels. Middle managers typically have limited scope to decide independently, and major policy questions are referred upward, often to the owner or family head. This is tied to both hierarchy and the extended family structure of many Emirati companies. Delegates rarely replace senior figures in negotiations, as doing so would undermine the perceived seriousness of the relationship. When delegating, focus on execution and detail, but expect strategic decisions to move through established channels.
+
+Wasta, the concept of influence rooted in relationships and connection, shapes what gets done. Investing in relationships beyond your immediate team opens doors and enables smoother outcomes. This extends to how you position people in meetings and how you frame requests. A colleague from a culture where formal authority alone determines access may find this relational layer unclear or even unfair. An Emirati colleague may read reliance on formal process alone as naïve or ineffective.
+
+Islamic observance structures the working day and year in visible ways. Prayer times, Friday as the holy day, and the altered rhythms of Ramadan all affect scheduling and energy. Managers who adjust meeting times, deadlines, and expectations accordingly build genuine goodwill. Correcting or criticizing someone in front of others, regardless of nationality, risks damaging face, a live concern across most cultures represented in UAE workplaces. Feedback should be delivered privately and with care.

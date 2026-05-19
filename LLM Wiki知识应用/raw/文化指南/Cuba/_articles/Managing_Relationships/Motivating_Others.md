@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+In Cuba, motivation runs less on individual reward and more on collective purpose and the relationships that hold work together. People respond to causes they can believe in, and to leaders who treat them as full people rather than functions. When a manager takes time to understand someone's family situation, acknowledges effort in front of the group, or shows genuine concern during a personal difficulty, that gesture builds loyalty that formal incentives rarely match. Recognition needs to feel personal and human, not mechanical.
+
+Material incentives exist, but they function within tight economic constraints and carry less weight than they might elsewhere. A small bonus or access to resources that ease daily life can be meaningful, but these work best when paired with respect and relational warmth. What energizes people over time is the sense that their contribution means something to the team and that they are seen and valued by those they work with. Trust and interpersonal connection fuel sustained effort more reliably than structure or compensation alone.
+
+Rigid targets and inflexible timelines rarely inspire. Cuban workplaces operate within a fluid, relationship-driven rhythm where personal and family needs take precedence and where improvisation in the face of scarcity is a daily reality. Pushing hard for clock-driven results, especially when it cuts into time at home, will drain commitment rather than build it. Managers who adapt expectations, maintain momentum without rigidity, and frame work as something done together rather than demanded from above will see far more engagement than those who rely on pressure or impersonal systems.

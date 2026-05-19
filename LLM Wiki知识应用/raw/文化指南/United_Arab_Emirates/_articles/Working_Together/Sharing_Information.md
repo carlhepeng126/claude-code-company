@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information in the UAE moves through two distinct layers that international colleagues should learn to navigate. Formal communications often echo the confident, world-class language heard in national narratives. Emails, presentations and official documents stay optimistic and visionary. Internal doubts about feasibility, partner capabilities or project timelines tend not to be written down. Instead, they circulate within trusted circles through quiet, off-the-record conversations. If you rely only on what appears in polished decks and formal channels, you will miss the reservations being voiced privately.
+
+Decades of regional instability have shaped caution around what gets documented, forwarded or recorded. Sensitive topics such as sectarian issues, labor disputes or social tensions are rarely spelled out plainly in writing. People write as if emails could be read by regulators, ministers or family members, which means tone stays respectful and content stays factual. Sarcasm or offhand remarks about religion, leadership or social norms can carry real professional risk, so they are avoided. If you want to hear genuine concerns or surface friction points, schedule informal face-to-face conversations where people can speak candidly without creating a written trail.
+
+Understanding both registers matters. Much business documentation is in English, but authentic sentiment is often discussed in colloquial Arabic during side conversations. Colleagues may share thoughts on whether a partner feels culturally misaligned or could cause reputational embarrassment, but these observations rarely make it into English meeting notes. Ask trusted Emirati or Arab colleagues how a proposal is likely to be talked about in Arabic. That question can reveal perception risks invisible in the English-language version and help you adjust approach before issues surface publicly.

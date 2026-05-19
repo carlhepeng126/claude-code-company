@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+In Malaysia, food does relational work. The phrase "let's makan" (let's eat) functions less as a meal proposal and more as an invitation into shared space where trust can form without the formality of a boardroom. Meals at kopitiam (traditional coffee shops) or mamak stalls create a setting where hierarchy softens and conversation can move beyond agenda items. This is especially valuable in a culture where directness in formal settings can threaten face. A relaxed table allows colleagues to explore reservations, float ideas, and signal hesitation through tone and ambiguity rather than outright disagreement.
+
+There is no single Malaysian table. What feels appropriate depends on the cultural center of gravity in the room. A lunch hosted by Malay-Muslim colleagues will likely observe halal norms, and choosing a certified halal venue is read as care and respect, not just dietary accommodation. A meal with Chinese-Malaysian colleagues may feature pork, and alcohol may appear at dinners in certain settings, though not universally. Assuming one default and choosing a venue or menu without checking can create discomfort or exclusion. Halal certification in Malaysia is tied to public trust and legitimacy, so getting it wrong can affect how seriously you're taken.
+
+Serving style often leans communal. Dishes are placed at the center, bread or rice is shared, and offering tastes to others is common. Eat with your right hand when utensils aren't used, especially in Malay or Indian settings. Meals move slowly. Rushing through courses or steering conversation too quickly toward deliverables can feel transactional and undermine the relationship-building the meal was meant to support.

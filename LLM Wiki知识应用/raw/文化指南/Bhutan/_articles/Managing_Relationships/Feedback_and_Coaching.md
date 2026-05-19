@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Bhutan is shaped by the deep cultural value placed on harmony and face, rooted in Buddhist principles that emphasize compassion and the avoidance of harm. Direct criticism, especially in front of others, risks causing shame and damaging relationships in ways that can be difficult to repair. Managers and senior colleagues tend to deliver corrective feedback indirectly, often through suggestion or by framing observations as questions rather than judgments. A supervisor might say, "Do you think there might be another way to approach this?" rather than pointing out an error outright. This allows the recipient to reflect and adjust without losing dignity.
+
+Praise is also given carefully. Public recognition can be uncomfortable for many Bhutanese professionals, as it draws individual attention in a culture that values collective contribution and humility. Acknowledging someone's work in private, or crediting the team as a whole, is often more appropriate. Younger employees in urban settings, particularly those with international experience, may be more receptive to direct feedback, but even then, tone and context remain important.
+
+Coaching is most effective when it feels relational rather than transactional. Building trust over time, showing genuine interest in someone's development, and offering guidance in a way that feels supportive rather than evaluative will make feedback more likely to be heard and acted on. Formal performance review systems can feel abrupt or impersonal if not accompanied by regular, informal conversation. In cross-cultural teams, a colleague from a culture where feedback is expected to be immediate and explicit may interpret this indirectness as avoidance, while a Bhutanese colleague may read bluntness as disrespectful or culturally insensitive. Framing feedback as a shared reflection, rather than a one-way assessment, helps bridge that gap.

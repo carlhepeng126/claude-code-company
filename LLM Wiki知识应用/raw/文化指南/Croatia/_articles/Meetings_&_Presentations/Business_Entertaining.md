@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Relationships grow through repeated, low-key outings rather than one lavish occasion. Croats favour kafić culture: regular coffees, beers or glasses of wine in familiar bars where staff know your name and you become part of the circle. Consistency matters more than spectacle. A colleague from a culture where rapport is built through high-profile gala dinners may read this pattern as casual or insufficiently serious, while Croatians may view extravagant one-off events as performative and wonder why the person doesn't simply return for another coffee.
+
+Regional pride shapes where and how people entertain. On the coast, expect a konoba (traditional tavern) with grilled fish, local olive oil and wine, often on a terrace overlooking the sea. Inland, business groups gather in kleti (wine cellars) or grill restaurants, with hearty meat dishes, tamburica music and heavy toasting. The setting itself expresses identity. Trying to upgrade a local choice to something more international risks offending the host, who has chosen the venue to share their region with you. Let colleagues lead, and honour the mood of the place rather than rushing through it like a transaction.
+
+Drinking is normal and expected, but losing control is remembered for years. Slurred speech, loud arguments or inappropriate flirting damage your reputation, especially if you are a leader or a foreigner. Participate enough to show you're engaged, but know your limit and stop early if needed. Notice too who attends evening events and who quietly opts out, often women with family responsibilities. If nightlife becomes the only path to access and influence, you risk narrowing the circle.

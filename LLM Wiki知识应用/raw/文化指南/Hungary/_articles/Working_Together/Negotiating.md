@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Hungarian negotiators often arrive at the table with what can look like defensive pessimism. They will name every conceivable risk: shifting tax rules, new EU requirements, local government delays, changes in funding streams. This is not obstructionism. It reflects a lived experience of instability, where policy and regulation can shift unexpectedly. Take their risk lists seriously. Build mitigation into the agreement rather than dismissing these concerns as negativity. A colleague from a culture where optimism is the opening stance may find this draining or unproductive; a Hungarian counterpart may see that same optimism as dangerously naive or uninformed.
+
+Expect a slow, circular process. Topics may be revisited more than once, explored from different angles, reopened after you thought they were settled. This is how Hungarians ensure nothing has been overlooked. Pressing for a faster decision or a binary yes-or-no answer mid-discussion will likely backfire. They prefer to deliberate, consult internally, and consolidate their thinking before committing. Watch body language and tone rather than waiting for explicit confirmation in the room.
+
+There is also a deep sensitivity to being treated as a junior partner. Language that implies decisions will be made elsewhere, that headquarters or Brussels has the final word, or that Hungary is simply being brought into line with a standard model can trigger quiet but lasting resistance. Frame proposals as mutually beneficial and involve Hungarian counterparts in shaping local adaptation. Be explicit about what must follow external rules and where flexibility exists. They will test those boundaries, not to undermine the deal, but to understand where real influence lies.

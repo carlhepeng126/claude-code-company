@@ -1,0 +1,11 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Algeria, a person is understood through who connects them, not just what they bring. This reflects older social structures where belonging was verified through networks, family, and locality. A direct cold approach can succeed in some urban professional settings, but an introduction from a credible intermediary usually opens doors faster and with more trust. The bridge matters because it places you in a relational map that people already understand. That placement helps others decide whether to engage seriously or remain politely distant.
+
+Authority and credentials get respectful acknowledgement on the surface, but credibility is tested quietly over time. Algeria's leadership history includes the disruption of local legitimacy during colonial rule and later centralized power, which left a cultural habit of discernment. People watch whether promises hold, whether you protect or expose others, and whether you follow through. Early-stage consistency counts more than a strong opening pitch. A colleague from a culture where contracts and credentials establish trust quickly may feel slowed by this cautious rhythm, while an Algerian counterpart may read rapid closure without relationship-building as transactional or unserious.
+
+Scheduling works best when confirmed a couple of weeks ahead and reconfirmed the day before, but real availability is shaped by religious rhythms and family duties. Friday and religious holidays hold different weight depending on household and region. Family obligations take strong priority, and meetings may shift to accommodate them. Greeting rituals and being offered tea or coffee establish moral standing before business begins. Skipping them can feel like social flattening.
+
+Regional and generational differences are pronounced. Coastal cities and international sectors move faster, while rural areas and regions with strong community governance traditions take more time to verify relationships. Younger professionals may schedule more quickly, but still watch for trust cues.

@@ -1,0 +1,152 @@
+![cover_image](https://mmbiz.qpic.cn/sz_mmbiz_jpg/QzzpDQVZdo7HUITxviaK8jfY2IltuicdVmWXsSmFP4MJia8lkAvEkhTB2qHR9IEN665TLlsxVUnOJd5Xw6aIpS9Pw/0?wx_fmt=jpeg)
+
+#  海纳百川，共铸未来 —— Speexx助力长安汽车商务英语培训
+
+Speexx  Speexx  [ Speexx ](javascript:void\(0\);)
+
+_2024年11月25日 14:59_ __ _ _ _ _ _ 上海  _
+
+在小说阅读器读本章
+
+去阅读
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/QzzpDQVZdo48GkLu7s2eWOZGRHLMPjhdLH62vytOibtIZ7NEfDpcnyr7DdriblIpgibQreiaTdeLMibUXc9kJW2u42g/640?from=appmsg)
+
+>
+> 在全球化的浪潮中，长安汽车以其“海纳百川”的胸怀，不断拓展国际视野，致力于成为世界一流的汽车品牌。为了进一步提升员工的商务英语能力，长安汽车携手Speexx，开启了一场别开生面的商务英语培训期中活动，旨在通过语言的力量，搭建起通往国际市场的桥梁。
+
+  
+
+01
+
+#  扬帆国际，语言为桥
+
+  
+
+长安汽车，作为中国汽车工业的佼佼者，始终秉承“海纳百川”的理念，不断吸纳全球智慧，推动企业的全球化进程。
+长安汽车历来重视人才培养，通过招募优秀人才、吸引顶尖大咖等战略举措，致力于实现高质量可持续发展，并加快建设汽车战略人才库，以更好地服务国家战略需求。长安汽车已经先后成立16个技术、产品研发中心，17家科技公司，拥有来自全球30个国家的技术研发人员1.7万余人，为长安汽车打造世界一流的研发实力提供了强有力的支撑。
+
+在此背景下，长安汽车特别邀请了国际知名的语言培训机构Speexx，为员工提供专业的商务英语培训，以期提升团队的国际沟通能力，更好地服务于全球客户。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/QzzpDQVZdo48GkLu7s2eWOZGRHLMPjhdIibFnX5vI4ChUsnEDh6WLEqd4FwTnPyxa5kgLw332jg4dbicaUjYxqNw/640?from=appmsg)
+
+  
+
+  
+
+02
+
+#  精英汇聚，共筑梦想
+
+Speexx以其创新的混合式培训方案而闻名，结合线上学习和线下互动，为学员提供全方位的语言学习体验。在本次培训中，Speexx特别针对长安汽车员工的实际需求，设计了一系列实用而高效的商务英语课程，涵盖了商务沟通、文化交流、市场分析等多个领域，确保每位参与者都能在实际工作中运用所学知识。除了语言技能的提升，Speexx还注重跨文化交流的培训，帮助员工理解不同文化背景下的商务习惯，促进国际合作。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/QzzpDQVZdo48GkLu7s2eWOZGRHLMPjhdicIJIDzAj5RGlcfptLamDyT8haibq6ZwodR94Tia96USlQepTmZMsSE7Q/640?from=appmsg)
+
+  
+
+  
+
+03
+
+#  课程丰富，实战导向
+
+本次商务英语培训班课程设计科学合理，内容丰富多元，涵盖商务沟通、跨文化交流、国际商务谈判等多个维度。本期培训配备了专业的英语教育资源及经验丰富的在线导师团队。通过线上互动课程、真实案例定制化剖析、虚拟场景模拟等多样化的学习模式，让学员能够在便捷、灵活的环境中提升语言能力，深入领会国际商务交流的核心要点。这种学习方式突破了时间和空间的限制，让学习变得更加高效和自主。
+
+在11月13日，我们迎来了商务英语培训的期中活动。本次活动，可谓是精彩纷呈，亮点不断。这是一场智慧火花激情碰撞的盛会，是语言能力实现质的飞跃的舞台，更是自信之帆无畏启航的起点。
+
+通过此次活动，长安汽车的员工们不仅在语言能力上有了显著提升，更重要的是，他们在跨文化沟通方面的自信心得到了极大增强。这不仅是一次简单的语言技能培训成果展示，更是长安汽车
+“海纳百川” 精神的生动诠释，充分彰显了长安汽车在全球化征程中坚定不移、砥砺前行的决心和雄厚实力。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/QzzpDQVZdo48GkLu7s2eWOZGRHLMPjhdzOnHUNsBvwPnp3VQcL8OEfp197j2OL9feLdgwZDemLj1XqnaspOavg/640?from=appmsg)
+
+在此次商务英语培训的期中活动中，Speexx的总裁Armin Hopp亲自莅临长安汽车公司，为活动增添了一份特别的荣誉。Armin
+Hopp总裁不仅带来了国际视野和先进的培训理念，还亲自为表现突出的团队和个人颁发奖项，激励着每一位参与者以更加饱满的热情投入到培训中去。这一环节不仅体现了Speexx对合作伙伴的重视，也是对长安汽车员工努力学习的肯定。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/QzzpDQVZdo4cp4hr9XMSJ7jeDsISVSYYNO7negomBwBqcYzYmmyxdEKttLQeK2UlKS0mmLFTElk33vj5qBBniaQ/640?from=appmsg)
+
+活动现场，
+长安汽车学习负责人张弘处长对在商务英语培训中表现优异的学员进行了表彰。表彰活动不仅是对他们个人努力的回报，也是对整个团队学习成果的认可。长安汽车也希望通过这样的表彰，鼓励更多的员工积极参与到培训中，不断提升自己的国际竞争力。
+尤其值得一提的是，优秀学员带来了全英文的演讲，他毫无保留地分享着自己在学习过程中的宝贵经验。此外，为了进一步提升学习氛围，我们还精心组织了一系列妙趣横生的活动。现场英语知识竞赛可谓是紧张刺激，选手们你追我赶，在激烈的角逐中展现出对英语知识的深刻理解和灵活运用。而商务英语线下沙龙更是为大家提供了一个轻松愉悦的交流平台，学员们在这里畅所欲言，分享着彼此在商务英语学习中的心得体会，现场轻松活泼，充满了浓厚的学习氛围。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/QzzpDQVZdo4cp4hr9XMSJ7jeDsISVSYYN4BI7CAiafVMoaoLk8ISyAF0m4McxJU0HVSDqhg4aiaWRKAZOp1wfT0Q/640?from=appmsg)
+
+  
+
+04
+
+#  筑梦未来，共创辉煌
+
+随着“海纳百川”计划的深入实施，长安汽车将继续加强与全球合作伙伴的交流与合作，推动品牌的国际化进程。而Speexx的商务英语培训，正是这一进程中不可或缺的一环，它将为长安汽车的全球化战略提供有力的语言支持。
+
+![](https://mmbiz.qpic.cn/sz_mmbiz_jpg/QzzpDQVZdo7HUITxviaK8jfY2IltuicdVmqNLdX38eADmpLnd7235LUguk1HV0IHe7nvxKIAD8mTZKDnOs1TJDew/640?from=appmsg)
+
+##  结语
+
+在“海纳百川”的理念指引下，长安汽车与Speexx的合作，不仅是一次商务英语培训，更是一次文化与智慧的交流，一次对未来的共同探索。让我们期待，通过这样的合作，长安汽车能够在全球舞台上绽放更加璀璨的光芒。
+
+![](https://mmbiz.qpic.cn/mmbiz_svg/Sqqm3oJYw2iaJqtdB4vcJS2pZtibH34Sjkkx3tC40LuAZumue9X20zkJb8EhSqsoKql86WZkfKibt5DM64cwuvSXbneJq3ourTic/640?from=appmsg)
+
+###  学员风采
+
+![](https://mmbiz.qpic.cn/mmbiz_svg/Sqqm3oJYw2iaJqtdB4vcJS2pZtibH34Sjkfshib2x7yOWoGNjbzMWx6u75yjabUibQ3snrFRwn7Djicy4RrEw1hxkUlVj55Byic9u2/640?from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/QzzpDQVZdo4cp4hr9XMSJ7jeDsISVSYYVNllCiaTwPqafic15x9MvRpmDziccLaT3Lcfeiaux9qrJqbLvA53MSGvzA/640?from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/QzzpDQVZdo48GkLu7s2eWOZGRHLMPjhd8Go20moeULs6oKomE1zHzmpsXbeFEzyff1GXknHyF3526gzeFzIMdA/640?from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/QzzpDQVZdo48GkLu7s2eWOZGRHLMPjhda398ZGXcmIib4ZnOfVbGTTKGtVu2P4ianwOQTUyG5C3VOeWuXX03LvLQ/640?from=appmsg)
+![](https://mmbiz.qpic.cn/sz_mmbiz_png/QzzpDQVZdo4cp4hr9XMSJ7jeDsISVSYYicT3rI1GAqgxvUibwK6mP58ZLichS7F0mwGIuIolX31VPhwt7EUs8ZNEA/640?from=appmsg)
+
+  
+
+关于 Speexx
+
+Speexx全球大家庭热爱语言，并且坚信移动及在线学习的力量！我们致力于帮助全球大型机构员工提升跨国界商务沟通技能。我们在全球范围内提供
+英语、法语、德语、意大利语和西班牙语5大语种  的混合式语言培训方案，支持  14种  用户界面语言。
+
+  
+
+我们总部位于德国慕尼黑，目前在上海、巴黎、米兰、伦敦、马德里、圣保罗、纽约设有分公司，全球  60多个  国家设有办事处。全球超过  800万  的学员及
+1500多家  顶尖大型企业和机构。
+
+  
+
+了解更多案例及产品信息：speexx.cn
+
+![](https://mmbiz.qpic.cn/mmbiz_png/QzzpDQVZdo67do0wR2jAiaYrSWFSgfHUoIecagNZvmMM0u0ZBqzEQsKe2uveNbtqo5pYoRBhInZb8uDicEIEnlbw/640?wx_fmt=png&wxfrom=5&wx_lazy=1&wx_co=1)
+
+预览时标签不可点
+
+阅读
+
+微信扫一扫  
+
+
+
+
+
+
+
+****
+
+
+
+****
+
+
+
+****
+
+
+
+
+
+__
+
+
+
+
+
+
+
+
+
+
+

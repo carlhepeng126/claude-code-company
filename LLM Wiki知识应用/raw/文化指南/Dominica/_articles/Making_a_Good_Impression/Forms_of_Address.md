@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Dominicans value warmth and approachability in everyday interactions, and this extends into professional settings. First names are used quickly, often within the first meeting, particularly among peers and in less hierarchical workplaces. Titles such as "Mr.," "Mrs.," or "Miss" paired with a surname may be used initially when meeting senior figures or in more formal contexts, but the shift to first names typically follows soon after, sometimes within the same conversation. This reflects the island's small size and the close-knit nature of Dominican society, where social distance is rarely maintained for long.
+
+That said, professional titles do hold meaning, especially in fields like medicine, education, or government. Addressing someone as "Doctor" or using their professional designation shows recognition of their expertise and status, and this can be appreciated in formal correspondence or public settings. In written communication, openings may still carry some formality, though the tone tends to soften quickly once a relationship is established.
+
+For colleagues from cultures where formal address persists well into a working relationship, the speed of the shift to first names in Dominica might feel premature or overly casual. Conversely, Dominicans may read sustained formality as stiffness or a lack of genuine connection. The key is to follow the lead of your Dominican counterpart. If they introduce themselves by first name or invite you to use it, reciprocate. Holding back can create unnecessary distance in a culture where relationships are central to effective collaboration.

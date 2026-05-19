@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Slovenian professional dress favors polished understatement over status display. The cultural logic is clear: looking well put-together signals seriousness and competence, while flashiness reads as inauthentic. Men typically wear suits with conservative ties or, in less formal sectors, tailored trousers with a blazer. Women choose business suits, blouses with skirts, or tailored dresses. Jewelry and accessories stay subtle. This restraint reflects a broader aesthetic shaped by Ljubljana's human-scaled architecture and a preference for thoughtful simplicity over show. If you arrive at a meeting dressed too casually or too conspicuously, you risk appearing either careless or self-important, neither of which builds trust.
+
+The Alpine and coastal landscapes shape everyday dress in practical ways. Weather-ready layers and sturdy shoes are normal, especially in winter when rain in Ljubljana can mean snow in the mountains. This readiness extends beyond weekend trips. If your schedule includes walking between meetings or moving from city to countryside, plan accordingly. On Slovenia's small Adriatic coast, formality softens slightly toward Mediterranean ease, but neatness still holds. Arriving in worn sneakers or overly casual beachwear, even in Piran, will stand out as disrespectful of the setting.
+
+Women generally dress up for evening occasions, though moving from a business meeting to dinner in the same outfit is acceptable. When in doubt, choose smart over casual. The effort you put into your appearance reflects the respect you bring to the occasion, and colleagues will notice if you haven't made that effort.

@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Serbian professional culture values public dignity, and appearance is one of the ways people show respect for themselves and for the partnership. Looking intentional and put-together signals seriousness, particularly in formal business contexts. Men typically wear suits, women choose tailored suits or dresses, and both tend toward understated polish rather than anything flashy. This reflects a broader cultural norm where how you present yourself is understood as part of how seriously you take the interaction. Choose clothes that are neat and considered, and you set the right tone from the start.
+
+Formality shifts with the setting. In government offices or traditional industries, dark suits and conservative tailoring are still expected. In younger sectors like tech or creative fields, business casual is more common, but even there, people dress deliberately. Evening occasions, especially social gatherings in kafanas (traditional restaurants and social venues), often call for more effort. These spaces are central to Serbian social life and are used for celebrations, music, and milestone events, so turning up smartly dressed reads as respect for the occasion. If you're invited to dinner or an evening event, assume your host will arrive looking sharp, and match that effort.
+
+Modesty matters in specific contexts. Serbia is predominantly Orthodox Christian, with significant Muslim communities in regions like Sandžak, and norms around modesty can vary by place and community. When visiting religious sites or attending events in more conservative settings, cover your shoulders and legs and avoid anything that might feel culturally tone-deaf. In mixed or unfamiliar settings, let the context guide your choices rather than assuming one national standard.

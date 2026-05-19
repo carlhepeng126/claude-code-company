@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+French professional dress leans toward well-cut, coordinated elegance rather than overt formality or brand display. Quality fabrics, good shoes, neat grooming and a thoughtful colour palette all register quietly. Even in sectors where suits have loosened to business casual, there remains an aesthetic care: stylish rather than sloppy. Fit and small details like scarves or accessories matter more than loud logos or flashy jewellery, which can read as lack of taste. The underlying logic connects to a broader cultural value of sophistication expressed through restraint. How you present yourself reflects the seriousness you bring to the encounter.
+
+Sector and region shape expectations. Banking, top-tier consulting, state administration and luxury industries still run formal. Tech, media and creative fields are more relaxed, but rarely careless in appearance. Paris typically runs sharper than many regional cities. For first meetings, err on the side of smart, well-fitted and understated clothing. You can calibrate once you see the norm in action. In cross-border teams, avoid assuming "casual" means jeans and trainers. Ask French colleagues about expected dress before joint events, especially those involving senior leadership or external partners.
+
+Pay attention to shoes, bag and outerwear. Scuffed or mismatched items can quietly undercut the impression of competence. When hosting French counterparts, make sure your own team's appearance reflects respect for the occasion, particularly in luxury, public sector or senior-level settings. The effort you put into how you look speaks before you do.

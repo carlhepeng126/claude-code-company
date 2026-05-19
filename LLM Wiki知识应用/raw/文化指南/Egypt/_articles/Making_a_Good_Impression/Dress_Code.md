@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In corporate Cairo, ministries, banks, and large firms, business dress runs conservative and smart. Men wear suits and pressed shirts; women choose tailored dresses or blouses, often paired with neat hijabs. This formality reflects the seriousness people attach to professional settings and the respect owed to colleagues and visitors. Appearance here connects to self-respect and honor, values that extend across Egyptian society. Turning up underdressed or too casual can suggest you don't value the meeting or the relationship enough to prepare properly.
+
+Regional and social context shapes expectations in ways that outsiders may not anticipate. What works in central Cairo can feel out of place in rural Upper Egypt or conservative Bedouin communities. In more popular (*sha'bi*) neighborhoods, dress may be simpler but still carefully presented. Modesty standards vary by family background, class, and region. You'll encounter everything from niqab and long coats to vibrant, fashion-forward hijabs and uncovered hair, but not every combination fits every setting. Asking locally about norms before field visits or regional travel avoids missteps.
+
+For major occasions like opening ceremonies, high-level visits, or weddings, Egyptians dress more formally than many international colleagues expect. Jewellery, elegant fabrics, and polished shoes all come into play. What might feel like over-dressing elsewhere is read here as honoring the event and the people involved. Arriving in something equally considered shows you recognize the weight of the moment. When in doubt, dress up rather than down.

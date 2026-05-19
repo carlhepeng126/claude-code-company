@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Fiji flows through relationships built on reciprocity and group harmony. The concept of *kerekere*, a traditional system of mutual obligation where requests within the community are rarely refused, shapes how colleagues support one another at work. A team member may ask for help on a task or coverage for a shift, and the expectation is that the request will be honored without question. This can mean work is redistributed informally to accommodate personal or family needs, and refusing outright can damage trust. For managers from cultures where workload boundaries are clearly defined, this fluidity may feel like it undermines individual accountability. From a Fijian perspective, a colleague who prioritizes their own deliverables over a teammate's request may come across as distant or uncooperative.
+
+Collaboration is often layered with attention to seniority and hierarchy. Senior colleagues, particularly in indigenous Fijian contexts, are expected to guide decision-making and offer direction, while junior team members typically defer and wait to be invited to contribute. This reflects a broader cultural respect for age and position. In brainstorming sessions or project planning, allowing time for senior voices to speak first, and creating openings for quieter members to respond afterward, helps ensure input is genuinely inclusive rather than performative.
+
+Team cohesion is also strengthened through informal gatherings and shared meals, which build the relational foundation needed for effective collaboration. Trust develops outside formal meetings, so investing time in these moments has real impact on how smoothly a team functions day to day.

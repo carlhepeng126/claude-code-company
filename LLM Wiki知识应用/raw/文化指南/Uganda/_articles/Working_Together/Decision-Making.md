@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Uganda are shaped by the belief that authority is socially distributed. The person with the formal title often makes the final call, but legitimacy comes from relationship and explanation. Respected colleagues, elders, or key stakeholders may need to be consulted for a decision to feel grounded and acceptable. This reflects a deep concern for how choices affect people and relationships, not just outcomes. The cultural prestige of formal education, reinforced by institutions like Makerere University, also supports the expectation that decisions should be reasoned and defensible. A choice made without explanation or consultation can feel arbitrary, even coercive.
+
+This sensitivity has roots in historical memory. Periods of state violence under Amin and later conflict years left many Ugandans cautious about opacity and unilateral shifts. Pressure tactics or sudden reversals can trigger discomfort, even if the decision itself is sound. As a result, the process often moves more slowly than colleagues from cultures where a single senior figure decides quickly might expect. That colleague may read the consultation as hesitation or avoidance of accountability. From a Ugandan perspective, the same colleague's speed may look like disregard for input or a willingness to impose decisions without social grounding.
+
+When speed is required, protect dignity by communicating early, explaining constraints clearly, and keeping tone respectful. Make decision pathways visible: who is being consulted, how input will be used, and how the final call will be made. Silence should be treated with care. It may signal unease rather than agreement, so follow up privately to allow concerns to surface safely. After a decision is announced, trust is reinforced through consistent follow-through, which often counts for more than the announcement itself.

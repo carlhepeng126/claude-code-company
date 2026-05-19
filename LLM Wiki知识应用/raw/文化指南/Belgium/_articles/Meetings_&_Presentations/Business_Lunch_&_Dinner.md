@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Outside the most internationalized corporate environments, lunch in Belgium still functions as a proper break. Many people expect to sit down for a real meal, not grab a sandwich at their desk. This reflects a broader cultural rhythm that values food as a moment of pause, not just fuel. Meal vouchers (chèques-repas, subsidized lunch tickets) and company canteens or nearby brasseries reinforce this habit. Lunches range from quick one-course meals to slightly longer affairs where conversation extends beyond the immediate project. If you propose a 30-minute sandwich meeting, colleagues may accept it but find it transactional. Allowing 60 to 90 minutes and choosing a place with proper seating shows you understand the local rhythm.
+
+Dinners are reserved for more significant conversations: important negotiations, coalition building, or moments where you need extended time to talk through complexity. Because many Belgians commute across regions and value time at home, frequent evening events can feel intrusive. A colleague from a culture where dinners are the default setting for relationship building may interpret this restraint as lack of warmth, while Belgians may read constant evening invitations as disregard for personal boundaries. Regional patterns also vary. Walloon settings may lean toward longer, more convivial dinners, while Flemish business dinners can be equally warm but often aim to wrap up earlier on weeknights.
+
+Dietary considerations are part of the everyday reality, particularly around Brussels. Halal, vegetarian, and other requirements should be checked in advance. During the meal itself, allow time for conversation that moves beyond the immediate agenda. Talk about regions, hobbies, or family stories builds the cross-cultural and cross-regional trust that makes collaboration smoother later.

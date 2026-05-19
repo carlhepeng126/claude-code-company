@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Canadian business courtesy draws on layers of influence, from Indigenous traditions that valued respectful speech and careful listening, to British and French legacies of civility and structured conversation. The result is a workplace culture that favors politeness, calm exchanges, and turn-taking in speech. Arrogance or overbearing behavior tends to land poorly. Canadians expect conversation to make room for everyone, and interrupting or dominating a discussion can read as disrespectful. If you're from a culture where overlapping speech or rapid back-and-forth feels energizing, it helps to know that Canadians may interpret that as cutting someone off. Conversely, a colleague from Canada working in a faster-paced conversational setting might feel unheard or struggle to get a word in.
+
+Greetings are friendly but not overly formal. A smile and a handshake are typical, and men often wait for women to extend their hand first. Eye contact is expected but not intense, and standing very close tends to feel intrusive. Canadians value fairness and inclusiveness, so acknowledging bilingual or multicultural identities is seen as respectful. If you're working across English and French-speaking contexts, having bilingual materials signals that awareness.
+
+Business cards are useful but not ceremonial. They might be exchanged at the start of a meeting or at the end, depending on how the conversation unfolds. Canadians don't always offer one immediately, so there's no need to read anything into a delay. A bilingual card is a thoughtful choice, especially in Quebec or when working with federal institutions. Gifts are not expected in professional settings at the outset, but if invited to a colleague's home, something modest from your own country, or wine, flowers, or chocolates, will be well received. The gesture is opened right away and appreciation is shown.

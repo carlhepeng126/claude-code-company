@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Iceland draws from a culture where small teams depend on each other through real pressures, whether on the handball court or during a rescue mission in marginal weather. The expectation is to discuss what went wrong directly after the fact, then move on. This produces a style that is frank and specific, aimed at improving the team rather than singling out individuals for judgment. A colleague who underperformed on a project is more likely to hear about it face-to-face, with clear reference to what needs to change, than through a formal review document weeks later.
+
+The relative lack of hierarchy means feedback flows in multiple directions. Managers who cannot accept correction on local conditions or factual details lose credibility quickly. People expect leaders to listen when someone with ground-level knowledge points out a flaw in a plan, and visible adjustment in response to that input matters. For a manager from a culture where seniority insulates leaders from open critique, this can feel uncomfortable or even disrespectful. From an Icelandic perspective, a leader who deflects correction is failing the team.
+
+Coaching that resonates is highly situational and tied to real constraints: how to manage overlapping roles during staff shortages, how to prepare for dark winter months, or how to handle sudden surges in tourist-driven workload. Abstract leadership frameworks or motivational language land flat. The focus is on coping with actual conditions, not metaphorical storms, and the most useful guidance comes with concrete examples and backup plans that acknowledge the pressures people already face.

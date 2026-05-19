@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Cabo Verde succeed when they balance professionalism with warmth. Audiences respond well to presenters who show genuine interest in collaboration and take time to establish rapport before launching into content. A rigid, purely transactional approach can feel disconnected from the relational style that underpins much of professional life on the islands. Open with brief personal acknowledgment or reference to shared goals. This isn't formality for its own sake; it reflects the broader Cabo Verdean preference for building trust through human connection first.
+
+Expect some informality during your session. People may take calls, step out briefly, or arrive partway through. This doesn't signal disengagement. In many workplaces, especially smaller organizations or those in less urban areas, roles overlap and interruptions are routine. Welcome latecomers naturally and be prepared to adjust your pacing without signaling frustration. Flexibility here demonstrates respect for local working realities.
+
+Keep language accessible and avoid overly technical jargon unless your audience works in a specialized field. Cabo Verde is a multilingual country where Portuguese is the official language, but Kriolu dominates everyday conversation. Even in formal settings conducted in Portuguese, clarity and straightforwardness resonate more than dense corporate terminology. If you're working with an interpreter or presenting in a language not everyone commands equally, pause between key points and watch for signs that the room is following. A colleague nodding along may still have questions they'll raise privately afterward, especially if they prefer not to challenge a presenter in front of others.
+
+Visual aids should be simple and easy to follow. Slides overloaded with text or complex data charts can lose an audience quickly, particularly in mixed-language environments. Use visuals to support your narrative, not replace it. Leave time for conversation at the end, and remain open to follow-up discussions outside the room where people may feel freer to ask clarifying questions or voice reservations.

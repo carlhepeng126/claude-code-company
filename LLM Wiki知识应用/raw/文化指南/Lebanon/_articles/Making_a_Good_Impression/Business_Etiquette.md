@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Conversation in Lebanon does relational work. Words are valued for their craft, not just their content. The tradition of zajal, a form of living poetry performed as verbal challenge and response, speaks to how deeply rhetorical skill is woven into daily life. In business, this shows up as humour, wordplay, and a facility with story. A colleague who speaks well is respected. Small talk builds credibility. Rushing past it to reach the agenda misses how trust gets formed. Spend time in conversation before moving to the point, and treat that time as substantive.
+
+Communication also reflects sensitivity trained by history. Decades of civil war, political fragmentation, and recurring crises have produced a widely understood caution around certain topics, especially in mixed company. People often choose smoothness over confrontation, steering around sectarian or political flashpoints to protect the room. If someone shifts the subject or keeps things light, that's social intelligence at work. Follow the tone. In more formal or mixed settings, avoid polarising topics unless you are certain of who is in the room and where they sit. The evasion is not avoidance but a form of care.
+
+Food is where social life becomes real. Lebanese hospitality is a full choreography of offering, insisting, sharing, and lingering at the table. Accepting what is offered and showing warmth in return builds connection. Turning down food or leaving too early may be read as coldness or disinterest. In business settings, this translates to a preference for meetings that include coffee or a meal, spaces where conversation can deepen and relationships can become genuine.
+
+Lebanon's long experience with institutional instability has cultivated a culture of improvisation. When infrastructure fails or systems stall, people adapt quickly and creatively. In meetings, this shows up as agility, informality, and a willingness to shift plans. If timelines flex or processes feel improvised, that reflects competence under pressure, not disorganization. Match it with steady reliability, and resist interpreting fluidity as a lack of seriousness.

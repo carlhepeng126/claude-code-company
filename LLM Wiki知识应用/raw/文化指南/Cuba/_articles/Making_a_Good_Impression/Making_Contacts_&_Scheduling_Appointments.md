@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Cuba, making a business contact begins with personal connection, rooted in decades of collective survival and mutual reliance. The economic challenges of the Special Period in the 1990s reinforced a culture where people depend on networks of family, friends, and trusted acquaintances to access resources and opportunities. In professional life, this translates into a preference for introductions through someone already known. A warm referral from a mutual contact opens doors far more effectively than a cold email or formal letter. If you're trying to arrange a meeting, ask a colleague, partner, or friend who knows the person to make the introduction. This signals that you come with credibility.
+
+Once contact is made, expect the process to unfold at a relational pace. Cubans are unlikely to rush into business discussions before they've had time to assess your character and intentions. Early conversations may touch on family, shared interests, or current events. These exchanges build rapport and establish whether you're someone worth investing time in. A colleague from a culture where appointments are scheduled quickly and agendas followed precisely might find this indirect, while a Cuban counterpart may read brisk efficiency as impatience or lack of genuine interest.
+
+When scheduling, propose a time but remain flexible. Meetings may start late or extend beyond the planned slot, particularly if the conversation is going well. Confirm the day before, and avoid stacking appointments tightly together. The goal is not just to complete a transaction but to lay the groundwork for a relationship that can be relied on over time.

@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Russian professional settings tend to rest with the person who holds clear mandate, and moving ahead of that authority can bring reputational risk. The saying "initiative is punishable" captures an older cultural caution about stepping beyond your role or the group's readiness. This does not mean people avoid contributing ideas, but it does mean that pushing a decision forward individually, especially without cover from someone senior, can feel exposed. Clarifying who decides, who advises, and what counts as approval helps everyone know where they stand.
+
+Belonging often shapes whose input gets treated as real. The boundary between insiders and outsiders, sometimes described as *svoi* (one of us) and *chuzhoi* (not one of us), can quietly influence who is consulted and whose concerns land with weight. Decisions feel legitimate when they are both formally mandated and socially supported by the right circle. If you are presenting a proposal, allow time for internal checking and consultation rather than expecting an on-the-spot commitment, particularly in a group setting.
+
+A history shaped by Soviet planning and post-Soviet volatility has cultivated a trained realism. People watch for whether a plan will survive contact with actual constraints, not just whether it sounds convincing on paper. Naming risks, dependencies, and limitations directly is read as seriousness, not negativity. Documentation is valued not as red tape but as a way to stabilize meaning and accountability when circumstances can shift suddenly. Short written anchors like decision logs or recaps help people feel safe committing when conditions remain uncertain.

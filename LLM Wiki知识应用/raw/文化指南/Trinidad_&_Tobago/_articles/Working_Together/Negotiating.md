@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+Negotiation in Trinidad and Tobago often begins well before the formal discussion. Food, casual conversation, and time to settle the mood are not preamble to the real work. They build the relational conditions that allow agreement to feel safe and mutual. Arriving with your final offer in the first hour can suggest you are more interested in a transaction than a partnership. Leaving room to give ground shows you understand that both sides need to feel they have shaped the outcome. A win-win framing is expected, and someone who feels bargained down too hard may agree in the moment but remain quietly resentful.
+
+Pride and dignity run through every exchange. Making someone look small in front of colleagues, especially a senior figure, can trigger resistance that has little to do with the terms themselves. The pushback is about honour, family reputation, and social standing. If you need to challenge a proposal, do it in a way that preserves face. A colleague from a culture where direct critique is a sign of efficiency may read this caution as evasiveness. From a Trinidadian perspective, the same directness can feel like exposure, not candor.
+
+Humour and verbal sparring, known as *picong* (a form of teasing or light mockery rooted in Carnival and calypso traditions), can test confidence and probe boundaries without open confrontation. When it bonds, it signals comfort and shared power. When it cuts, it becomes a form of exposure. Reading which is happening requires attention to tone and relationship. People also listen for subtext. Calypso and *kaiso* culture have shaped an ear for moral stance and implied meaning, so how you frame a point can affect reception as much as the point itself.
+
+Negotiation style can vary by setting. Circles shaped by elder norms and respectability may see hard pressure as destabilizing. Others tolerate open push-and-pull. What feels confident in one context can feel disrespectful in another, so watch for cues and adjust your intensity accordingly.

@@ -1,0 +1,65 @@
+{
+  "permissions": {
+    "allow": [
+      "Read",
+      "Glob",
+      "Grep",
+      "Edit",
+      "Write",
+      "Bash(python *)",
+      "Bash(python3 *)",
+      "Bash(pip *)",
+      "Bash(npm *)",
+      "Bash(npx *)",
+      "Bash(pnpm *)",
+      "Bash(git *)",
+      "Bash(mkdir *)",
+      "Bash(cp *)",
+      "Bash(mv *)",
+      "Bash(ls *)",
+      "Bash(cat *)",
+      "Bash(head *)",
+      "Bash(tail *)",
+      "Bash(wc *)",
+      "Bash(find *)",
+      "Bash(rg *)",
+      "Bash(echo *)",
+      "Bash(curl *)",
+      "Bash(node *)",
+      "Bash(rm *)",
+      "Bash(mkdir -p \"c:/Users/Admin/.claude/skills/defuddle\")",
+      "Edit(~/.claude/skills/defuddle/**)",
+      "Bash(defuddle parse *)",
+      "Bash(mkdir -p \"c:/Users/Admin/.claude/skills/json-canvas/references\" && curl -sL \"https://raw.githubusercontent.com/kepano/obsidian-skills/main/skills/json-canvas/references/EXAMPLES.md\" -o \"c:/Users/Admin/.claude/skills/json-canvas/references/EXAMPLES.md\")"
+    ],
+    "deny": [
+      "Bash(rm -rf /*)",
+      "Bash(rm -rf ~/*)",
+      "Bash(rm -rf /)",
+      "Bash(sudo *)",
+      "Bash(git push --force *)",
+      "Bash(git reset --hard *)",
+      "Bash(npm publish *)",
+      "Bash(curl * | sh)",
+      "Bash(curl * | bash)",
+      "Bash(wget * | sh)",
+      "Bash(chmod 777 *)",
+      "Bash(docker rm *)",
+      "Bash(docker rmi *)"
+    ],
+    "defaultMode": "acceptEdits",
+    "additionalDirectories": [
+      "c:\\Users\\Admin\\.claude\\skills",
+      "c:\\Users\\Admin\\.claude\\skills\\json-canvas"
+    ]
+  },
+  "statusLine": {
+    "type": "command",
+    "command": "cols=$(stty size </dev/tty 2>/dev/null | awk '{print $2}'); export COLUMNS=$(( ${cols:-120} > 4 ? ${cols:-120} - 4 : 1 )); plugin_dir=$(ls -1d \"${CLAUDE_CONFIG_DIR:-$HOME/.claude}\"/plugins/cache/*/claude-hud/*/ 2>/dev/null | sort -V | tail -1); exec \"/c/Users/Admin/bin/node\" \"${plugin_dir}dist/index.js\""
+  },
+  "additionalDirectories": [
+    "C:\\Users\\Admin",
+    "C:\\Users\\Admin\\.claude\\skills\\course-brochure-builder",
+    "C:\\Users\\Admin\\.claude\\skills\\hbs-design"
+  ]
+}

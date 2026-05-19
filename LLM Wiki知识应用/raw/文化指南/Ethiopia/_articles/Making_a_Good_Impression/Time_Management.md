@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Ethiopia runs on two calendars and two clocks, and neither matches the international standard. The Ethiopian calendar has 13 months, with New Year falling on September 11th. The Ethiopian clock counts 12 hours of daylight from sunrise, so when someone says "two o'clock," they may mean 8:00 in international time. Outside cosmopolitan Addis Ababa, this system is still in use, and local holidays such as Enkutatash, Meskel, and Timkat fall outside the quarterly cycles most multinationals follow. When working beyond the capital, confirm times in both systems and cross-check dates against the Ethiopian calendar to avoid costly confusion.
+
+Meetings often begin when the most senior person or key stakeholder arrives, regardless of the scheduled time. People sit, drink coffee, and exchange news while they wait, and this is considered part of the meeting, not time lost. The gathering starts when the right people are present, which reflects the relational logic that underpins most Ethiopian professional life. A colleague used to back-to-back schedules may read this as poor planning, while an Ethiopian counterpart may view rigid start times as disregarding the人 who matter most. If you need a meeting to start at a specific time, build waiting time into your own plan and use it to observe who defers to whom.
+
+Orthodox fasting seasons, particularly the long fast before Easter, reshape the working day. People fast until mid-afternoon, and energy drops noticeably after lunch. Offices can feel slower and tempers shorter during these weeks. Avoid scheduling intensive workshops or evening sessions during the toughest fasting periods, and if you must, acknowledge openly what colleagues are managing.

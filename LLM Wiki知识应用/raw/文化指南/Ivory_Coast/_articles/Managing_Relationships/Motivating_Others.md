@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+Financial reward means something deeply practical in Ivory Coast. Many professionals support not just themselves but extended family members, and when someone's salary feeds multiple households, a raise or bonus can shift the wellbeing of several people at once. The pull of what people see on television, especially French and American programming filled with cars, fashion, and technology, sharpens the desire for money that can bring those aspirations within reach. Managers who understand this foundation will recognize that competitive pay is not just preferred but necessary.
+
+Yet money rarely works alone. What makes someone stay engaged is often the quality of their day-to-day experience. A boss who listens, offers guidance, and treats the team as more than functional units builds loyalty that a salary increase alone cannot sustain. Harmony in the workplace, where colleagues feel like an extension of family, encourages sustained effort. Young, educated professionals tend to prize opportunities with multinational firms because they offer career development and training, while those in lower-paid or manual roles put more emphasis on stability given the economic volatility that has shaped many lives. Employers who provide access to further education earn genuine appreciation.
+
+Head-on competition between team members tends to dampen motivation rather than sharpen it. Recognition works best when it feels personal and acknowledges the collective effort, whether that's thanking the team publicly after a difficult project or inviting someone to take on a visible assignment. For a colleague from a culture where individual targets and performance rankings drive engagement, this communal approach might seem indirect or slow to reward merit. From an Ivorian perspective, singling out one person over others can undermine the group cohesion that makes work sustainable.

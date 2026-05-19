@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Trust in Slovakia tends to grow quietly, through steady proof rather than upfront enthusiasm. A common social ideal values sincerity and follow-through over a polished pitch, so early contact works best when it stays modest and clear. Say what you want to explore, propose a realistic next step, and then deliver on it. Showing up when you say you will, responding when expected, and avoiding oversell all build credibility in a culture where people watch what you do more closely than what you promise.
+
+Working through a genuine connector can help, especially when you're reaching beyond Bratislava or crossing regional lines. Slovakia's border geography and overlapping language communities mean that contacts sometimes form through local institutions, shared events, or cross-border networks rather than purely national channels. In southern districts with strong Hungarian-language continuity, a referral from someone known locally or an introduction through a chamber of commerce or trusted agent can open doors more smoothly than a cold approach.
+
+Scheduling works well when planned a couple of weeks ahead and confirmed the day before. Avoid lunchtime meetings unless you're planning to eat together, as people often leave the office. Government offices can keep irregular hours, sometimes closing early on Fridays, so check before trying to reach anyone. If initial emails go unanswered, follow up. Getting a reply may take two or three tries, not because of disinterest but because office systems can be slow or overstretched. A local contact or fixer can help navigate this, especially if language or institutional access is uncertain.

@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Hong Kong professionals move fast on substance but stay careful with people. Numbers, timelines and constraints are stated plainly, often in the same breath as a greeting. There's little appetite for long scene-setting or soft opens. But when feedback touches on a person's judgment or competence, the tone shifts. Phrases like "maybe we could refine this" or "there might be a risk here" wrap critique in enough cushion to keep the exchange face-conscious. Singling someone out as wrong in a meeting is experienced as harsh and unnecessary. If a colleague needs correction, move the conversation to a one-on-one space and offer options, not verdicts.
+
+Responsiveness is treated as baseline respect. Same-day replies, overnight turnarounds and fixing problems without fuss are part of the city's self-image as a place that gets things done. Slow, vague answers clash with that identity and suggest disengagement. A colleague from a culture where reflection time is valued might read this pace as rushed or reactive. From the Hong Kong side, waiting weeks for a reply with no interim update can feel like indifference. Matching local expectations on speed means flagging next steps clearly, even if the full answer takes longer.
+
+Since the National Security Law, politics has become a do-not-touch topic in most professional settings, especially with new partners. Strong views exist but surface in trusted circles, not early meetings. Don't fish for opinions on protests or Beijing. People will decide if and when to bring that in. Titles and academic pedigree open doors, but competence is what keeps them open. If someone demonstrates real expertise, colleagues will defer, even to a younger professional. High title paired with weak delivery is quietly ridiculed, not respected. Build credibility by knowing your material in detail, not by leaning on hierarchy or where you trained.

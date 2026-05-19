@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+Angola's history of resource extraction, from the slave trade through colonial concessions to post-war oil and mining deals, has left many negotiators wary of agreements that promise much and deliver little. This shapes how proposals are received. If your terms look one-sided, or if your framing emphasizes what you will unlock without naming what Angola will gain in skills, ownership, or lasting benefit, you may encounter resistance that feels disproportionate to the commercial risk. The resistance is not commercial. It reflects a concern about being used again. Frame your proposal in terms that show you understand this history: highlight skills transfer, local ownership structures, and tangible community benefit, not just efficiency or value creation.
+
+A single deal may be negotiated across multiple settings that do not always align. You might reach agreement with a ministry, only to find that the same terms need to be discussed informally with political patrons, technically with state-owned enterprises, and socially with communities affected by the project. Each conversation has its own logic and its own decision-makers. Ask your Angolan partners which other tables your deal will sit on, and work with them to address each one. Assuming that one signed agreement closes the process can leave you exposed when implementation begins.
+
+Even when Angola is pragmatically dependent on foreign capital, decision-makers often insist on symbols of sovereignty: majority stakes, local content clauses, visible Angolan leadership roles, or prominent board representation. These are not always about control in practice. They are about not being seen to cede control. Be flexible on symbolic levers that allow your counterparts to demonstrate agency, even when you need strong operational protections. A colleague from a culture where equity and governance are treated as purely technical issues may read this as inefficiency or posturing. From an Angolan perspective, a partner who dismisses these concerns may look indifferent to the political and social cost of being perceived as compliant.
+
+Expect close attention to dispute resolution and exit conditions. Partners who have seen promises broken will care as much about how you behave when things go wrong as when they go right.

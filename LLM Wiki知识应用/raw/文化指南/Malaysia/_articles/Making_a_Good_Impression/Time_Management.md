@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Malaysia's approach to time runs on more than one clock. Urban professional centers often operate with tight scheduling, but social obligations, religious practice, and family commitments can reshape what punctuality looks like in a given moment. The same colleague who arrives precisely on time for a client presentation may be more fluid about an internal catch-up, especially if a family matter or prayer time intervenes. This is contextual flexibility, deeply embedded in how people balance relationship and task.
+
+Religious rhythm is a real planning factor, particularly in Malay-majority environments. Islamic prayer timings, the Friday congregational emphasis, and the daily flow between clock-time and spiritual obligation shape what feels like a good or bad time to schedule certain activities. These anchors are stronger in some states than others, but treating them as structural rather than optional will help you plan more realistically. Similarly, festival seasons like Hari Raya, Lunar New Year, Deepavali, and East Malaysian harvest celebrations are not peripheral. They generate national movement patterns, extended absences, and shifts in availability that need to be built into project timelines from the start.
+
+Urban congestion, especially in the Klang Valley, makes travel time a daily negotiation. Being late can be logistical rather than attitudinal. In East Malaysia, distance and terrain introduce different constraints. When you need strict punctuality, state the expectation clearly and early, but frame it as a shared commitment rather than a character test. Where deadlines involve cross-cultural teams, build buffers for the fact that time in Malaysia is often plural, not singular.

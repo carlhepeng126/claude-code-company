@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+In Greece, commercial relationships are built on personal connection and sustained over decades. Many families still buy from the same butcher, accountant or electrician for years, and the same logic shapes business-to-business dealings. Companies prefer suppliers whose owners they know personally, even if a larger or cheaper alternative exists. This means that a polished pitch or a competitive quote alone will rarely secure a long-term partnership. Investing time in owner-to-owner relationships, visiting in person and building trust over coffee matter more than efficiency metrics. Sending a confident introduction and then expecting a quick decision will likely leave you waiting or overlooked.
+
+Reputation spreads quickly through tight professional and social circles, especially in sectors where communities overlap. In tourism, for example, one poorly handled season can become a story repeated across local business associations and winter café gatherings on the islands. A dispute with a hotelier or agency can affect your standing for years. In shipping and diaspora-heavy industries, the memory runs even longer. Deals made in Piraeus or London may be recalled two generations later as part of family reputation, and counterparts will discuss your conduct at industry events and around the family table.
+
+When working with Greek suppliers, avoid setting rigid deadlines without first building a strong relationship. Time is understood more fluidly here, and a deadline from someone perceived as transactional may be quietly deprioritized. Once the relationship is solid, suppliers will go out of their way to meet your needs. Focus on service recovery and fair dealing rather than maximizing short-term gains, particularly in regions where word-of-mouth reputation defines future opportunity.

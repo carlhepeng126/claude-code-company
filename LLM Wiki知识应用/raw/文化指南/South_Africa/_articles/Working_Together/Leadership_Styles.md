@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+In South Africa, authority depends heavily on moral positioning. Because the country's public culture has been shaped by struggles over justice, dignity, and accountability, leaders are assessed on whether they act fairly and show social awareness, not only on whether they deliver results. This reflects a history in which power was used to exclude and oppress. Today, how you hold power is scrutinized closely. People watch for humility, for listening, and for whether authority is used to include or to dominate. A leader who appears disconnected from these concerns may lose trust even if technically competent.
+
+The post-1994 constitutional era set a clear benchmark. The Bill of Rights and the civic language that followed offer a shared reference point for what legitimate leadership should protect: dignity, equality, and freedom. This framework runs through many professional environments, especially in sectors shaped by labor organizing, government, and civil society. Leaders who explain their reasoning, who make decisions transparently, and who offer clear avenues for appeal are more likely to be seen as credible.
+
+Leadership cues vary sharply by context. A corporate boardroom, a unionized workplace, a government department, a township initiative, and a faith community each have different expectations around formality, titles, seniority, and relational warmth. What works in one setting may feel out of place in another. A manager from a culture where directness and speed are prized may interpret this variability as inconsistency, while a South African colleague may read a lack of contextual adaptation as tone-deaf or dismissive. Learning the local respect cues and adjusting accordingly builds credibility without requiring performance or exaggeration.

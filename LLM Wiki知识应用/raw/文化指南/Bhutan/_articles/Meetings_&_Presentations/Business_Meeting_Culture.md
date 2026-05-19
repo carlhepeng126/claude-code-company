@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Bhutan move at a pace shaped by respect for hierarchy and the Buddhist principle of avoiding harm. Decisions are rarely made in the room itself. Senior officials and managers prefer to consult within their teams and reflect privately before committing, especially when the outcome could affect others or contradict guidance from above. Pressing for an answer during the meeting, or returning to a point that has been acknowledged, can be read as disrespectful. A colleague from a culture where decisions are made quickly in real time may feel the process is stalling, while a Bhutanese counterpart may see fast closure as reckless or dismissive of the group's input.
+
+Formality is expected, particularly in government ministries and state-owned enterprises. Meetings often begin with polite conversation, usually led by the most senior person present. Jumping straight into the agenda or challenging a senior figure openly will create discomfort. Disagreement is rarely voiced directly. Instead, concerns are raised gently, often as questions or by deferring to further consultation. Silence after a question does not mean confusion. It often signals reflection or, in some cases, reluctance to contradict.
+
+Follow-up is where clarity emerges. Written summaries sent after the meeting help confirm what was understood and what still needs input. Decisions may come later, often through a deputy or in writing, rather than announced on the spot. Allowing time between meetings and checking in through established channels will move things forward more reliably than repeated requests for urgency.

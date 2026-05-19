@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+A respected leader in Colombia defends their team, knows their people, and navigates ethical grey zones with clarity. The most trusted figure is the *patrón protector*, someone who uses their position to shield "su gente" from pressure — whether that comes from upper management, difficult clients, or external threats. What people fear is the *jefe cómplice*, the leader who smiles and builds rapport but ultimately sides with the inner circle or abandons the team when things go wrong. If you lead without showing where your loyalty lies, expect compliance but not deep trust.
+
+Effective leadership here combines proximity with protection. A leader who knows family situations, uses affectionate nicknames, attends funerals or baby showers, and remembers who is paying for a sibling's education builds the relational foundation that formal authority alone cannot. Purely distant, professionally neutral leadership may get results on paper, but it rarely generates the loyalty needed when decisions become difficult or ambiguous. For a colleague from a setting where personal and professional boundaries are more distinct, this level of involvement can feel intrusive or paternalistic. From a Colombian perspective, a leader who keeps that distance may seem cold or disconnected from the real pressures their team faces.
+
+Ethical stance also defines respect. In environments where informal payments, political favours, and bribery are present, people watch whether a leader *se prestan para eso* — whether they go along with it — or draws clear boundaries. But drawing those boundaries without understanding the pressures, or doing so in ways that shift risk onto subordinates, undermines credibility. Make your red lines explicit and consistent, and show that you can navigate the system without simply moralizing or exposing your team to consequences you avoid yourself.

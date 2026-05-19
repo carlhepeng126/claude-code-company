@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Guatemala's workplace hierarchy reflects centuries of sharply stratified social structure, rooted first in the Spanish colonial *encomienda* system (in which indigenous communities were assigned to Spanish landowners as labor) and sustained through authoritarian governments and a 36-year civil war that ended in 1996. This history helps explain why Guatemala scores highest globally on power distance measures. In practice, this means employees expect clear, directive leadership. A manager who delegates broadly, inviting staff to shape the method or question the brief, risks being read as uncertain or unprepared. Clarity and consistency build credibility, not informality.
+
+The most common delegation challenge is that employees will often indicate understanding of instructions they have not fully grasped, to avoid the shame of appearing confused or the risk of implying the manager was unclear. Agreement does not confirm comprehension. Build confirmation into your process by asking for written summaries or structured check-ins, framed as support rather than distrust. The framing matters: it should reinforce your role as a leader who ensures success, not one who doubts their team.
+
+*Confianza*, a specific relational trust earned through personal consistency and demonstrated loyalty, is the real currency of workplace relationships. Without it, formal authority produces compliance but not commitment. A foreign manager who takes the time to know their team as people, and who is visibly fair and consistent, will earn loyalty that title alone never could. This applies across sectors, but is especially true when managing Mayan employees, who bring deep community loyalty and a historical wariness of external authority rooted in centuries of exclusion from formal power.

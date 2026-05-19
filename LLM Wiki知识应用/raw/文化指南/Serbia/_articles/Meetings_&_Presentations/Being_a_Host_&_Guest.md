@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Serbian hospitality draws depth from traditions that frame the home as a moral center. The Slava, a family's annual celebration of its patron saint, illustrates this: relatives, neighbors, and friends gather for a ritual meal marked by candles, wine poured over a blessed cake, and prayers for prosperity. These aren't merely decorative gestures. They express care through repeated, concrete acts and place the guest inside a circle of goodwill. That same logic often extends to everyday hosting, where abundance matters more than formality and where being "fully there" as a guest shows real respect.
+
+When invited to a Serbian home, expect generous portions and repeated offers. Your host may refill your glass before it empties or press you to take a second helping. Declining too quickly can read as withholding yourself. Accept what's offered with warmth, compliment the cooking sincerely, and give your full attention to the table. If a colleague from a culture where guests are expected to self-serve or decline first sees this as intrusive, the Serbian host may see a quick refusal as distance. From the Serbian side, a guest who seems distracted or who leaves food untouched may come across as ungrateful or disengaged, even if politeness was intended.
+
+If ritual elements appear, a family story is shared, or someone mentions how things used to be, respond with genuine curiosity. Storytelling often functions as a form of intimacy, a way of placing you relationally rather than simply filling time. Turning a tradition into a novelty moment breaks that thread. Listening well and asking thoughtful follow-up questions anchors the relationship more firmly than any formal courtesy.

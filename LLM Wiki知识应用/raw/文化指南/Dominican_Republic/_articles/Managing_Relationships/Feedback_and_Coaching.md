@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in the Dominican Republic is shaped by warmth and face. Public recognition is welcomed and reinforces morale, but anything critical is better handled quietly and one-on-one. Pride runs deep, and exposure in front of colleagues can damage both the relationship and the person's standing within the team. A manager who delivers correction privately, with care for the person's dignity, is far more likely to be heard.
+
+Tone is as important as content. A colleague from a culture where feedback is delivered in a neutral, matter-of-fact way may be surprised to find that the same words, spoken without warmth, can land as cold or dismissive in the Dominican Republic. Starting with affirmation opens the door to harder truths. A phrase like "mira, tú sabes que te aprecio, pero…" (look, you know I appreciate you, but…) signals respect and relationship before the correction arrives. Without that personal framing, even well-intended feedback can feel like an attack. From the other direction, a Dominican colleague may read directness without relational warmth as a sign the relationship itself is in question, while a manager accustomed to brevity may simply be trying to be clear.
+
+Hierarchy shapes how feedback flows. Junior staff may see problems clearly but avoid raising them upward. Speaking up to a senior can feel risky, especially where authority is concentrated and deference expected. Instead, concerns are often shared with trusted mid-level colleagues or simply left unsaid. Silence should not be mistaken for agreement. Creating indirect channels, whether through intermediaries or anonymous input, can help surface what would otherwise stay hidden.

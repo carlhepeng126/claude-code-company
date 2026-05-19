@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Angola's decades of civil war left deep marks on how people approach disagreement. Many Angolans who lived through that period remain cautious about allowing professional differences to escalate into open confrontation, particularly when those disagreements map onto regional or political divides. The instinct is often to withdraw, delay, or smooth things over rather than stage a fight. Raised to speak quietly and to control emotion, people read loud confrontation as a failure of upbringing, not a sign of conviction. This means that highly adversarial meeting formats, where participants are expected to defend positions publicly and debate vigorously, can shut people down rather than surface issues. Structuring discussions to explore problems without forcing colleagues into opposing camps makes disagreement safer to name.
+
+Community-level conflict can erupt suddenly even when national discourse stays calm. Land disputes, compensation grievances around oil or mining projects, and urban evictions generate intense local anger that formal channels often fail to absorb. A colleague from a culture where dissent surfaces early and loudly through official complaint systems may expect warning signs and formal escalation procedures. In Angola, frustration can build quietly at ground level until it boils over, catching project teams off guard. Mapping local grievances early, before ground is broken or contracts signed, gives time to address them through visible action, which people trust more than statements.
+
+Churches and traditional leaders, known as *sobas* (local chiefs who hold customary authority), have long mediated conflict, especially among communities with little access to courts. Involving them from the start, as stakeholders rather than emergency mediators, builds credibility and opens informal channels that formal structures cannot replace.

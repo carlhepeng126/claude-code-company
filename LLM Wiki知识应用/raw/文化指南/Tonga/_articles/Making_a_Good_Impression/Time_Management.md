@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Tonga, time bends around relationships and social responsibilities, grounded in a worldview where people come before schedules. This reflects the enduring importance of *faka'apa'apa* (deep respect) and communal obligation. A meeting may start late because a colleague stopped to help family, or because the right people have not yet gathered. This is rooted in *fatongia*, the system of reciprocal duties that ties Tongans to extended family, church, and community. Schedules exist, but they share space with responsibilities that cannot be postponed without dishonor. A manager from a culture where punctuality signals professionalism may read lateness as lack of commitment. A Tongan colleague, in turn, may see rigid adherence to the clock as disregard for the people involved.
+
+Flexibility does not mean lack of structure. Deadlines in formal sectors, especially where international partners are involved, are generally met. What differs is the process: timelines may shift if consultation is incomplete or if key relationships have not been tended. Decisions are rarely rushed. Taking time to ensure consensus and maintain harmony is seen as responsible, not slow. Pressing for speed before trust is built can be read as dismissive.
+
+Younger professionals and those in urban Nuku'alofa may adopt more scheduled rhythms, particularly in government or NGO roles with external accountability. Even so, the underlying logic holds. If a commitment clashes with family or community duty, the latter will often take precedence. Acknowledging this openly, rather than treating it as an obstacle, builds credibility and allows for planning that accounts for both professional and social realities.

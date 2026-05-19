@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+In many Indian organizations, particularly family businesses and promoter-led firms, leaders function as parental figures who offer not just professional direction but life guidance, crisis support and social standing. Employees may speak of a leader using kinship language—"he brought me up," "she treats us like her own family"—and expect both moral authority and tangible care in return. This bond runs deeper than contract or performance; loyalty is personal, and teams look to leaders for decisions on matters that might be handled independently elsewhere. Align with the recognized senior figure on key topics, even if they seem operational, and allow time in joint plans for sign-off and guidance-seeking that colleagues genuinely value.
+
+The guru–shishya model persists in modern form: a senior mentor selects a promising junior, opens doors, and expects loyalty, discretion and deference. This accelerates growth for those within the circle but can leave others uncertain how to access similar support. If you are working with an Indian team, identify these mentoring ties early. Partnering with a respected mentor can unlock commitment and follow-through from their protégés in ways that formal reporting lines alone will not.
+
+In newer sectors—IT, start-ups, multinationals—younger leaders blend coaching, open-door policies and flatter hierarchies with local expectations of visible authority. Teams may enjoy informal town halls but still read cues from where the boss sits, who speaks first, and how decisions are finally communicated. If you lead Indian colleagues, combining clear direction with personal support will strengthen collaboration over time, even in organizations that describe themselves as informal.

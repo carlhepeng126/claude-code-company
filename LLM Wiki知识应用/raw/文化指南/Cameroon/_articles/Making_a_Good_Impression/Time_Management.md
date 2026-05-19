@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Cameroon bends around relationships and context more than the clock. Schedules exist, but they rarely override the social logic of the moment. A meeting delayed by an unexpected visitor or a conversation that stretches beyond its allotted slot is not seen as poor planning. It reflects a belief that people and their needs come first. Rigid adherence to timelines can read as inflexible or even dismissive, especially when trust is still being built. For a colleague from a culture where meetings start and end on time, this can feel like inefficiency. From the Cameroonian side, insistence on strict punctuality without acknowledging the relational context may come across as transactional or cold.
+
+Where time does tighten is often tied to sector and setting. In multinational firms, export industries, or organizations with strong international ties, punctuality and deadline adherence are taken more seriously. These environments operate under global expectations, and lateness or missed deadlines risk reputational damage. But in government offices, family-run businesses, or settings where hierarchy and personal connection shape workflow, flexibility persists. Decisions may wait until the right person is consulted, or a timeline may shift to honor a senior figure's availability. This is not avoidance. It is how authority and respect are practiced.
+
+If you are coordinating across teams or scheduling client calls, confirm timings more than once and follow up the day before. Build buffer time into your own planning, especially for meetings that involve senior figures or multiple stakeholders. When you need a deadline met, explain why the timing matters and link it to a shared outcome, not just efficiency.

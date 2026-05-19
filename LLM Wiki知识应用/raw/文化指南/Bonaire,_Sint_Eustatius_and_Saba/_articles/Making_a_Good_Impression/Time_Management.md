@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time on Bonaire, Sint Eustatius and Saba tends to bend around relationships and context rather than the clock alone. This flexibility has roots in island life, where community rhythms and practical realities have historically shaped how commitments are kept. Schedules exist and are acknowledged, but they often give way when a conversation runs long, when someone needs help, or when an unexpected matter arises. The expectation is not that time will be ignored, but that it will be managed in relation to what and who is present.
+
+This approach shows up clearly in professional settings. A meeting scheduled for ten might begin at ten fifteen, not out of carelessness but because the preceding exchange was valued or because people arrived in island time. In government offices or locally owned businesses, this flexibility is more pronounced. In internationally facing sectors, particularly tourism or logistics where external partners depend on coordination, punctuality tightens. Even there, though, a margin of flexibility is understood, and pushing too hard on the clock without acknowledging the person can feel transactional.
+
+For a colleague accustomed to strict scheduling, this fluidity can read as disorganization or lack of commitment. From a local perspective, someone who prioritizes the clock over the moment may seem disconnected or abrupt. The underlying logic is relational: time serves the relationship, not the reverse. Building in buffer time, confirming plans the day before, and treating the first fifteen minutes as relational rather than wasted will align better with how things actually move. The work gets done, but rarely at the expense of the human exchange that surrounds it.

@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Hosting in Nigeria is a social and reputational act. Generosity, attentiveness, and the quality of what is offered reflect not only on the individual but on family standing and personal dignity. Guests are received as an opportunity to demonstrate capability and care, and entertaining is often treated as an extension of identity. What is served, how the atmosphere is created, and the effort behind the occasion communicate something about who the host is and where they locate themselves culturally.
+
+Regional and religious variation shapes format and tone. In Yoruba settings, particularly in Lagos, large celebrations with music, elaborate clothing, and visible social performance are a central part of entertaining culture. In other parts of the country, hospitality may be quieter and more home-centred, with warmth expressed through food, elder acknowledgment, and communal presence. Nigeria's religious geography creates real boundaries around alcohol, mixed-gender socialising, and evening tone. What feels appropriate in one circle may be entirely out of place in another, and hosts usually manage this through careful choices about venue, format, and timing.
+
+Evening events often start late and can run into the early hours. Clubs, hotels, and restaurants are common settings in cities, and live music or dancing is frequently part of the occasion. Business dinners are often held to mark the conclusion of a deal or strengthen rapport, and these gatherings are usually generous, festive, and long. Dress well and show visible appreciation. Receiving hospitality well is part of mutual respect, and hosts take note of how guests respond to what has been offered.

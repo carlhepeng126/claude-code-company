@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+British teams often rely on an unspoken "no news is good news" rhythm. The assumption is that if something goes seriously wrong, someone will raise their voice. Until then, silence can suggest things are ticking along. This works smoothly within established groups where everyone knows what normal looks like, but it can mask slow-burn problems that no one feels are urgent enough to flag yet. For colleagues from cultures where updates are expected at every stage, whether things are going well or not, that quiet can look like disengagement or even concealment. From a British perspective, constant status reports can seem unnecessary or even mistrustful when nothing has changed.
+
+Understated language adds another layer. Phrases like "we've hit a snag" or "it's proving trickier than we thought" can signal significant trouble, not minor inconvenience. The same restraint shapes how bad news travels upward. People soften the edges to avoid sounding alarmist, which means interpreting these cues correctly becomes essential. If a colleague says a few things "slipped through the net," treat it as an invitation to dig deeper and offer support, not to move on.
+
+Information often splits across channels. Formal updates appear in carefully worded emails that serve as polite records, while the real-time pulse of a project lives in Teams chats, WhatsApp groups, or brief corridor conversations. Understanding where the actual flow happens, and joining those spaces, makes a practical difference. Agreeing upfront what regular check-ins and shared risk logs should look like helps replace assumed silence with visible rhythm, especially on joint projects where cultural expectations around updates vary.

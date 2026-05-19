@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Tunisia, you can often make contact directly, especially in coastal cities like Tunis, Sfax, and Sousse, where professional networks are well established through universities, industries, and family ties. A respectful, well-contextualized email or LinkedIn message can open doors without a formal introduction. That said, a personal referral still smooths the path considerably. If a mutual contact can vouch for you, the initial conversation shifts from cautious to collaborative. This blend of openness and relationship-awareness reflects Tunisia's mix of Mediterranean directness and Arab relational culture. In more traditional sectors or in the south, where ties to community run deeper, introductions through trusted networks become more valuable.
+
+Early interactions should be warm and transparent. Tunisians respond well to clarity paired with friendliness. A transactional tone in your first message can feel cold and may not prompt a reply. Instead, mention shared connections or context, express genuine interest, and keep the language personal. Meetings often begin with small talk over coffee or tea, and this exchange is where trust starts to form. Skipping straight to business can feel abrupt, especially outside the most globalized firms.
+
+When scheduling, factor in religious and regional rhythms. Avoid Fridays due to communal prayers, and be mindful of Ramadan, when working hours shift and energy patterns change. Confirm appointments a day or two ahead by phone, email, or WhatsApp. Urban professionals in Tunis tend to value punctuality, but flexibility is still appreciated. Meetings may start late or run long, and adapting to these shifts without visible frustration shows respect for the relational foundation that underpins Tunisian business life.

@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Costa Rica's Central Valley business centers, many professionals treat punctuality as a sign of respect and try to arrive on time, especially for formal meetings with public institutions or foreign partners. Yet the same person may start an internal team meeting 15 minutes late without apology. The difference lies less in the clock than in the occasion. Torrential downpours flood streets with little warning, traffic slows to a crawl on narrow roads, and buses can run far behind schedule. People notice the effort to be on time and often forgive real delays when they are acknowledged briefly and without drama.
+
+Social events and internal gatherings often operate on more flexible time, running 10 to 20 minutes after the stated hour. This elasticity reflects the pura vida ethos that places relationships ahead of rigid scheduling. A colleague from a culture where meetings begin exactly at the stated time may read this as disorganization or lack of commitment. From the Costa Rican side, an insistence on starting a meeting at 9:00 sharp when two people are still greeting each other in the hallway may feel abrupt, even cold. Saying "a las 9 en punto" when you need a meeting to start at exactly 9:00 removes ambiguity and signals the formality you expect.
+
+In tourism, agriculture, and hospitality, the calendar shapes availability as much as the clock. High season can mean 12-hour days and seven-day weeks; off-season brings lulls when people have more breathing room. Scheduling a workshop or major project review during the peak rush risks half-hearted participation. Timing your ask for when the pressure eases makes collaboration more realistic and more productive.

@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+In Denmark, withholding information feels like a moral failure, not just a style choice. The assumption is that transparency makes organizations more efficient and allows people to do their jobs properly. Managers share reasoning, numbers and trade-offs, not just top-line decisions, because employees expect to inspect the logic behind a choice. This default to openness is shaped by public-sector norms: municipal and state authorities publish budgets, meeting notes and reports as routine practice, and those expectations carry over into private companies. Most things should be visible unless there is a good reason otherwise.
+
+That instinct for transparency sits alongside a strong plain-language culture. From the folkeskole onward, Danes are used to clear, de-jargonized explanations of complex topics. Long corporate announcements full of buzzwords raise suspicion rather than confidence. People ask: what are they hiding behind all those words? If you send a glossy summary without the background slides or the pros and cons, expect questions. Danish colleagues want to see the working, not just the conclusion.
+
+A colleague from a culture where information is shared selectively or kept within senior levels may read Danish openness as naïve or inefficient, while a Danish counterpart may read selective sharing as dishonest or a waste of everyone's time. If you decide not to share something, be ready to explain why, or it will be read as a breach of trust. Rewriting important messages into plain, simple language will get you more buy-in than impressive jargon ever will.

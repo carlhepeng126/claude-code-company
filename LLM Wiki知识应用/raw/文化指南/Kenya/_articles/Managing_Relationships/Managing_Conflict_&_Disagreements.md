@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Disagreement in Kenya is often handled with relationship repair in mind, rooted in traditions where councils of elders and mediators sought consensus and restored harmony rather than assigned blame. This legacy continues to shape how professionals prefer to resolve tension: through dialogue that protects dignity and preserves connection. Mediators or respected senior figures are still commonly involved when disputes stall, reflecting deep respect for seniority and the belief that relationships should outlast the conflict itself.
+
+How disagreement is expressed varies across Kenya's communities. Many Bantu professionals favour indirect exchange and private resolution, where avoiding public embarrassment is a moral and social priority. Nilotic colleagues may be more comfortable with frank debate, while Cushitic negotiation styles tend toward structured, assertive argumentation. In mixed teams, these differences coexist, which means that someone from a culture where directness is a neutral professional tool may read indirectness as evasion, while a Kenyan colleague who values harmony may read that same directness as aggressive or disrespectful. Naming the tension and agreeing on how to surface disagreement early can prevent misreading on both sides.
+
+Raising conflict publicly or singling out an individual risks shame and undermines resolution. Instead, address concerns privately first, and if progress is difficult, involve a senior colleague to facilitate. Resolution processes that aim to restore trust rather than declare a winner align with the way many Kenyans understand fairness and closure.

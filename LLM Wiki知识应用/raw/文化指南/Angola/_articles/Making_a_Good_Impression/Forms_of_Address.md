@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Angola, how you address someone reflects more than politeness. It registers awareness of hierarchy, age, and social position — all of which shape how relationships begin and where trust might form. Seniority and revolutionary credentials still command deference in many professional settings, and academic or professional titles matter. If someone has earned the title "Doutor" or holds government office, using it consistently is expected. Senior officials are often addressed simply as "Excelência" without a surname. In most early contact, default to "Senhor" or "Senhora" followed by the surname, and stay formal until the other person shifts the tone or signs an email with their first name.
+
+Age brings its own protocol. Addressing older colleagues or community figures as "tio" or "tia" (uncle or aunt), or adding "mais velho" or "mais velha" (elder), expresses both deference and warmth. A colleague from a culture where first names are used immediately may find this formal, while an Angolan counterpart might read the rapid shift to familiarity as dismissive or disrespectful. Watch how others address senior figures in mixed teams, and mirror that pattern rather than assuming informality will ease things.
+
+Portuguese is the language of business, but many Angolans speak Kimbundu, Umbundu, Kikongo, or other languages at home. Learning even a few greetings in the local language of the region where you're working — Kimbundu around Luanda, Umbundu in the central highlands — can deepen rapport quickly and show you recognize more than just the Portuguese-speaking elite.

@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+The formal structures of decision-making in the UAE exist alongside informal networks of influence that often determine the real outcome. Big decisions, especially those affecting government or sovereign entities, sit in the shadow of ruler-level thinking and regional geopolitics. A deal that looks purely commercial can pause suddenly because, as insiders say, "the regional weather changed." Relations with Saudi Arabia and Qatar, oil prices, global scrutiny, and regional conflicts all feed into the calculus. If you ask only "Is this a good idea?" and not "Does this fit the ruler's current priorities?", you may misread the room entirely.
+
+Abu Dhabi's government and sovereign funds typically project long-horizon, cautious power. Dubai's entities can act more like opportunistic entrepreneurs, pivoting quickly when opportunity appears. Many decisions sit at the tension point between those two styles. Understanding whether you are working with an Abu Dhabi entity, a Dubai one, or a federal body helps you anticipate the pace and risk threshold you will encounter. Ask early who at the Abu Dhabi, Dubai, and federal levels might have an interest in your proposal, rather than relying only on the organization chart.
+
+You may see formal committees and governance processes, but a quiet phrase from a senior figure—"This is good, we support it"—can unblock months of waiting. Silence from the top can kill something without a written no. Learn to read momentum in behavior: faster replies, more access, or increased engagement often function as approval. Provide short, visually clear decision briefs that can travel upward easily. Very senior figures will not read a sixty-page deck. Have a plan for when the weather changes, and show you have thought through how to adjust without embarrassing anyone.

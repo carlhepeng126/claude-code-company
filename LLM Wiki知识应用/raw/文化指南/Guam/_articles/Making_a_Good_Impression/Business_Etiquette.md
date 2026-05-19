@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Guam's workplace culture draws on the Chamorro principle of inafa'maolek, which prioritises harmony and right relationships. In meetings and daily exchanges, this shows up as a preference for keeping things cordial and avoiding confrontation. Direct criticism, especially in front of others, risks causing hafa adai, a breach of respect that can damage trust. If a colleague from Guam seems to agree but later hesitates or steps back from a decision, they may be managing a disagreement quietly to preserve the relationship. Someone from a culture that values directness might read this as unclear or evasive, while a Chamorro colleague might see bluntness as unnecessarily harsh.
+
+Hospitality runs through professional interactions. Meetings often begin with informal conversation, questions about family, or offers of food. These moments are relational work, and skipping them to move straight into business can feel abrupt. Colleagues who share a meal or attend a family gathering together often find it easier to collaborate later. This does not slow work down; it builds the trust that makes decisions easier.
+
+Dress codes are generally relaxed, especially outside government or finance. Business casual is common, and aloha shirts or island prints are widely accepted in most sectors. Titles and seniority are respected, and senior figures are greeted first. Handshakes are standard, though some older Chamorro professionals may lower their eyes slightly as a sign of respect rather than challenge. Taking time to acknowledge hierarchy and match the tone of the room will help you fit in more naturally.

@@ -1,0 +1,11 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Making contact in Singapore often starts through formal routes. Government agencies, large corporations, and established firms typically require entry through official channels: websites, vendor portals, generic email addresses, or professional associations. This reflects the emphasis on system and process in a state-organized society where formal structures remain the gateway to credibility. Only after initial contact has been made through these channels do personal networks begin to open doors, and then often decisively.
+
+Once that formal entry has been made, school and National Service networks become powerful accelerators. Alumni ties from junior college, polytechnic, or university, as well as shared NS units, quietly shape who trusts whom and how introductions are made. Singaporeans often place each other this way, asking which school or which cohort someone attended, not out of nosiness but to locate them within a shared social map. A warm introduction through one of these networks, especially mid-career, can shorten timelines considerably and shift you from procedural contact to genuine conversation.
+
+Singapore's business landscape also splits along partly visible lines. The CBD, tech hubs, and multinational sectors operate at high speed, with a global sensibility and expectation of quick, clear communication. Messages on WhatsApp, LinkedIn, and email are typically answered fast, and a delayed or vague response registers as disinterest or lack of seriousness. In contrast, heartland SMEs and public service agencies may prioritize reliability and no-nonsense delivery over flash or presentation. Partnering with a trusted local contact who understands these distinctions can help you navigate both environments without missteps.
+
+When scheduling, book at least two weeks ahead and confirm the day before. Punctuality is expected of visitors, and being late without explanation reads as careless. Even if you cannot yet commit, acknowledge the request promptly and give a timeline. Responsiveness itself builds trust.

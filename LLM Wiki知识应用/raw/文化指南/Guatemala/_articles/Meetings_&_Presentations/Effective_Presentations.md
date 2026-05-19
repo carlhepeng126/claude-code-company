@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+A presentation in Guatemala City to lawyers or consultants looks completely different from one delivered in a highland community in Nebaj or Cobán. Urban professionals often expect structured Spanish slide decks with data and credentials clearly laid out. In rural or Indigenous settings, the same information will resonate more if it takes the form of a story about a coffee cooperative, a weaving group, or a shared local challenge. Designing a single presentation and expecting it to work in both settings rarely succeeds. You need variants that reflect the room you are actually in.
+
+Communities across Guatemala have absorbed decades of workshops where international teams arrive, fill flipcharts, photograph participants, and then vanish. Words like *empoderamiento* (empowerment) and *capacitación* (training) now often trigger suspicion rather than interest. Many people hear these terms and expect another extractive cycle where their time and stories fuel a report they never see, while nothing tangible stays behind. If you are presenting in these contexts, address this directly. Say what will happen, who is funding it, what will remain when the project ends, and how decisions get made. Vague reassurances deepen doubt.
+
+The imagery you use also communicates intent. Opening with a photo of a North American factory or a European farm signals that the project was designed elsewhere and is being imported. Showing a *camioneta* (the colorful rural buses), a *milpa* on a hillside, or *alfombras* (the intricate street carpets made during Semana Santa) tells people you took time to understand their world first. This choice affects not only how the content is received, but whether the audience believes the work is genuinely for them.
+
+Build in time for questions, but expect interruptions, mobile phone calls, or people stepping out and returning. This reflects the collective and flexible nature of many Guatemalan settings, where the meeting is one thread in a day full of overlapping commitments. The presentation itself should emphasize the relationship you are building and the long-term service you plan to offer, not just technical mastery or a polished pitch. Overconfidence can make people uneasy, especially when trust has yet to form.

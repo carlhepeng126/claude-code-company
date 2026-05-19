@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+The Cocos (Keeling) Islands' small population and close-knit social structure mean that presentations rarely aim to persuade strangers. Most professional exchanges happen among people who already know each other, or who will soon need to work together within a limited circle of government and business contacts. Building rapport comes before delivering information. Your audience will be assessing whether you understand the community's scale and priorities, and whether you're willing to engage collaboratively rather than push an agenda from outside.
+
+Keep the tone conversational and the content accessible. Overly formal or technical presentations can feel disconnected from the island's pragmatic, relationship-driven approach to decision-making. If you're proposing something that affects the community, explain how it fits with existing priorities and who else you've spoken to. Referencing local contacts or demonstrating awareness of the island's unique governance arrangements between Home Island and West Island signals that you've done the groundwork.
+
+Don't expect immediate questions or feedback in the room. In a small community where people maintain ongoing relationships, direct challenge or visible disagreement can be socially costly. Decision-makers may prefer to consult quietly with trusted colleagues or raise concerns later in private. If the key person isn't present, someone else is often gathering input to share upward. Follow up individually after the session to invite further discussion without putting anyone on the spot.
+
+Allow time for pauses and avoid rushing through content. The island's pace reflects its size and the reality that decisions often involve coordinating across limited resources and overlapping roles. A colleague from a fast-moving corporate environment may read this as inefficiency, while someone from the Cocos (Keeling) Islands may see a highly polished, rapid-fire presentation as performative and disconnected from the practical realities of implementation.

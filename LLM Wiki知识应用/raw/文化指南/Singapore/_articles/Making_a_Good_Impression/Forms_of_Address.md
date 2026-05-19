@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Most Singaporean professionals switch to first names quickly, especially in private sector and multinational settings, and expect the same in return. But the informality of names does not mean informality of conduct. Hierarchy runs deep, shaped by Confucian tradition and a civil service culture that treats seniority and role as sources of legitimate authority. Even when a senior executive signs off as "Wei Ming," colleagues still moderate their tone in meetings, keep contributions concise, and avoid casual banter that might feel out of step with rank. The ease of first names coexists with careful attention to who holds what position.
+
+Government ministries, statutory boards, and more traditional organizations follow a different pattern. "Mr Tan" or "Ms Lim" is standard in formal correspondence and structured meetings, and academics or doctors often expect their titles acknowledged at the outset. In these settings, wait for an explicit invitation before switching to first names. Some senior civil servants will introduce themselves by first name but continue to be addressed as "Mr" or "Ms" by others in the room, a visible sign of respect that reflects the formality still embedded in public sector culture.
+
+Singapore's ethnic diversity means names can be Chinese, Malay, Tamil, or a mix, and many Chinese Singaporeans adopt English names for ease in international contexts. Mispronouncing a counterpart's name repeatedly, or visibly avoiding it, registers as carelessness, especially when the relationship is new or the person is senior. If you are unsure, ask once, repeat it back, and commit to using it correctly from then on. Start written communication with "Dear Mr Surname" or "Ms Surname" unless told otherwise, and mirror how people introduce themselves. A first-name greeting in person often follows a formal opening in email, and both are part of the same relational calculus.

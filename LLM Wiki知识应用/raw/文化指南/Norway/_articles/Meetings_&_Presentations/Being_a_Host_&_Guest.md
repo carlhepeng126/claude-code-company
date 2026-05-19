@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hosting and being hosted in Norway run on an ethic of reciprocity and restraint. The cultural model of *dugnad*, a form of collective voluntary work that maintains shared spaces and resources, extends into social situations. Contributing without needing recognition, being practically helpful, and not creating extra work for others are all forms of respect. A guest who offers to help clear dishes or arrives with a small gift is signaling that they understand the unspoken rule: participation builds belonging, not charm or status. Hosts similarly aim to make things smooth and unobtrusive, which can feel understated to colleagues from cultures where warmth is expressed through elaborate gestures or vocal enthusiasm.
+
+Punctuality and self-management reflect the deeper cultural logic embedded in *allemannsretten* (the right to roam), where broad freedom is paired with personal responsibility. Arriving on time, being tidy, and not requiring constant direction are all ways of showing that you can be trusted with autonomy. A colleague from a culture where hosting involves close attention and frequent check-ins may read Norwegian hosting as distant, while a Norwegian host may read constant offers of help or repeated thanks as a lack of confidence in the guest's ability to manage themselves.
+
+Formality is low, but expectations are firm. Dress smartly for business meals. Wait for the host to propose a toast before drinking wine, and finish what is on your plate. Thank your host with *takk for maten* (thank you for the meal) at the end of dinner. Invitations to someone's home are not casual, and staying until around 11 p.m. in winter or midnight in summer shows appreciation without overstaying. In smaller towns and close-knit professional circles, social behavior travels through overlapping networks, so being easy to host can have lasting reputational value.

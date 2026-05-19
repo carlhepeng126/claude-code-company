@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Tanzania's approach to professional courtesy is grounded in *utu*, a moral understanding of personhood that values empathy, self-control, and the preservation of human dignity. Etiquette here is less about formal protocol and more about demonstrating sincerity, respect, and social reliability. Politeness is often read as moral seriousness. Behaviour that risks embarrassment or public discomfort can damage trust even when intentions are good. This means avoiding direct confrontation or public correction, especially when speaking with someone older or more senior. Tanzanians will often handle sensitive issues indirectly, using stories, humour, or allusion rather than blunt speech. Listen closely even when the conversation seems to wander. What appears tangential may be the real message.
+
+Physical warmth is common in same-sex interactions. Colleagues stand close, touch arms during conversation, and sometimes greet with handshakes that linger. Between men and women, contact is more reserved, typically limited to handshakes and often only if the woman initiates. Averted eyes when addressing a senior colleague signal respect, not awkwardness. Prolonged direct eye contact with someone of the opposite sex can feel intrusive. Use your right hand for gestures, handshakes, and passing items. If your right hand is unavailable, offer your right wrist instead.
+
+Gift giving is appreciated but not expected. Thoughtful, personal gifts work better than displays of wealth. Small souvenirs from your own country or items for a colleague's children are well received. Avoid alcohol for Muslim families and flowers, which are used mainly for condolences. Wrapped gifts are often opened later, in private. When exchanging business cards, present and receive with your right hand. Cards do not need translation into Swahili, as English is widely used in business, but take a moment to read the card before putting it away.

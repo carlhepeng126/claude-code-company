@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leaders in Burundi tend to draw authority from age, family background, and ethnic affiliation rather than formal title alone. The country's history of ethnic tension between Hutu and Tutsi communities means that leadership often reflects communal loyalty and collective trust, not just individual capability. Decisions are made at the top, and questioning a leader openly can be seen as undermining group cohesion. In organizations, this translates to a directive style where leaders expect respect and deference. A manager from a culture where decisions are debated before being finalized may find the lack of visible input unsettling, while a Burundian colleague might view open challenge as disrespectful or even destabilizing.
+
+That said, informal consultation does occur, especially within trusted circles or among those with shared ethnic or family ties. Leaders may seek input privately before announcing a decision, allowing them to maintain authority while quietly accounting for key concerns. This keeps the public decision process smooth and avoids visible disagreement. If you are brought into such a conversation, recognize it as a sign of trust, and frame your views carefully. Offer suggestions that align with the leader's stated direction rather than proposing a completely different course.
+
+Younger professionals and those working in international NGOs or donor-funded programs may show more openness to participative leadership, but this remains the exception. Even in those settings, hierarchy is respected, and leaders are expected to guide firmly. Do not mistake courteous listening for shared decision-making. The final call remains with the person in charge, and they will expect that call to be followed without visible dissent.

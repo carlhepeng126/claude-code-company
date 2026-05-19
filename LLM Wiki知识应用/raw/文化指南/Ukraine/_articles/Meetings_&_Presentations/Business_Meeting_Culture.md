@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Ukraine make room for both structure and open exchange, a combination rooted in Cossack traditions of debate and shared decision-making. Participants value the chance to contribute directly, and once trust is established, people speak frankly, ask challenging questions, and expect clear answers in return. This blend of directness and warmth means that starting with a few minutes of conversation before the agenda helps build rapport. Moving straight into business can feel transactional and undercut the relationship you are building. Allow time for this opening exchange, especially in a first meeting, and understand that it serves a purpose beyond courtesy.
+
+Regional style varies. In Lviv, discussions may be expressive and layered with context. Kyiv tends toward a balanced professional tone. Odesa often brings humor into the room, while eastern cities favor a more direct and pragmatic approach. These are tendencies, not absolutes, but they shape how ideas are presented and debated. A colleague from a culture where meetings follow tightly scripted agendas may find the flow in Ukraine less linear, while Ukrainian participants may view a strictly task-focused meeting as rushed or impersonal.
+
+Hierarchy exists but is expressed with nuance. Senior voices are given weight, yet employees often share candid input when trust has been built. Decisions may not be finalized during the meeting itself. Follow up with a written summary or continue the conversation afterward to confirm next steps. This ensures clarity and shows you value the collaborative process.

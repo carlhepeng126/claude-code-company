@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+In South Africa, disagreement rarely stays purely technical. Because identity categories were historically weaponized under apartheid, conflict can quickly gather emotional weight around dignity, fairness, and belonging, particularly when language, race, nationality, or class comes into play. The Truth and Reconciliation Commission also shaped a cultural expectation that harm needs acknowledgment before resolution can happen. Moving straight to fixes without naming what went wrong often feels incomplete or dismissive. If you are managing a team dispute, create private space to hear what happened and acknowledge it plainly before proposing next steps. Skipping that step risks leaving the real tension unresolved.
+
+South Africa holds many conversational styles at once. Some communities value directness, while others prefer indirection and ritual markers of respect, especially where age or seniority differences are involved. Public challenge can feel particularly sharp in certain settings. Before raising a disagreement openly in a meeting, check local norms and consider whether the person you need to address would prefer a quieter conversation first. Similarly, a colleague from a culture where open debate is routine may read indirection as avoidance, while a South African counterpart may read immediate confrontation as disrespectful or socially clumsy.
+
+Conflict is often processed relationally, through trusted intermediaries and informal channels, rather than resolved instantly in formal meetings. When bandwidth is already strained by daily pressures like transport delays or load shedding, minor friction can escalate faster. Offer people time to consult, involve a trusted third party if needed, and resist pushing for closure before the relational work is done.

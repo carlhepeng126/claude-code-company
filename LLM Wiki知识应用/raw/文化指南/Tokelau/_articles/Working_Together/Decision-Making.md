@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+In Tokelau, decisions are made collectively through the village council, known as the *taupulega*, a body of family heads that meets to discuss and decide on matters affecting the community. This structure reflects the centrality of the *inati*, the traditional system of equal resource distribution, which has shaped a deeply consensus-based approach to leadership. No single individual decides alone. Even when working with external organizations or in professional settings beyond the islands, Tokelauans bring this expectation of shared deliberation and seek alignment across those with a stake in the outcome.
+
+The process takes time because legitimacy depends on inclusion and collective agreement, not speed. A manager from a culture where decisions are made quickly by a designated authority may read this as indecisiveness or inefficiency. From the Tokelauan perspective, a decision made without proper consultation risks breaking trust and undermining the social cohesion that underpins all cooperation. Announcing a decision before the group has reached consensus can appear dismissive or self-serving.
+
+In cross-cultural teams, Tokelauans may be reluctant to move forward until everyone has been heard and a shared understanding has emerged. If you need a decision finalized, allow time for informal discussion before any formal meeting, and check in with key stakeholders individually to understand where alignment exists and where further conversation is needed. Framing a decision as provisional and open to adjustment also makes it easier for the group to build toward agreement without forcing premature closure.

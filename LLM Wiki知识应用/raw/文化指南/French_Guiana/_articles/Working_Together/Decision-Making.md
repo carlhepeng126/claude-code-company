@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in French Guiana follow a layered and often slow-moving process shaped by the territory's unusual political status and its multicultural makeup. As an overseas department of France, formal structures are highly centralized and tied to French administrative norms, which prioritize written approvals, regulatory compliance, and deference to hierarchy. But French Guiana is also home to Creole, Indigenous, Bushinengue, Hmong, and other communities, each with distinct social logics. This means that formal channels and informal networks often operate side by side, and a decision that looks complete on paper may still be under negotiation in practice.
+
+Authority rests with those who hold formal titles, particularly in public sector or French-affiliated organizations. Senior managers make final calls, and their approval is expected before action can begin. However, managers rarely move quickly or unilaterally. They tend to consult trusted individuals informally before committing, especially when decisions touch on community relations, resource allocation, or inter-group sensitivities. This consultation is not about consensus in the egalitarian sense. It is about maintaining social balance and avoiding missteps in a setting where historical tensions and cultural boundaries still matter. A decision that ignores these realities may face quiet resistance or delayed implementation, even if it has been formally approved.
+
+Colleagues from cultures where decisions are made quickly and once may find the layered pace frustrating, interpreting it as indecision or inefficiency. From a French Guianan perspective, speed without social grounding can look careless or naive. If you are working with teams in French Guiana, allow time for informal soundings and do not assume that formal sign-off means immediate action.

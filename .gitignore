@@ -1,0 +1,19 @@
+# Obsidian workspace (device-specific, changes on every open)
+.obsidian/workspace.json
+.obsidian/workspace-mobile.json
+.obsidian/plugins/
+.obsidian/themes/
+
+# System
+.DS_Store
+Thumbs.db
+desktop.ini
+
+# Node modules
+node_modules/
+
+# Large binaries
+*.exe
+*.dll
+*.zip
+*.tar.gz

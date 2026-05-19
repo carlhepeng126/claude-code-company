@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Anguilla's approach to time is relational, shaped by the island's small size and the enduring role of family and community ties in daily life. Schedules exist and are generally respected, but they bend when relationships require it. A meeting may start a few minutes late if someone stops to greet a relative, or a decision may take longer than expected because the right person was unavailable and rushing ahead without them would undermine trust. This is especially true in family-owned businesses and government settings, where personal connections and social considerations influence the rhythm of work more than the clock.
+
+In tourism and hospitality, where international expectations are well understood, punctuality is taken more seriously. Hotels, restaurants, and tour operators tend to meet deadlines and honor scheduled times, recognizing that visitors from cultures with tighter time structures expect reliability. Yet even here, flexibility can surface when local relationships are involved. A supplier might be late because they prioritized helping a neighbor, and that choice reflects a deeper logic where maintaining social bonds secures long-term cooperation.
+
+For a colleague from a culture where schedules are firm and delays are seen as inefficiency, Anguilla's approach may seem frustratingly loose. From an Anguillan perspective, rigid adherence to time at the expense of relationships can appear cold or transactional. Understanding this exchange helps clarify why a project timeline might shift or why follow-up takes longer than anticipated. The delay is rarely indifference; it often reflects a deliberate effort to involve the right people and preserve the trust that sustains collaboration over time.

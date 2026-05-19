@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Danes describe being *til at stole på* (trustworthy) as a core professional value, and that shows up in how problems are handled. If a deadline is at risk or a mistake has been made, saying so calmly and moving quickly to what you propose to do next is the expected approach. Spinning difficulties or adding dramatic framing suggests you are managing perceptions rather than being straightforward, and that undermines confidence. A colleague from a culture where bad news is softened or cushioned through extended justification may find this directness jarring, while a Dane hearing repeated explanations may wonder why the solution is taking so long to appear.
+
+Small talk exists but tends to be short and practical: weekend plans, children, a cycling mishap on the way to work. The purpose is connection, but prolonged social warm-up before getting to the substance of a meeting can feel uncomfortable. Danes generally prefer to move fairly quickly to what everyone is there to do. If you are used to longer rapport-building conversations, notice when your Danish colleagues begin shifting toward the agenda. That is the cue to follow.
+
+Self-promotion is policed quietly but consistently through a cultural norm rooted in *Janteloven*, the idea that no one should consider themselves more important than the group. If someone talks too much about their own achievements, you will feel the room cool slightly. Colleagues may deploy dry humor or abruptly change the subject to bring the person back to group size. This is not random rudeness but a form of social correction. Watch how others respond to confident colleagues and let that show you how much visibility the culture will tolerate before it begins to push back.

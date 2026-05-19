@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Cambodian teams often organize themselves around relationships that go deeper than the org chart. Colleagues sort into informal sibling roles—bong (big sibling) and oun (younger sibling)—based on age, experience, or shared history, regardless of formal job title. Oun tend to take on more of the legwork, while bong shield them in difficult moments and speak on their behalf to senior managers. If you restructure a team or assign work purely by role, you may cut across these protective ties and leave people feeling exposed or unsupported.
+
+Harmony within the group usually takes precedence over open debate. Many colleagues would rather stay quiet or agree outwardly than challenge someone directly, especially if that person is older, more senior, or simply a bong they feel they owe respect. This means dissent rarely surfaces in meetings. If you want to understand what people actually think, use anonymous input channels, small breakout groups, or one-to-one conversations where status difference is less visible.
+
+Bonds formed outside the workplace—shared schooling, surviving the same factory job, coming from the same village—can override formal team boundaries when things get tense. In a crisis or under pressure, loyalty may flow along these older networks rather than along reporting lines. Understanding who studied together or who feels they owe whom protection explains patterns in workload distribution, silence, and mutual support that might otherwise seem opaque. When restructuring, respect these existing bonds where you can, and explain changes carefully so you don't accidentally dismantle vital support systems people rely on.

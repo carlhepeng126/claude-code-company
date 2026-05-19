@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Pakistan is filtered through *izzat*, the cultural logic of honor and social standing. Public correction can threaten that standing in ways that reach beyond the workplace. Embarrassment in front of colleagues doesn't just affect confidence, it can damage reputation and relationships in ways that linger well beyond the moment. This makes the setting and delivery of feedback as important as the content itself.
+
+Tone, restraint, and careful phrasing communicate respect and good intent. Many colleagues listen first to whether the feedback protects their dignity, then to the technical detail. Blunt or hurried critique, especially when delivered publicly, can trigger defensiveness rooted in honor rather than disagreement with the point being made. A manager from a culture where directness signals efficiency may read this response as evasion or overreaction. From the other direction, a Pakistani colleague receiving feedback that feels abrupt or impersonal may question the relationship, not just the message.
+
+Hierarchy and age shape who can coach whom, and in what tone. Direct critique from a junior colleague can feel inappropriate in some settings, even when the insight is sound. This doesn't mean feedback flows only downward, but the channel and framing need to reflect seniority. Sensitive truths are often moved into private, one-to-one conversations where the person can respond without public exposure. If you need to raise a performance concern, schedule a quiet moment and frame it with explicit good intent. Avoid group settings for anything that could be read as correction.

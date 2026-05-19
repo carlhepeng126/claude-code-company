@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Cuba, scheduled time and lived time often diverge. This reflects both structural realities and a deeply relational culture where social obligations can take precedence over the clock. Meetings may start late or be postponed at short notice, and arriving 15 to 30 minutes after the agreed time is common. For colleagues from cultures where schedules are treated as fixed commitments, this can feel unpredictable. From the Cuban side, strict adherence to a schedule when circumstances or relationships require flexibility can seem rigid and impersonal.
+
+This flexibility has practical roots. Public transport is unreliable, power cuts disrupt work, and everyday logistical challenges mean that people build adaptability into their expectations. But it also reflects a social logic: personal relationships and immediate human needs often outweigh the formal plan. A colleague may delay a meeting to help a family member or respond to an urgent request from someone senior. This is relational obligation, and it registers as legitimate, not as an excuse.
+
+In state enterprises and some traditional settings, this fluidity persists across most interactions. In joint ventures, tourism operations, or international business contexts, punctuality is increasingly expected and observed, especially with foreign partners. Even there, however, responsiveness to relationship and context remains stronger than rigid timekeeping. If you are scheduling meetings or setting deadlines, confirm plans closer to the date, allow buffer time, and frame follow-up as coordination rather than enforcement.

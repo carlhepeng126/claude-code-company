@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Tokelau is rare in the formal sense. The atolls have no restaurants, hotels, or commercial hospitality infrastructure, and the vast majority of business and governance discussions take place within village structures or community settings. When visitors do come, they are typically housed and fed by families or through the village council, and meals become the natural backdrop to getting to know one another.
+
+Food is shared generously, and the act of eating together reflects the communal ethic that underpins daily life. Meals are often simple but plentiful, based on locally available fish, taro, coconut, and breadfruit. Hosts take pride in offering what they have, and accepting food with openness and appreciation builds rapport far more effectively than any formal gesture. Declining what is offered, or eating only a small amount without explanation, can suggest discomfort or distance. If you have dietary restrictions, explaining them early and with warmth helps hosts adjust without embarrassment.
+
+Conversation during meals is relaxed and seldom focuses on business content directly. The gathering itself builds the relationship, and it may take several shared meals before substantive matters are discussed. A colleague accustomed to using dinners to close deals or advance proposals may find the pace frustratingly indirect, while Tokelauans meeting someone who steers conversation quickly toward outcomes may read that as transactional or self-interested. Trust is built through time spent together, and expecting business progress from every interaction misreads how decisions actually form.

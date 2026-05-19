@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Greenland tends to be informal and community-facing. While formal roles and titles exist, especially in government and larger institutions, the style itself is more grounded in accessibility than authority. Leaders are expected to be visible, approachable, and responsive rather than distant or ceremonial. This reflects the influence of small-town social structures where everyone is known, and distance from the group can undermine trust. A leader who seems too removed or aloof may be perceived as disconnected from the realities their team or community faces.
+
+Decision-making often involves consultation, though this may take time. Leaders typically seek input across the group before committing, which reflects both a preference for consensus and the practical need to maintain relationships in a small, interconnected society. For a colleague from a culture where decisions are made quickly and communicated top-down, this may feel slow or indecisive. From a Greenlandic perspective, a decision made without sufficient consultation may seem rash or disrespectful, leaving people feeling bypassed rather than included.
+
+This consultative approach does not mean leadership avoids responsibility. Once a direction is agreed, leaders are expected to act and be accountable. But the process leading up to that point is often collaborative and unhurried. In cross-cultural settings, this means giving time for voices to be heard and resisting the urge to push for closure before the group feels ready. Transparency and honesty in communication also matter: leaders who overstate certainty or withhold context risk eroding the trust that underpins their role.

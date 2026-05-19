@@ -1,0 +1,11 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Poland often move through clear stages and require written confirmation before they feel settled. This approach reflects something deeper than administrative habit. After decades of systemic uncertainty and rapid institutional change, structure functions as reassurance. Planning with visible steps reduces unpredictability and preserves dignity in professional relationships. What a colleague from a culture where decisions are made quickly might read as bureaucratic caution, a Polish counterpart may experience as necessary care. Conversely, a rushed commitment without documented follow-through can feel lightweight or unreliable from a Polish perspective.
+
+Formality serves a specific purpose in this context. When wording becomes explicit and commitments are written down, the decision crosses a threshold and becomes real. This is why verbal agreements, even when warm and detailed, often need a formal follow-up before action begins. If you are working across teams, confirm decisions in writing with clear ownership of next steps. This increases confidence and reduces the need for clarification later.
+
+Consensus builds slowly, particularly in hierarchical organizations where senior figures hold real authority. Decisions are typically made at the top, but only after input has been gathered and internal alignment reached. This can mean multiple meetings and rounds of discussion. Staying in regular contact through calls and in-person check-ins, not only email, helps you understand who holds influence and how decisions actually move forward. Explaining the reasoning behind a proposal plainly and factually tends to land well. Clarity itself is often read as respect.
+
+Be mindful of timing around major cultural anchors. All Saints' Day in early November and the May holiday cluster (1–3 May) are treated as meaningful resets, and attention shifts noticeably during these periods. Scheduling important decisions outside these windows makes practical sense.

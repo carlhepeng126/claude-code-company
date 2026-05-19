@@ -1,0 +1,11 @@
+# Decision-Making
+
+## Working Together
+
+Australian decision-making blends consultation with a clear endpoint. Leaders often seek input widely before making a call, but the process is expected to move forward, not circle indefinitely. The underlying logic is both practical and cultural: consultation builds buy-in and surfaces concerns, but decisions need to land so work can proceed. This reflects a preference for egalitarian engagement paired with accountable leadership. If you are presenting a proposal, frame it as a set of concrete options with clear trade-offs. Decision-makers will want to see what each path involves, not just a single recommendation dressed as consensus.
+
+Risk sits at the center of how decisions are evaluated. Australian leaders weigh legal exposure, workplace safety, reputational fallout, and community reaction alongside cost and return. This reflects a regulatory environment where non-compliance can trigger media scrutiny and enforcement action, and a cultural expectation that organizations act responsibly. A proposal that looks purely at financial upside without addressing compliance or social impact will raise questions. Show that you have thought through what could go wrong and how it would be managed.
+
+For listed companies or subsidiaries of global firms, the final decision often rests with a board or offshore headquarters. Local leaders operate within that structure, balancing what makes sense in the Australian context with what head office will approve. If you are working with an Australian team, clarify early which decisions they can make locally and which require escalation. Expecting local autonomy where it does not exist will slow things down and create frustration on both sides.
+
+Australia's exposure to bushfires, floods, and cyclones means leaders are practiced at making fast decisions under pressure and coordinating with emergency services. In a crisis, the usual consultation may compress sharply. Be ready to shift gears quickly and support rapid implementation rather than insisting on pre-agreed process.

@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Many professionals working in Phnom Penh remain deeply rooted in their home provinces, where parents, land and obligations still shape their rhythms and loyalties. When you reach out to a new contact, your proposal often travels quietly through networks you will never see: cousins, pagoda communities and school friends from the same village. LinkedIn profiles matter, but the real vetting happens through these older, more trusted channels. Understanding this dual geography helps explain why some introductions move quickly and others take weeks.
+
+Being introduced through someone already in the network gives you standing that a cold email cannot. The kinship terms *bong* (older sibling) and *oun* (younger sibling) describe more than age. They signal position in a web of mutual obligation and protection. When a respected *bong* tells others "this person is with me," that endorsement opens doors and shapes how you are received. Invest in warm introductions through local partners, alumni networks or NGO colleagues, and let someone credible adopt you into their circle.
+
+Scheduling itself works best when you start with a call, a Facebook message or Telegram. A formal calendar invite sent to someone you have never spoken with can feel abrupt and confusing. Treat these channels as primary, then follow up with the written detail. Once a meeting is set, check whether the date falls near a funeral, wedding, pagoda ceremony or the rice planting or harvest season. These events pull entire families away for days, and colleagues may not decline in writing because they already know that week belongs to the village.

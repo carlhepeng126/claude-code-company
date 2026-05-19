@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In Tuvalu's small government and public sector offices, presentation is relaxed by most international standards. Men typically wear collared shirts, often short-sleeved, with trousers or a lavalava (a wraparound cloth worn as a skirt). Women wear dresses, skirts and blouses, or the puletasi (a two-piece outfit with a wraparound skirt and matching top). The formality lies less in tailoring than in neatness and modesty. Shoulders are usually covered, and hemlines fall below the knee. This reflects both the climate and the influence of church values, which continue to shape what is considered appropriate in shared professional and community life.
+
+Formal occasions, such as meetings with senior officials or events tied to the church or island gatherings, call for the same garments but worn with greater care. A pressed shirt, a well-tied lavalava, or a clean puletasi signals that you understand the setting and the people involved. There is little variation by sector, as most professional roles are connected to government, NGOs, or church-related institutions. The expectation is not elaborate dress but visible respect for the occasion.
+
+Visitors wearing business casual are rarely out of place, but those who dress too informally, especially in shorts or sleeveless tops outside of casual social settings, may be seen as overlooking local standards. In a culture where communal values and church involvement are woven into daily life, dressing modestly and cleanly shows you take the relationship seriously. Matching the level of care your hosts bring to their own appearance helps establish early credibility and ease.

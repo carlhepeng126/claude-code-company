@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Greek teams often function like a modern echo of the city-state: individuals argue vigorously, stake out their positions, and defend them with conviction, but beneath the debate runs a strong current of collective pride. What looks like fracture to someone from a culture where teams aim for smooth consensus is more often a sign of engagement. The worst outcome is not disagreement but being overlooked or excluded from the discussion entirely. When a manager makes a decision without consulting the team, or when someone is bypassed in a process they expect to shape, the reaction is rarely quiet.
+
+Most teams develop informal structures that matter more than the chart on the wall. There is usually someone who acts as the team's unofficial mayor, organizing saint's day collections, mediating between colleagues, and sensing when morale is low. There may also be a small but stable opposition: people who will challenge management decisions as a matter of principle. Both roles are stable features. If you are introducing change, the informal mayor's reaction will ripple outward. When they support an initiative, others take it seriously. When they hesitate, everyone else will feel it.
+
+Greek teams tend to pull together sharply when facing external pressure, whether from an auditor, a ministry, or an unreasonable client. Colleagues who were arguing the week before can unite with surprising speed. The shift is less about suppressing internal differences and more about redirecting energy toward a shared front. If you are proposing a new process or policy, framing it as something that strengthens the team against outside demands rather than as another burden from above makes it easier to bring people along.

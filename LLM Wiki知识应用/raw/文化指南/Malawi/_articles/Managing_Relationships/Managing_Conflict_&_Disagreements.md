@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Disagreement in Malawi is rarely treated as just a matter between two people. It can disrupt the sense of community equilibrium and threaten collective dignity, which makes open confrontation culturally uncomfortable. This explains why colleagues may allow problems to build quietly rather than raise them early. Managers working across cultures should listen closely and watch for indirect signals, since direct complaint may only surface when the situation has become unavoidable. A colleague from a culture where issues are flagged immediately may find this reticence frustrating, while a Malawian counterpart may find early, direct challenge unnecessarily abrasive and damaging to trust.
+
+Resolving conflict discreetly and one-to-one protects the dignity of everyone involved. Public confrontation, even if intended to clear the air, will often deepen the problem by exposing loss of face. Keeping emotions steady also helps; visible anger or frustration tends to make people withdraw rather than engage. If a manager cannot resolve the issue directly, involving someone more senior in the organization, or even a respected community figure such as a minister or imam, is a culturally natural step. This draws on long-standing traditions of elder and community mediation, where restoring balance through a trusted intermediary is more effective than forcing a public winner and loser.
+
+Malawi's own history of peaceful political transition in the early 1990s reinforces a preference for resolving pressure through process and restraint rather than escalation. In workplace terms, this means emphasizing fairness, calm sequencing, and measured steps when navigating disagreement, rather than rushing to resolution or confrontation.

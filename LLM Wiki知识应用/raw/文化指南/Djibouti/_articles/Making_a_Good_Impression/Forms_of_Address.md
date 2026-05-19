@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Djibouti, forms of address carry considerable social meaning and reflect the country's multilingual and hierarchical professional culture. How you address someone establishes the level of respect and formality in the relationship from the outset, and getting it right matters in both initial encounters and ongoing collaboration.
+
+Titles are used consistently in professional settings, particularly in government, military, and formal business contexts. Use "Monsieur" or "Madame" followed by the family name in French-speaking environments, and equivalent respectful forms in Somali or Afar depending on your counterpart's background. Professional titles such as "Docteur" or "Directeur" are commonly used and should be included where applicable. Moving to first names requires an explicit invitation and happens more readily among peers of similar age or status. Until that shift occurs, maintain formal address even after several meetings. A colleague from a culture where first names are offered quickly in professional settings may perceive this formality as distant, while a Djiboutian counterpart may view an uninvited switch to first names as presumptuous or dismissive of their position.
+
+In written communication, particularly emails and official correspondence, formal openings and closings remain standard. Begin with a polite greeting that includes the person's title, and close with conventional phrases such as "Cordialement" or "Respectueusement." Even routine exchanges benefit from this structure, as abruptness or informality can suggest a lack of regard. Observing these conventions builds credibility and signals that you understand the relational dimensions of professional work in Djibouti.

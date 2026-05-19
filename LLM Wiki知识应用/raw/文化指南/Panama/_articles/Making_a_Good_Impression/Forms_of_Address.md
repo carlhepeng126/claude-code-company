@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Spanish courtesy forms structure professional interaction in Panama, though warmth and formality blend differently across contexts. Respectful address creates social smoothness, especially when age, seniority, or institutional roles are visible. Professional titles such as *Doctor* (for Ph.D. holders or physicians), *Ingeniero* (engineer), *Arquitecto* (architect), *Licenciado* (lawyer), or *Profesor* (teacher) are used with surnames until familiarity is explicitly invited. For those without professional titles, *Señor* or *Señora* followed by the surname is expected. Moving to first names too quickly can read as presumptuous, particularly when working with senior figures or government institutions.
+
+Panama City's cosmopolitan corridor, shaped by international business and diverse expatriate presence, often shifts into first-name terms more readily than interior provinces, where age and community standing maintain stronger formality. Caribbean coast contexts may express warmth more openly while still observing clear lines of respect. In comarcas, address involves recognizing community authority structures and distinct Indigenous identities. Respect is shown by acknowledging who holds local legitimacy, how introductions are made, and whether you treat the community as culturally distinct rather than generically Panamanian.
+
+Panamanians typically carry two surnames, the father's followed by the mother's maiden name, though only the first surname is commonly used in conversation. Business cards may list both. Folkloric and cultural festival worlds, including pollera craftsmanship and carnival structures, create local hierarchies not immediately visible to outsiders. Addressing someone appropriately in these settings means recognizing they may hold standing as tradition custodians or community figures whose status exists outside formal professional titles.

@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Cuba are shaped by decades of centralized decision-making and a professional culture where seniority determines both who speaks and what moves forward. Expect formal gatherings, especially early in a relationship, with the most senior person in the room holding real authority. Decisions rarely happen during the meeting itself. Cuban managers typically need to consult upward or laterally across the organization before committing, a reflection of both hierarchical approval structures and the habit of collective responsibility developed under state-run enterprise. If you're arriving from a culture where decisions are made quickly in the room, this can feel slow. From the Cuban side, pushing for an immediate answer can seem naive or disrespectful, as though you don't understand how accountability works.
+
+Agendas are often treated as starting points rather than rigid frameworks. Discussions may move sideways or revisit earlier topics, especially if trust is still being built. Small talk before the formal start is common and serves a real purpose: Cubans assess character and reliability through conversation, not just credentials. Warmth and humor may surface once rapport is established, but the opening tone is likely to be measured and polite.
+
+Silence during a meeting is not discomfort. It often signals careful thought or deference to hierarchy. Don't rush to fill it. If you're presenting, be clear and concrete. Overpromising or vague optimism will damage credibility faster than a cautious, realistic proposal. Follow-up after the meeting is essential. Reconfirm what was discussed in writing, as verbal agreements alone may not lead to action without documented clarity.

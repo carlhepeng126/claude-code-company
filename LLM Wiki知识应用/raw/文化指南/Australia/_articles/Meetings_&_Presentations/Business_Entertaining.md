@@ -1,0 +1,11 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business relationships in Australia are often nurtured over a beer at the local pub, coffee at a beachside cafe, or sausages at a backyard barbecue, especially outside the central business district. Fine dining exists and the country's multicultural food scene is a source of pride, but casual settings are more common. This reflects a broader cultural preference for informality and directness. Over-staging a meal can feel unnecessary or even performative. Choosing a relaxed venue with good food shows effort without pretension, and colleagues will appreciate the thought behind the choice.
+
+Alcohol features heavily in many social-business settings, but the culture around it is shifting. Beer and wine remain standard at pubs and after-work gatherings, but there's growing awareness of colleagues who don't drink for religious, health, or personal reasons. Younger professionals may favor coffee catch-ups or exercise-based socializing over evening drinks. A colleague from a culture where alcohol refusal might need explaining will find it easier here, as Australian colleagues rarely press the issue. Conversely, someone who treats wine or beer as a required ritual may misread a decline as disinterest, when it simply reflects personal choice. Offering alcohol-optional formats, such as lunches or daytime meetings, includes a wider range of people without making abstention visible.
+
+Sport often serves as social shorthand. Talking about Australian rules football, cricket, rugby, surfing, or netball can ease initial awkwardness and build rapport quickly. Not caring about sport is perfectly acceptable, but some basic awareness of local codes helps. Australians will often use sport to fill conversational space, and it's a way of finding common ground without venturing into more personal territory too soon.
+
+Many Australians live far from extended family or face long commutes, so evening and weekend time is often guarded. Declining a social invitation doesn't necessarily signal low commitment to the work relationship. Planning events with plenty of notice and offering flexibility around timing shows respect for these realities and will be remembered more than the event itself.

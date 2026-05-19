@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Formal authority in Hong Kong often functions as the endpoint of a decision, not its origin. A general manager or regional head may be the one to sign off, but that approval typically follows quiet canvassing across legal, risk, mainland counterparts, key clients, and sometimes even landlords or property stakeholders. The formal yes confirms what has already been aligned behind the scenes. For colleagues from cultures where senior leaders decide quickly and alone, this process can feel circular. From a Hong Kong perspective, the reverse can seem reckless: announcing a decision without confirming all the angles first risks exposure on multiple fronts.
+
+Risk filters run first. Before evaluating profit or growth, the instinctive questions in many sectors are whether a proposal could trigger compliance issues, upset regulators, or go viral on local social media. This reflects both the city's tight regulatory environment and its dense, reputation-sensitive professional networks. Proposals that lead with upside but omit a clear risk section and mitigation plan will stall. Showing you have thought through regulatory, reputational, and operational exposure builds credibility faster than optimism alone.
+
+Many Hong Kong professionals maintain personal contingency plans: foreign passports, children studying abroad, savings held offshore. This shapes their appetite for career risk. They may engage with bold ideas in principle, but they also watch for signs that a company or leader might jeopardize their future options. Hesitation is sometimes about personal risk calculus, not the content of your proposal. Building trust over time, so colleagues feel safer attaching their name to your work, can shift decisions that seemed stuck on substance alone.

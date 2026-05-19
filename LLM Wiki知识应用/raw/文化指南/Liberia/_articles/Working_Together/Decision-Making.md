@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Liberia gain their legitimacy through more than formal process. Endorsement is moral and relational, particularly when community anchors — elders, respected figures, trusted advisors — have been consulted or at least not bypassed. In many settings, a decision that skips these figures may struggle to take root, even if the organizational hierarchy has already approved it. This means that the right people need to have been part of the conversation, or at least aware, before implementation feels secure. Final authority rests with the most senior person, but the route to that decision often involves quiet, private consultation rather than a single linear approval chain.
+
+Time itself plays a role. Decisions may ripen slowly, shaped by the palava-style practice of hearing stories, restoring balance, and allowing space for reflection. What might look like delay to a colleague from a culture where decisions are made quickly is often social alignment in motion. Pushing for speed can weaken your position and damage relationships, particularly when the proposal involves significant change or risk. Liberia's recent public health experience, especially during the Ebola epidemic, reinforced the seriousness with which decisions are approached — collective compliance and visible accountability became essential, and that memory still informs how people assess whether a course of action is sound and feasible.
+
+Regional variation shapes the process. In Monrovia, decisions may follow institutional steps and formal English conventions. In county contexts, legitimacy often relies more on community leadership structures and elder involvement. If you are working outside the capital, expect the relational layer to deepen, and plan your timeline accordingly.

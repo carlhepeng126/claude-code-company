@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+A Hong Kong team can gather people with sharply different points of reference. Someone who grew up in a public housing estate under Lion Rock, a colleague from an elite international school, and a Tsinghua or Beida graduate on secondment may sit at the same table. Their assumptions about hierarchy, risk, and even what counts as home can be quite different. Treating the team as a single cultural unit misses these distinctions. Asking about education and migration backstory, rather than assuming shared values, helps explain why one person pushes back on a suggestion while another defers without comment.
+
+Offices are often dense and open-plan, mirroring the city itself. People learn to manage sensitive conversations by moving them out of earshot: a whispered exchange, a direct message, a phone call taken in the stairwell. Expecting public discussion of problems or emotions in this environment usually backfires. Colleagues from cultures where airing disagreement at a desk is routine may read the quiet as avoidance, while Hong Kong professionals may see open confrontation as inappropriate exposure. Providing small meeting rooms or suggesting walking one-on-ones creates space for honesty without the awkwardness of a public stage.
+
+In many firms, especially those with high turnover, people bond around delivery more than long-term socializing. Respect accrues to those who meet deadlines and solve problems under pressure, not to those who bring the most energy to team lunches. Cohesion emerges from shared wins and visible outcomes, so structuring projects with clear milestones and collective accountability tends to work better than relying on forced social activities alone.

@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Moroccan time works on more than one clock. There is the formal clock of schedules and appointments, and there is the social clock of relationship obligations, religious rhythms, and hospitality. The balance between them varies by sector, generation, and city, but both are real. A colleague used to environments where the day is carved into fixed blocks may read this as unpredictability. From a Moroccan perspective, time that bends for a relationship or a religious obligation is time well used, and rigidity can feel transactional or disconnected from what gives work its meaning.
+
+The religious calendar reshapes public tempo in concrete ways. During Ramadan, daily energy shifts, institutional schedules adjust, and Morocco's public administration has formally adopted altered working hours in various years. This is structural, not optional. Friday also has a distinct rhythm, particularly for those who orient around religious practice, and evenings often become socially dense with family visits, café life, and public strolling. In Ramadan especially, nights become livelier, which changes what feels like available time across the day. If you are scheduling cross-border meetings or planning project phases, expect productivity to vary by hour and by calendar period.
+
+Recent drought-linked restrictions on hammams show how environmental conditions can ripple into daily routines, affecting communal spaces and the rhythms that depend on them. Build time buffers into your planning, and treat them as relational protection, not just logistical padding. When the social clock and the schedule clock compete, the relationship usually wins.

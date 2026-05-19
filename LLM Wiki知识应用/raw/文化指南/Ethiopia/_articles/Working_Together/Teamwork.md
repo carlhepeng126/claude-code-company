@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Ethiopians often work within two parallel teamwork models. The first is formal, organisational, and sometimes fragile. The second is informal, relational, and deeply practiced. Most Ethiopians have spent years participating in iddir, mutual aid societies that support members during funerals and crises, and iqub, rotating savings groups where contributions are made regularly and repaid when your turn comes. Both systems depend on reliability. If you fail to show up when someone else faces hardship, the moral cost is high. This logic shapes how people understand teamwork at work. Framing collaboration as shared responsibility rather than individual targets resonates more strongly than purely task-based language.
+
+Within formal teams, certain colleagues become shimagille, informal elders whose calm presence and seniority give them quiet authority. People confide in them, ask them to carry messages to management, and expect them to mediate when tensions rise. They may not hold the most senior title, but their opinion often settles decisions or softens conflict. Recognising and working through these figures makes change easier to introduce and helps managers understand how influence actually moves through a group.
+
+Language and ethnicity shape team cohesion in ways that are rarely explicit but always present. In a single organisation, you may notice Amharic speakers, Afan Oromo speakers, and Tigrinya speakers clustering naturally in conversation, at lunch, or during breaks. In stable times, these groupings are simply social. In tense times, they can become fault lines. Rotating who leads coffee breaks, choosing music, or facilitating team discussions helps prevent any group from feeling marginalised and builds connection across linguistic boundaries.

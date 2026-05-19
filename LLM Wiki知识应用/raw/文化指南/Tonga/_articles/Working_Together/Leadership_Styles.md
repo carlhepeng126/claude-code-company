@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Tonga is shaped by the central place of rank and kinship in everyday life. Chiefs and nobles hold both customary and constitutional authority, and this ancestral hierarchy runs deep through schools, churches, and workplaces. Even in modern organizations, leaders are expected to embody dignity, carry family and community responsibility, and uphold the values of respect and reciprocity. Younger or more junior staff typically defer to senior figures, and open disagreement with a leader is rare. This reflects not submissiveness but a cultural logic in which maintaining harmony and honoring relationships take precedence over individual challenge.
+
+Leaders are expected to consult and listen, particularly to elders and those with traditional standing, but the final decision rests with the person in authority. Consultation serves to maintain connection and show respect, and it allows others to feel heard without necessarily shifting the outcome. A manager from a culture where consultation leads directly to shared decision-making may interpret this as symbolic, while a Tongan colleague may view rapid, unilateral decisions as dismissive and damaging to group cohesion.
+
+Decisions often take longer than expected because leaders must consider family ties, community obligations, and the impact on relationships. Skipping this process to move faster can weaken trust and reduce cooperation. Leaders who take time to consult, involve the right people, and acknowledge social context are more likely to secure genuine buy-in and long-term commitment from their teams.

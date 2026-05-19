@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business meals in Turkmenistan are infrequent in professional life, but when they do happen, they reflect the deeper relational logic that underpins all collaboration. Trust is built slowly and observed through behaviour, and a shared meal offers a rare opportunity to assess character outside the formality of an office. These gatherings are typically hosted by senior figures or those with significant influence, and the invitation itself suggests that the relationship has moved beyond early courtesies.
+
+The setting is usually a restaurant in Ashgabat or another major city, often chosen by the host. Conversation remains wide-ranging and polite, touching on family, travel, or general topics, but business itself is rarely discussed in detail. The meal is a chance to observe how someone conducts themselves in a less structured environment, whether they show respect, listen well, and respond appropriately to senior figures present. A colleague from a culture where deals are advanced over dinner may find the absence of work talk puzzling, while a Turkmen counterpart might view direct business discussion at the table as transactional or premature.
+
+Alcohol is generally not part of the occasion. Turkmenistan is a predominantly Muslim country, and abstaining is the norm in most professional contexts. If alcohol does appear, it will be introduced by the host, and even then, consumption is likely to be minimal. Offering or requesting alcohol without clear indication can cause discomfort. Reciprocating the invitation on a future visit, or hosting a meal in return if the opportunity arises, is a gesture of respect that will be remembered.

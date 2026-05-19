@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Australian negotiators speak frankly about price, scope, and risk, but the directness stops well short of aggression. Overt bullying or theatrical posturing will backfire badly. Australians like to see themselves as reasonable and practical, and they expect the same from the other side. A deal is often evaluated through a "fair go" lens: is each party getting something reasonable, or is someone "taking the piss"? Pragmatic, win-win packages land better than highly one-sided wins, and proposals that can be explained as fair to ordinary people, not just shareholders, tend to gain traction.
+
+This preference for openness means gamesmanship is largely unwelcome. Australians appreciate knowing your constraints and non-negotiables early, and they will usually share theirs in return. High-pressure sales pitches or hype-fueled arguments will provoke skepticism, and possibly caustic comments. Derisory remarks about competitors can be viewed with suspicion, reflecting a cultural bias toward the underdog. There is little tradition of extended bartering, so offers are expected to include only a small margin for compromise. If you hold back your best terms expecting rounds of back-and-forth, you may frustrate a counterpart who assumes you have already put a genuine position on the table.
+
+Strong consumer and safety regulation means parties are acutely aware of legal bottom lines. Trying to push around those boundaries, or implying you want to skirt them, will destroy trust quickly. In unionized or community-sensitive contexts such as mining, infrastructure, or projects on Indigenous land, negotiations must also consider social license and local impacts. Show how the deal supports the interests of affected communities, and be ready to engage them directly rather than hiding behind your partner. What looks like a purely commercial negotiation elsewhere may require a broader stakeholder conversation in Australia.

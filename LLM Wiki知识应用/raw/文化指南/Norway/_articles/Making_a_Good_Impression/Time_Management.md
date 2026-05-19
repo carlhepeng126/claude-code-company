@@ -1,0 +1,11 @@
+# Time Management
+
+## Making a Good Impression
+
+Punctuality in Norway reflects something deeper than efficiency. Being on time is bound up with personal autonomy and equality: it shows you don't assume the right to someone else's attention. Arriving late or shifting plans without notice can feel like a claim on someone's freedom, because in a culture that prizes individual boundaries alongside social fairness, respecting time means respecting the person. When meetings start promptly and end on schedule, it's less about rigid process and more about preserving balance for everyone involved.
+
+Predictability strengthens trust. High-trust societies like Norway often rely on stable, reliable behavior to keep interactions low-friction and fair. If you say a task will be finished by Thursday, finishing it by Thursday reinforces the working relationship. Changing timelines frequently or leaving commitments unclear can undermine confidence quickly, because trust here depends partly on knowing that others will do what they said they would. This also shows up in how things are planned: stable commitments allow people to organize their own lives around shared expectations without needing constant adjustment.
+
+Norway's rhythm isn't constant across the year. Seasonal patterns, summer holidays, and the cultural value placed on time outdoors shape when work happens and at what intensity. Long summer absences and the winter months affect pace and availability in ways that aren't merely logistical but reflect a broader worldview about restoration and balance. A colleague from a culture where responsiveness is expected year-round may find summer planning difficult, while Norwegians may see continuous availability as disregarding the boundary between work and personal life.
+
+The work style tends toward calm competence rather than visible urgency. Efficiency is valued, but creating pressure through emotional escalation or stress performance can feel uncomfortable and counterproductive. Getting things done steadily, without drama, is often seen as more professional than signaling how busy or stressed you are.

@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Burundi's workplace culture is shaped by deep respect for authority and seniority, and this shows clearly in how people address one another. Formal titles are the norm in professional settings. "Monsieur" and "Madame" are used with family names, and professional or academic titles such as "Professeur" or "Docteur" are spoken and expected where they apply. First names are reserved for close relationships or after an explicit invitation to use them, which may take time. Moving to first-name terms before that invitation has been extended can be read as presumptuous or as disregard for hierarchy, particularly when addressing someone older or more senior.
+
+French is the language of formal business and government, and this formality extends to written communication. Emails and letters open with titles and follow structured conventions. Even in digital exchanges, maintaining a formal tone reflects professionalism and respect. Colleagues from cultures where informality builds rapport quickly may find this level of formality distant, while someone from Burundi working in a first-name culture may feel the absence of titles undermines recognition of role or experience.
+
+Greetings also follow a structured pattern. Handshakes are standard in professional settings and expected at the start of any meeting or introduction. The greeting itself is deliberate and respectful rather than rushed. In contexts where people know each other, a handshake may be accompanied by a slight touch to the forearm or shoulder, signaling warmth without abandoning formality. Taking time to greet properly is seen as a sign of respect, and skipping this step to move straight into business can come across as abrupt or dismissive.

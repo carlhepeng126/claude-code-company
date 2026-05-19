@@ -1,0 +1,11 @@
+# Teamwork
+
+## Working Together
+
+Most Danes grow up attending *foreninger* (clubs or associations) for sports, scouting, or hobbies, where members sit in a circle, agree on an agenda, and vote. That childhood pattern quietly shapes how professional teams operate. Projects often run like small associations, with shared minutes, rotating roles, and an expectation that everyone will be heard, even when someone holds formal responsibility. A colleague from a culture where the team leader sets direction and delegates without much consultation may find Danish meetings slow or repetitive, while a Danish team member working in that environment may feel steamrolled or unsure why input was never invited. The reflex runs deep on both sides.
+
+Teams also protect what Danes call *arbejdsro*, or work peace. You don't tap a colleague on the shoulder mid-task or pull them into spontaneous conversations. Instead, you book a short meeting or send a message. Open-plan offices are common, but people expect a quiet atmosphere. Talking loudly on a phone call in the middle of the room is a genuine breach of etiquette. If your working style involves quick check-ins or thinking out loud with others, batch your questions and use short, focused meetings instead of constant interruptions.
+
+Because Denmark's labour market is built on *flexicurity*, a system that makes hiring and firing easier but offers a strong social safety net, changing jobs is normal. Teams often include people who have moved between municipalities, ministries, or companies, so knowledge sharing and documentation are standard practice. No one assumes they will sit in the same role for 25 years. Plan handovers, share ownership of decisions, and document what you agree so the team can survive typical Danish mobility.
+
+Humor plays a practical role in keeping hierarchy flat. It tends to be self-deprecating, slightly sarcastic, and very equalizing. The manager's bike accident or DIY disaster is as fair game as anyone else's. Joining in with light, inclusive humor, especially at your own expense, works with the culture rather than against it.

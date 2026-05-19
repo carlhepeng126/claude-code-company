@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Georgian business relationships begin with visible warmth. Greetings tend to be physical and expressive, with handshakes that linger, repeated welcomes, and often an arm around the shoulder once familiarity is established. This reflects a culture where personal connection precedes professional trust. Meetings may open with extended small talk about family, mutual friends, or recent events. What might feel like delay is actually the groundwork for engagement. If you move straight to business without this, a Georgian colleague may read you as transactional or cold. Showing interest in the person before the agenda is expected, especially in early meetings.
+
+Hospitality shapes professional conduct in visible ways. Georgian colleagues may offer food or drink repeatedly during meetings, and declining too quickly can feel abrupt. A colleague from a culture where meetings follow tight agendas might find this pace inefficient, while Georgians may interpret hurried behavior as disregard for relationship. A second or third offer is common, and accepting graciously is a form of reciprocal respect. If time is limited, acknowledge the gesture warmly before explaining constraints.
+
+Between men and women, formality varies by generation and setting. Older men may wait for women to initiate handshakes, while younger professionals in Tbilisi often follow more egalitarian norms. Cross-gender physical warmth is generally reserved, especially outside urban centers. Gift-giving is appreciated but rarely expected in early business contexts. If a relationship deepens, a small, thoughtful gift from your home country can be well received, though anything ostentatious may feel awkward.

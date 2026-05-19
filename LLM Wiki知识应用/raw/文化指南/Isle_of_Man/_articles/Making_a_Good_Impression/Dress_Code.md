@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+The Isle of Man workplace leans toward smart, unshowy presentation. In business settings, especially finance, legal, and government, men typically wear suits or jacket and trousers, and women choose tailored separates, business dresses, or blouses with skirts or trousers. The approach reflects the island's professional culture, which values competence over flash and treats appearance as a form of quiet courtesy rather than personal branding. Dressing well shows you take the interaction seriously, but overdoing it can come across as misreading the room.
+
+Formality varies by sector and setting. In traditional industries and older firms, full suits remain common, particularly for client-facing roles or formal meetings. In newer sectors like tech, finance back-office functions, or creative fields, business casual is increasingly accepted, though still deliberate rather than relaxed. Jeans and trainers might be fine on a Friday or in a startup office, but they would feel out of place in a law firm or accounting practice. Even where the dress code loosens, the expectation is that you've put thought into how you look.
+
+The island's small size means you're more likely to run into colleagues or clients outside work hours, and people often dress with that in mind. Showing up to a work event or dinner in something scruffy can affect how you're seen professionally. Evening occasions, whether a formal dinner or a civic function, call for smarter dress. Matching the effort your host or colleagues put in will help you fit in naturally, and underdressing can read as indifference rather than informality.

@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Collaboration on the Isle of Man unfolds through familiarity and informality. In a small jurisdiction where many people know each other through family, school, or social circles, teamwork often relies on existing relationships rather than formal structures. Colleagues are more likely to pick up the phone or walk over for a conversation than send a detailed email. This reflects an island culture where trust is built relationally and problems are solved through direct, personal contact. For professionals used to more formal coordination processes, this can feel undefined. For those from the Isle of Man, structured protocols may seem unnecessarily distant.
+
+Teams tend to be flexible in how work gets done, with roles shaped by who is available and who has the right connections. Seniority may be acknowledged, but it rarely introduces rigid hierarchy. People expect to contribute and to be involved, though input is often expressed conversationally rather than through structured channels. Decisions emerge through discussion rather than directive, and colleagues appreciate being kept in the loop even if their agreement is not formally required.
+
+Face-to-face interaction remains important, even in small teams. Ideas are tested and refined through conversation, and disagreements are more often smoothed over than escalated. Maintaining good working relationships is seen as part of the job, especially in sectors where people are likely to work together again. This means feedback is usually given quietly, and public criticism is rare. International team members introducing more direct feedback styles should expect this to be noticed, and may be seen as overlooking the relational foundation that keeps collaboration steady over time.

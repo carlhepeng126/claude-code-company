@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Austrian meetings are formal, structured, and built around a clear agenda prepared in advance. The agenda is followed rigorously and rarely deviated from, reflecting a broader cultural preference for planning and predictability. Each meeting has a defined purpose and endpoint. Coming without an agenda or attempting to introduce unplanned topics mid-discussion is read as poor preparation and lack of respect for others' time. If you need to raise something not already listed, flag it beforehand rather than surprising participants on the day.
+
+Hierarchy shapes the flow of conversation. The highest-ranking person typically enters first and sets the tone. Junior colleagues do not speak before senior ones unless invited to, and decisions rest at the top of the structure. Knowing the seniority of your counterpart helps you understand whether you are hearing a decision or a recommendation that will be taken upward. Small talk before the meeting is brief and functional. Austrians are not unfriendly, but the meeting itself is for business. Relationship-building happens separately, in the right context, not as a substitute for substance during the discussion.
+
+Everything significant is written down. Verbal agreements are considered provisional until confirmed in writing. Follow-up emails or letters summarizing what was agreed, outlining next steps, and assigning responsibilities are standard practice and expected. A colleague from a culture where verbal commitments carry immediate weight may read this as distrust or bureaucracy, while an Austrian professional may view reliance on spoken assurances alone as vague or unbinding. Formalizing agreements in writing removes ambiguity and creates a shared record both parties can refer back to.

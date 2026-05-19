@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Respect is social currency in Jamaica, and how you address someone signals whether you understand that. Particularly across age and seniority lines, addressing someone incorrectly or too casually can affect your credibility fast. Reputations travel in tight-knit professional and community circles, so getting this right early on makes a practical difference.
+
+In formal or first-time professional settings, use honorific titles with surnames: Mr., Ms., or Dr. followed by the last name. Wait to be invited before switching to first names. What might feel overly formal to someone used to quicker informality protects the relationship while trust is being built. Senior managers may eventually be called "boss" or "bossman" by junior colleagues, a colloquial sign of respect that acknowledges hierarchy without stiffness. But this emerges from the relationship, not at the start.
+
+Language register also does work here. Standard English often signals formality and professionalism, especially in writing or corporate settings. Patwa can signal warmth and shared identity, but only when it's authentic and well-timed. If a colleague moves toward Patwa in conversation, you can mirror lightly, but performing it or forcing it reads as inauthentic and can backfire. A Jamaican colleague meeting someone who rushes into casual speech or mimics dialect without invitation may see it as disrespectful or tone-deaf. In the other direction, someone from a culture where first names are the norm from day one may misread Jamaica's formality as distant, when it's actually protective.

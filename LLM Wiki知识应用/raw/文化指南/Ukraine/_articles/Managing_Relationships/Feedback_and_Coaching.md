@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Ukraine works best when it feels sincere and respects the person's dignity. Straightforwardness is culturally familiar, but tone makes the difference between advice that builds trust and criticism that damages it. Ukrainian colleagues appreciate honesty, but only when it comes with genuine care. A manager who delivers feedback bluntly without acknowledging effort or framing it as shared growth risks coming across as cold or disrespectful. The cultural expectation is that feedback reflects a relationship, not just a task correction.
+
+Privacy matters deeply. Public criticism, even if mild, can feel humiliating and erode trust quickly. Feedback should be given one-to-one, in a setting where the person feels safe to respond. Framing development around contribution and growth resonates more than itemized faults. Offering examples helps ground the conversation, and listening to the other person's perspective strengthens the exchange. A colleague from a culture where feedback is delivered through structured systems may find this approach informal, while a Ukrainian colleague might find formulaic performance reviews impersonal or disconnected from the relationship.
+
+Younger professionals, especially those working in international firms or tech sectors, may be more comfortable with formal feedback processes and expect clearer developmental structure. Even so, warmth and encouragement still matter. Supportive advice, guidance through real examples, and emotional sincerity remain culturally resonant across generations. Combining directness with empathy helps feedback land constructively without feeling harsh.

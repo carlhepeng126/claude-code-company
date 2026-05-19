@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in the Philippines is given with close attention to dignity and relationship. The cultural concept of *hiya* (a deep sensitivity to shame or loss of face) means that public correction can feel far more damaging than the content of the feedback might suggest. People are often highly receptive to learning, but the setting and tone matter. Give feedback privately, calmly, and with specifics that focus on behavior or outcome rather than character. A manager who corrects a colleague in front of others risks not only embarrassment but also a fracture in trust that may be difficult to repair.
+
+The idea of *kapwa* (shared personhood) means that feedback is experienced as more than performance input. When someone receives criticism, they may also be asking whether they still belong, whether the relationship remains intact. After delivering a difficult point, confirm the person's value and the shared intent behind the conversation. A brief follow-up or warm reset can reassure that the feedback was about the task, not about exclusion. A colleague from a culture where directness signals efficiency may interpret this need for reassurance as oversensitivity. From the Filipino perspective, feedback without relational repair can feel incomplete or careless.
+
+Coaching works best when it includes accompaniment: modeling the behavior, practicing together, and following up. This reflects both the formal instruction traditions inherited from American-era schooling and the more personal, community-based ways of learning that remain central. Structured guidance is valued, but it should feel humane, not clinical. Sarcasm or teasing around mistakes, even if intended as light, should be avoided unless the relationship is secure and the context unmistakably safe.

@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Tajikistan, feedback is almost always delivered indirectly and in private. Direct criticism risks causing shame, which can damage the relationship and the individual's standing within the group. A manager might say "this task could benefit from a bit more attention to detail" rather than naming an error outright, or frame the point as a shared reflection rather than individual fault. The goal is to guide improvement while protecting dignity. For colleagues from cultures where feedback is expected to be explicit and task-focused, this indirectness can feel vague or unclear. From a Tajik perspective, directness in such moments can feel harsh and unnecessarily personal.
+
+Positive feedback is generally more direct, though it tends to be shared quietly or within the team rather than announced publicly. Public praise can create discomfort, particularly if it singles out one person in a way that disrupts group harmony or draws envy. Acknowledging effort in a low-key, sincere way helps reinforce good work without exposing anyone to unwanted attention.
+
+Coaching conversations often extend beyond the workplace. A manager may share concerns with a trusted senior colleague or family member rather than addressing the individual directly, especially if the issue involves behavior or attitude. In a culture where reputation and family standing are closely tied, feedback may be delivered through a respected intermediary who can speak more freely. Understanding this wider circle helps explain why change sometimes takes longer than expected, and why a single conversation rarely closes the loop.

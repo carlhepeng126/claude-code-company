@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+In Colombia, the manager's role draws from a Catholic tradition where authority has historically been modelled on the parish priest: someone who not only directs but also protects and guides. This shapes how delegation works. Instructions are expected to be clear and specific. Vague delegation will not prompt creative interpretation. It will more likely prompt careful inaction, as employees wait for clarity before committing to a course of action they might be held accountable for.
+
+The fear of visible failure runs deep. Mistakes can bring shame, both to the individual and to the group around them. As a result, many employees will not take initiative on tasks they have not explicitly been asked to do. If something is unclear, they are more likely to turn quietly to a colleague than to ask the manager directly. Returning to the boss with questions can feel like admitting incompetence. For managers working across cultures, this means that silence after delegation does not confirm understanding. Follow up consistently, framed as ongoing connection rather than checking for mistakes, and create space in conversation for questions to surface without loss of face.
+
+Personalismo, the primacy of the personal connection, underpins everything. Colombians are loyal to people, not companies. A manager who knows their team's families, remembers milestones, and shows genuine care earns a depth of commitment that cannot be replicated through process alone. The relationship is not a precondition to the work. It is the foundation on which the work rests. Without it, delegation becomes transactional and performance becomes careful rather than committed.

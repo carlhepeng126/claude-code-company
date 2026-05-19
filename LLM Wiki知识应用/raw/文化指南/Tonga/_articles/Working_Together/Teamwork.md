@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teams in Tonga are shaped by values of respect, kinship obligation, and a deeply hierarchical social order. The concept of *faka'apa'apa* (respect shown through deference and care for others' standing) governs how people relate at work. Collaboration follows existing social structures rather than assigned roles alone. Age, chiefly lineage, church standing, and family ties all influence who defers to whom and whose voice is heard first. A younger colleague with strong formal qualifications may still hold back in meetings if an older or higher-ranking person is present, even if that person's expertise lies elsewhere. This deference reflects cultural logic that values social harmony and collective dignity over individual efficiency.
+
+Decision-making within teams often involves quiet consultation rather than open debate. Ideas are floated informally, tested with key people before any formal discussion takes place. A colleague from a culture where decisions are made through direct challenge and rapid iteration may read this as avoidance or delay. From a Tongan perspective, that faster style can seem disrespectful, as though relationships and proper process count for less than speed. Taking time to ensure everyone's dignity remains intact is how trust is built and maintained.
+
+Team-building in Tonga typically happens through shared meals, church events, or family gatherings rather than structured workplace activities. These occasions reinforce the relational fabric that underpins collaboration. When working with Tongan colleagues, recognize that strengthening team cohesion may happen outside office hours and that invitations to these events are an extension of professional trust, not separate from it.

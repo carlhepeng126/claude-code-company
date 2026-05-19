@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Tokelau moves to the rhythm of community life, not the demands of the clock. As a small atoll nation, deeply influenced by communal decision-making and the seasonal rhythms of fishing and subsistence living, schedules bend around collective needs rather than individual deadlines. While younger Tokelauans and those exposed to New Zealand workplace norms may be more attuned to Western-style punctuality, the broader cultural default remains relational. A meeting time is rarely rigid. It depends on whether elders have gathered, whether a family matter has emerged, or whether consensus still needs forming. This flexibility reflects a worldview where relationships and shared welfare outweigh efficiency.
+
+For someone from a culture where meetings begin on time and schedules are fixed, this can feel disorienting. A delayed start might suggest disorganization or lack of respect. From a Tokelauan perspective, rushing a gathering before people are present and settled would itself be disrespectful. The reverse also holds. A Tokelauan working with colleagues who insist on strict adherence to timelines may wonder why relationships are subordinated to deadlines, and whether trust has been established before speed is expected.
+
+In practice, this means confirming the purpose and participants of a meeting matters more than confirming the start time. When working across atolls or with diaspora communities, expect timing to shift if an elder is delayed or if a community event takes precedence. Flexibility here is not casual, it reflects the understanding that collective harmony enables sustained collaboration.

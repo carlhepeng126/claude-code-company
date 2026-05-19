@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Public criticism from a manager to a junior colleague can feel like a public stripping of respect in Indonesia, especially if language such as "memalukan" (shameful) is used. The result is often withdrawal, silent nodding, or a quiet search for another role. Hierarchy reinforces this dynamic. Juniors may say "iya" (yes) or remain silent even when confused or overwhelmed, to avoid appearing incapable in front of someone senior. You may only discover the misunderstanding when a deadline slips or a task is incomplete. Address performance issues in private and focus on behaviors and solutions rather than sweeping judgments about character. After giving instructions, ask people to restate the plan in their own words or walk through a scenario together. This uncovers hidden confusion without assigning blame.
+
+Many Indonesians respond more readily to coaching that uses stories and concrete examples rather than abstract feedback frameworks. A manager might say, "Waktu krisis 98, tim kami..." (During the '98 crisis, our team...) or "Di desa X dulu kami..." (Back in village X, we...) to illustrate a point or nudge reflection. This approach, known as coaching through cerita (stories), allows the listener to draw their own conclusion while preserving dignity. The specificity of the story anchors the lesson in lived reality rather than theory.
+
+Use situational stories drawn from Indonesian contexts when coaching. They feel respectful and show that you recognize local realities, not just imported models. This approach works across sectors and levels, though younger professionals in Jakarta or other urban centers may be more comfortable with direct feedback than their colleagues in smaller towns or rural areas.

@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+In Cabo Verde, motivation is deeply tied to morabeza, the spirit of warmth, welcome, and mutual care that runs through the islands. People give their best when they feel genuinely valued, when relationships are strong, and when the workplace reflects the kind of human connection that defines daily life. A manager who takes time to acknowledge individual contributions, who knows something about a team member's family, or who makes space for informal conversation is creating the conditions for real engagement. Recognition works best when it is personal and delivered face to face, ideally in front of peers. A quiet email rarely has the same effect.
+
+Financial incentives matter, but they rarely motivate on their own. What keeps people committed is the sense that their work is appreciated and that their manager sees them as more than a function. In a culture where personal ties shape most professional interactions, trust and loyalty grow slowly and are sustained through consistent, human gestures. A manager who remembers a birthday, who shows flexibility when a family matter arises, or who invites someone to represent the team at a meeting is building the kind of relationship that encourages people to go the extra mile.
+
+Strict deadlines and rigid structures can feel disconnected from how time flows in Cabo Verde. Life here moves at a relational pace, where the quality of an interaction often takes priority over the schedule. Managers who adjust timelines when circumstances shift, or who frame urgency in terms of collective responsibility rather than individual pressure, will see stronger results. Pushing for speed without explaining why it matters, or without acknowledging the competing demands people face, risks disengagement rather than drive.

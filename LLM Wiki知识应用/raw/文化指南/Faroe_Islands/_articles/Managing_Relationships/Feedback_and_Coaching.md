@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in the Faroe Islands tends to be direct and grounded in practical observation. Faroese colleagues value honesty, and this shows up in coaching conversations that focus on what can be improved without excessive framing or buildup. A manager will usually name an issue clearly and suggest what should happen differently, trusting the person to respond without needing the message softened. This directness reflects a workplace culture shaped by small communities where people have known each other for years and where prolonged indirectness can feel less respectful than frankness.
+
+That said, delivery still matters. Feedback is usually given in private, and tone stays calm and matter-of-fact rather than emotional or personal. Public critique, especially in front of peers, risks damaging the relationship and undermining trust in a way that's hard to repair in such a small professional community. A colleague from a culture where public recognition of mistakes is used to drive accountability may find this reserved, while a Faroese professional might read public feedback as unnecessarily harsh or careless of reputation.
+
+Coaching conversations tend to be informal and often take place outside formal review settings. A brief word after a meeting or a quiet exchange during a shared task can be just as effective as a scheduled discussion. The aim is to address the issue without turning it into something heavier than it needs to be. If you're offering feedback as an outsider, keep it specific, keep it private, and expect the person to take it on board without needing much follow-up.

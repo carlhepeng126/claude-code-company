@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional settings in Bermuda follow a more formal standard than many visitors expect, rooted in the island's British colonial heritage and its position as a global financial center. Business attire reflects seriousness about the relationship and the work at hand. Men typically wear jackets and ties, often paired with Bermuda shorts during warmer months, a combination that bridges formality with local climate. Women dress in tailored skirts, dresses, or trousers with blouses or blazers. The look is polished and conservative, particularly in banking, insurance, law, and other traditional sectors where international clients and investors expect visible professionalism.
+
+The acceptance of Bermuda shorts in formal business contexts is distinctive but specific. These are knee-length tailored shorts worn with a blazer, tie, knee socks, and dress shoes. They appear in boardrooms and client meetings without raising concern, but the rest of the outfit remains formal. Casual shorts, polo shirts worn untucked, or sandals would stand out as inappropriate. A colleague from a setting where business casual has become the norm might read the formality as rigid, while Bermudians may view a relaxed approach to dress as lacking commitment or respect for the occasion.
+
+Dress codes relax slightly in smaller businesses, creative industries, or tech startups, where business casual is more common. Even so, the standard leans toward neat and intentional rather than relaxed. Showing up well put together signals that you take the meeting seriously, and that matters in a small community where professional reputation travels quickly.

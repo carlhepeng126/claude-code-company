@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Ålanders dress in a low-key, functional way that reflects the island culture's broader preference for understatement and practicality. In most professional settings, the standard is smart casual: clean, well-maintained clothing that looks put together without drawing attention. Men might wear chinos or neat jeans with a collared shirt or jumper; women often choose simple trousers, skirts, or dresses in neutral tones. Formal business suits are rare outside of banking, law, or high-level municipal meetings. The expectation is that you've made an effort, but not that you've dressed to impress. Turning up in overly formal attire can feel out of step, as if you've misjudged the setting or are trying to signal status in a culture that downplays it.
+
+This informality is rooted in Åland's small size and rural heritage. People tend to know each other across professional and personal contexts, and the culture values continuity and equality over hierarchy. Dressing too formally can create distance, while dressing neatly but modestly signals that you understand the local rhythm. That said, carelessness will be noticed. Clothes should be clean, ironed, and appropriate to the weather. Ålanders spend a lot of time outdoors, and practical, weather-appropriate clothing, like good shoes and layered outerwear, is respected as a sign of common sense.
+
+Variation exists by sector and generation. Younger professionals in tech or creative fields may dress more casually, while older colleagues in traditional industries or public administration may lean slightly more formal. Even then, the range is narrow. If in doubt, aim for tidy, understated, and comfortable.

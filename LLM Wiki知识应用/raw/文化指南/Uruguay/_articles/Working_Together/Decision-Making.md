@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Uruguay often move through a double filter: they need to make operational sense, but they also need to feel legitimate. This means demonstrating a clear rationale, consulting people who will be affected, and building in safeguards that show you have thought through what could go wrong. The 2002 economic crisis remains a living reference point, and the memory of institutional collapse has shaped a preference for predictability and careful assessment over bold leaps. A decision that looks fast but untested can read as reckless rather than confident.
+
+How power is used during decision-making also matters. Uruguay's experience of dictatorship left a lasting sensitivity to coercion, and heavy-handed leadership styles can feel symbolically uncomfortable even in commercial contexts. Final authority typically rests with senior figures, but the way that authority is exercised is quietly observed. Inviting input, acknowledging concerns, and closing decisions calmly and transparently helps build buy-in. For colleagues from cultures where speed and individual conviction drive decisions, this consultative rhythm can feel slow. From a Uruguayan perspective, a decision made without visible process or collective consideration can seem hasty or disconnected from the people who will implement it.
+
+Regional variation also shapes decision comfort. Montevideo's institutional environment leans toward more formal process, while colleagues from interior regions or border areas may work with greater pragmatic informality. In all cases, legitimacy is completed through follow-through. Document responsibilities and timelines clearly after deciding, then deliver steadily. A well-explained decision that is executed as promised reinforces trust and demonstrates that process was substance, not delay.

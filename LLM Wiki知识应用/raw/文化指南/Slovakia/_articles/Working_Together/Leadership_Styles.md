@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Slovakia's civic memory of peaceful transition—the Velvet Revolution and the 1993 separation—continues to shape what people expect from leaders today. Authority works best when it is firm but understated, when decisions are explained calmly, and when control is exercised without drama. Leaders who perform authority too visibly can seem disconnected from the cultural reference point of change achieved through persistence, not force. The Slovak National Uprising remains a powerful symbol of moral positioning under pressure, and that memory lends weight to leaders who are seen as steady and principled. Competence alone is rarely enough. People watch for integrity—whether a leader keeps promises, treats people fairly, and acts consistently when the situation becomes difficult.
+
+Credibility in Slovakia often comes through calm competence rather than charisma. This can read as passive to a colleague from a culture where leaders are expected to project confidence vocally or drive urgency through presence. From the Slovak side, that same vocal style can feel performative or untrustworthy. When you lead, explain your reasoning clearly, avoid overpromising, and let your consistency over time do the persuading. Grand gestures matter less than showing up reliably.
+
+Leadership expectations can vary noticeably by region and language. Bratislava's position as a border capital means international management styles are more familiar there. In other parts of the country, and especially in areas with Hungarian-speaking communities, people may read leadership decisions through a sharper lens of respect for local identity. Small gestures—choosing to acknowledge language difference, giving equal attention across regions—can make inclusion visible without requiring structural change.

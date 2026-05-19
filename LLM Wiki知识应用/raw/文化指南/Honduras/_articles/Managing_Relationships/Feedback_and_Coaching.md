@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Honduras, feedback is delivered with care for personal dignity and relational harmony. Directness varies by setting and familiarity, but across most professional environments, preserving respect in how criticism is given and received remains central. Managers often soften negative feedback through indirect language or by framing concerns as shared challenges rather than individual failures. A supervisor might say, "We need to find a way to improve this process," rather than pointing to a specific person's mistake. This approach protects the individual's standing within the team while still addressing the issue.
+
+Positive feedback is often given more openly, especially within the group, where recognizing effort helps strengthen team cohesion. Public praise can be warmly received, though singling someone out too dramatically may cause discomfort in more traditional or hierarchical workplaces. Younger professionals in urban centers like Tegucigalpa or San Pedro Sula may be more comfortable with direct, structured performance conversations, particularly in multinational companies, but even then, tone and relationship quality influence how the feedback lands.
+
+Negative feedback should always be delivered in private. A manager from a culture where critique is expected to be clear and immediate may find that delivering it too bluntly damages trust and makes future collaboration harder. From the Honduran side, a lack of personal warmth or relational context around criticism can feel dismissive or disrespectful, even when the content is fair. Taking time to acknowledge effort before raising concerns, and checking in afterward, helps ensure the feedback is heard as support rather than rejection.

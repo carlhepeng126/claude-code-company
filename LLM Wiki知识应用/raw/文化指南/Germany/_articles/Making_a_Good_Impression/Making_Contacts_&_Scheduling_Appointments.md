@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Germany's long history of fragmented principalities, guilds, and later bureaucratic states trained people to work through formal roles and clear jurisdictions rather than personal networks. That legacy lives on in how business contacts are made today. You approach the right office or function first, not a friend of a friend. Asking "who is the right person to speak to?" is not a delay; it reflects a system built on defined responsibilities. The person you reach out to will take your request more seriously if it's clear you understand where you fit in their structure and why you're coming to them specifically.
+
+Germans are more comfortable committing to something once it is in the calendar, resourced, and thought through. A habit of careful planning shaped by post-war reconstruction and a risk-averse Mittelstand culture means that vague "let's touch base soon" messages tend to drift. Propose specific dates and times, and follow up with a written calendar invite. Attach a short agenda or purpose line. It reassures your counterpart that the time will be well used and shows you've done the thinking in advance. From Luther's Bible to today's contracts, German culture has treated the written word as the anchor of reality. A meeting becomes real when there is an email, an Outlook invite, or an agenda to refer back to.
+
+Last-minute cancellations hit harder here than in cultures where plans are held more loosely. Calendars and logistics are tightly organized, often weeks ahead. If you must cancel, explain why and offer concrete alternative dates immediately. In eastern regions, where navigating state offices and scarce resources once required pragmatism and patience, people may still double-check arrangements and appreciate clear, tangible confirmations, especially when working with someone new.

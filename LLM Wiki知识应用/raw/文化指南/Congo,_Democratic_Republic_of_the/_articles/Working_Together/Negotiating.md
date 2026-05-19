@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiating in the Democratic Republic of Congo often begins well before terms are discussed. The early conversations are used to assess whether the relationship has the potential to be trusted and sustained. A counterpart will want to understand who you are, what your intentions are, and whether you can be counted on over time. Arriving with a complete proposal and expecting a quick decision can suggest you are only concerned with the transaction, not the partnership. That reading can slow progress or close doors entirely.
+
+The process itself may not move in a straight line. A point that seemed settled may resurface later, or the discussion may circle back to test whether flexibility exists. This revisiting allows people to check that all angles have been considered and that consensus is genuine, not rushed. A colleague from a culture where decisions are made quickly and documented immediately may read this as indecisiveness or lack of preparation. From the Congolese side, a counterpart who presses for closure too early may seem transactional or impatient, someone who has not invested enough in understanding the full picture.
+
+Leaving room for concessions is both expected and strategic. Presenting your final terms at the outset can leave no space for the give-and-take that builds goodwill and demonstrates respect. Bargaining is understood as a way to reach an outcome both sides can support, and it strengthens the relationship in the process. If the pace slows, it may reflect the need to consult a senior figure or check with a broader network before committing. Identifying and building rapport with those who hold real decision-making authority, or who advise those who do, can make the difference between talk and action.

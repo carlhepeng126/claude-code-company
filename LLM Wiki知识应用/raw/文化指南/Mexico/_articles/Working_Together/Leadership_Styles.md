@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Mexican leaders are expected to be both commanding and caring. Authority is respected, but it needs to be exercised with warmth, approachability, and a visible commitment to the wellbeing of the team. Charisma matters, as does moral credibility. A leader who acts with fairness, listens to people, and shows personal integrity earns loyalty in a way that positional power alone cannot. This dual expectation reflects a cultural view of leadership as protective and guiding, not simply directive.
+
+Hierarchical structures remain strong across many sectors. Decision-making authority typically sits with senior figures, and subordinates are generally expected to follow instructions and handle problems before escalating them. Position itself brings respect. That said, younger professionals increasingly expect more transparency and consultation. A purely top-down style can feel out of step in teams shaped by this generational shift. Leaders who invite input, even when the final decision remains theirs, build stronger acceptance and trust.
+
+Family and personal networks often shape organizational structure. Around 70 percent of Mexico's GDP comes from family businesses, and close connections are commonly employed. This reflects a relational logic where hiring people whose character and loyalty are already known shortens the time needed to establish trust. A colleague from a culture where hiring decisions prioritize credentials over connections may read this as nepotism, while a Mexican colleague may see a purely transactional hiring process as impersonal and risky. Advancement can come through seniority or relationships as well as merit, though leaders are still expected to prove themselves to reach senior roles.

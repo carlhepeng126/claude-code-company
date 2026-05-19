@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Many Kuwaiti professionals are highly educated, well travelled, and carry a strong sense of status as citizens of a wealthy state. Being corrected by a foreigner can feel patronizing if not delivered with tact. This sensitivity is rooted not in defensiveness, but in the relational weight of how feedback is framed. When an expat manager positions themselves as the expert schooling a Kuwaiti colleague, it can quietly undermine the relationship, especially in contexts where Kuwaitis are expected to be visible owners of initiatives and expats are there to support. Framing feedback as peer-to-peer refinement rather than top-down correction preserves dignity and makes the message easier to hear.
+
+Kuwaitis often couch criticism in systemic language rather than personal terms. Saying "this process needs tightening" is softer than "you are weak at this." The shift from system to person touches on honor, and feedback that feels like a personal indictment will often be met with quiet resistance. A manager from a culture where directness is valued as honesty might read this indirectness as evasion, while a Kuwaiti colleague might read blunt personal critique as needlessly harsh or even disrespectful.
+
+Tough feedback should be given privately, with explicit acknowledgment of the person's experience and contribution. Concrete suggestions work better than vague criticism. Offering Kuwaitis leading roles in presenting or chairing work, with coaching embedded inside that collaboration, allows development to happen without inverting the expected hierarchy or making someone feel like a perpetual trainee.

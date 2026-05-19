@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+First meetings in Hungary can feel surprisingly serious. Colleagues may appear reserved, even slightly grim, and small talk may not flow easily. This seriousness reflects a long cultural memory of surveillance and a general wariness with outsiders until trust is established. Don't mistake the quiet opening for disinterest. Once Hungarians decide you're credible, the tone shifts noticeably. Conversations become warm, informal, and often laced with dark humor. This slow-warming pattern means you should allow early formality to unfold without forcing familiarity. Give space for trust to build, and be ready for a different kind of intensity once it does.
+
+Shared grumbling about politicians, bureaucracy, or "the situation since '89" is common social currency. This isn't pessimism for its own sake but a way of bonding through shared acknowledgment of constraints everyone navigates. If you listen rather than offering solutions or reframing the complaint, you'll learn a lot about how decisions really get made and where informal workarounds matter. Joining in gently, without lecturing or overdoing it, can actually build rapport.
+
+Hungarians can be strikingly direct about flaws in your plan, risks you haven't named, or numbers that don't add up. This directness is a sign of engagement, even respect. They're taking you seriously enough to challenge the substance. A colleague from a culture where critique is softened or deferred to private settings may read this as blunt or even hostile. From the Hungarian side, excessive politeness around weak ideas can feel evasive or insincere, as though the speaker doesn't trust the relationship enough to be honest. Welcoming the critique openly signals you're ready for real collaboration, not just agreement.

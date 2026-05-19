@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Delegation in Czech workplaces sits at the meeting point of two opposing legacies. Czechs describe themselves as individualists and non-conformists, a self-image shaped in reaction to 40 years of Communist rule that demanded public conformity and discouraged initiative. The Velvet Revolution of 1989 was driven by dissidents and intellectuals who had quietly maintained independent thought under surveillance, and this resistance to being told what to do runs deep. Yet the same era also embedded a style of paternalistic management where subordinates executed instructions without question, not because they lacked capacity but because taking the wrong initiative could bring real consequences. Many older Czech professionals still default to waiting for clear instruction before acting, even when they are more than capable of deciding themselves.
+
+The result is a workplace culture that values technical expertise and precision above almost everything else. A manager who is demonstrably knowledgeable, gives clear direction, and treats people fairly will earn real respect. A manager who appears uncertain or less technically competent than the team will struggle to gain traction. Czechs will openly challenge ideas they disagree with, and this directness should be read as engagement and intellectual respect, not resistance. When delegating, be specific. A vague brief will be interpreted narrowly by people trained to do exactly what they were asked and nothing more.
+
+The generational divide is visible and growing. Younger professionals, especially in Prague's expanding startup sector, respond well to autonomy and flatter structures. Older colleagues in more traditional organizations may need explicit permission to move beyond the brief they were given. Both groups, though, expect their manager to know what they're talking about.

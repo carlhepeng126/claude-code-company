@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiating in Comoros unfolds through relationships, not speed. The goal is less about concluding a transaction quickly and more about establishing trust that can anchor future dealings. This reflects the island's cultural emphasis on enduring connection over transactional efficiency. Expect early discussions to focus on who you are and whether the partnership will hold, not just on terms. A counterpart may spend time asking about your background, your reasons for being in Comoros, and your broader intentions. This builds the foundation on which later agreements rest.
+
+The process rarely follows a straight path. Conversations may circle back to points you thought were settled, or shift unexpectedly to new concerns. This allows both sides to test assumptions, check alignment, and ensure nothing has been overlooked. It also reflects a need to consult elders, family members, or others whose views shape the final decision. For someone from a culture where agreements are made quickly and sequentially, this can feel uncertain. From a Comorian perspective, a counterpart who pushes for closure without revisiting key points may seem hasty or uninterested in getting the details right.
+
+Pace itself can be strategic. Slowing down may signal consultation is underway, or it may indicate that your offer has not yet convinced. Leave room to adjust your position as the conversation develops. Bargaining is expected and understood as part of finding fair ground, rooted in longstanding trading traditions across the Indian Ocean. Present your strongest terms too early and you may find little room to move later, which can stall progress rather than accelerate it.

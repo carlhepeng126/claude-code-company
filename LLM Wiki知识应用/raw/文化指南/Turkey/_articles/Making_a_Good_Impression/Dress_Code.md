@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In Turkish business settings, how you present yourself reflects the seriousness you bring to the relationship. A polished, conservative appearance is a safe starting point, especially for first meetings or when working with clients. Men often wear a suit, with a tie still common in more formal environments, while women typically choose smart professional outfits. The effort you put into your appearance shows that you value the partnership, and colleagues will notice if you arrive looking carefully put together.
+
+The context shapes what's expected. In larger cities and international firms, you'll see a wide range of styles, including more modern and fashion-forward looks. In more traditional settings or smaller towns, dress more modestly. For women, hemlines around the knee or below and covered shoulders are a reliable guide until you've seen what's normal. Government offices and established industries lean formal, while younger sectors like tech or creative agencies often work in business casual. Even where the dress code is relaxed, people tend to dress deliberately rather than carelessly. Watch what colleagues wear and adjust once you understand the local norm.
+
+When visiting a mosque, remove your shoes before entering and dress modestly. Shorts are best avoided, and women may need to cover their hair, though scarves are often available at entrances. These small acts of respect matter in cultural and religious settings. Outside work, casual dress is common among younger people, and for upmarket evenings in Istanbul, smart-casual works reliably.

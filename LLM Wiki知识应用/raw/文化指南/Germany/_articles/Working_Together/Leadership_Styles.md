@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+German leaders earn authority through expertise, not charisma. The expectation is to be a subject-matter expert first and a manager second. Authority flows from mastery of complex topics, whether that's engineering, regulation, or process. A manager who cannot grasp the technical or legal realities facing their team will struggle to be taken seriously, no matter what the organigram says. This preference has roots in Germany's industrial history and apprenticeship culture, where depth of knowledge has long been the foundation of professional credibility.
+
+The memory of charismatic disaster has left a deep wariness of leader-as-hero narratives. The admired leader is low-ego, fact-driven, and modest. They stand in front when things go wrong and behind when praise is given. Overt self-promotion or blame-shifting erodes trust quickly. A colleague from a culture where visible confidence and personal branding build leadership presence may read this restraint as uncertainty or weakness. From the German side, that same colleague's style can come across as shallow or self-serving, lacking the substance that earns long-term respect.
+
+Post-war reforms and co-determination laws have produced a hybrid structure: clear hierarchy exists, but legal checks, works councils, and shared responsibility temper top-down control. Effective leaders coordinate and align rather than impose one-size-fits-all decisions from headquarters. Federalism shapes expectations here too. Just as regions guard their autonomy, local plants and business units expect a voice. Leaders who invite robust debate before deciding, and then explain the reasoning behind their choice, gain credibility. People listen for the logic, not just the directive.

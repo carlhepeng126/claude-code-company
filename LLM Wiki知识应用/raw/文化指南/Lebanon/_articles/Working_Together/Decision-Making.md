@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in Lebanon unfolds through layers of consultation and social endorsement, shaped by decades of confessional governance and fragile settlements. The country's political system requires constant balancing between sectarian and regional interests, and this habit has filtered into professional life. Decisions are rarely treated as purely technical choices. They are tested against how they might be interpreted, who might feel excluded, and whether they can survive the relational and communal networks that surround them. A proposal might be sound on paper, but if it lacks the backing of someone with relational credibility, it will struggle to gain traction.
+
+This means buy-in often depends on who can carry the decision socially, not just who approved it formally. Final authority may rest at the top of the hierarchy, but meaningful alignment happens through informal consultation outside the room. Middle and lower-ranking managers typically lack decision-making power, but they may be key channels for reading how a proposal will land across the group. If you present a plan without leaving room for this kind of consultation, you risk bypassing the process that makes decisions feel legitimate. Allow time for people to sound out concerns, adjust framing, and build the social support that turns agreement into action.
+
+Recent economic shocks have added another filter. Proposals are often assessed through a pragmatic lens: will this work under current constraints? Feasibility has become as important as ambition. Grounding your ideas in local realities, acknowledging infrastructure or resource limits, and showing you understand what is actually possible in Lebanon builds credibility quickly and signals that you are not imposing an ideal design from elsewhere.

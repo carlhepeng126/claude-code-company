@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Togo is shaped by deep respect for hierarchy and age, rooted in traditional social structures where elders and chiefs hold authority. In professional settings, this translates into a preference for leaders who are older, experienced, and able to command respect through presence and measured decision-making. Younger managers, even if technically qualified, may find their authority questioned if they have not built relational credibility or demonstrated wisdom over time. When working with senior leaders, expect decisions to rest with the most senior person in the room, and avoid bypassing hierarchy by going directly to junior staff for answers.
+
+Leadership style is typically consultative but not democratic. Leaders gather input and listen carefully, but the final decision rests with them. This consultation serves a relational purpose: it maintains harmony, signals respect, and allows people to be heard without requiring that every view shape the outcome. A colleague from a culture where consultation means shared decision-making may feel their input was ignored. From a Togolese perspective, being asked is itself a form of inclusion, and the leader's role is to weigh contributions and then decide.
+
+This approach reflects values of social cohesion and collective stability. Leaders are expected to act with calm authority and avoid public confrontation or abrupt reversals that could embarrass others. Openly challenging a leader's decision in a group setting risks causing offense and damaging the relationship. If you need to raise concerns, do so privately and respectfully, framing your input as support rather than critique. The leader's responsibility is not only to deliver results but to preserve dignity and trust within the team.

@@ -1,0 +1,11 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Armenia is most effective when delivered privately and framed with care. Public criticism risks causing embarrassment and can damage the trust needed for ongoing collaboration. Even constructive observations are better shared one-to-one, where the conversation can unfold without the added pressure of group visibility. Managers who take time to sit down quietly with a colleague, away from the team, create the conditions for honest exchange. This approach reflects a broader cultural preference for preserving dignity in professional settings, where reputation and interpersonal respect are closely tied.
+
+Positive feedback, by contrast, can be shared more openly, though it should still feel genuine rather than formulaic. Spontaneous recognition in front of peers is generally well received and helps reinforce team morale. The key is sincerity. Praise that feels automatic or overly effusive may be met with skepticism, while a brief, specific acknowledgment of good work resonates more deeply.
+
+Coaching relationships in Armenia often develop through repeated interaction and demonstrated commitment. A manager who offers support consistently over time, rather than limiting feedback to formal review cycles, is more likely to be seen as a genuine mentor. Feedback that arrives only during scheduled performance discussions can feel detached. Colleagues from cultures where annual reviews are the primary feedback mechanism may find this informal continuity less structured than they expect. In return, Armenian professionals working in settings where feedback is infrequent and formalized may wonder whether their contributions are noticed between review periods.
+
+Directness should be moderated with tone. Blunt critique, even when well-intentioned, can land harder than anticipated. Framing feedback in terms of shared goals or team outcomes, rather than individual shortcomings, helps soften the message while still making the point clear.

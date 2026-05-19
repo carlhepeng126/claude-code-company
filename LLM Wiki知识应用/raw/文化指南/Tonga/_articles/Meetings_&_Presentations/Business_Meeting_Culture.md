@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Tonga follow customary social protocols rooted in respect for rank and relationship. Formal business gatherings typically begin with an exchange of greetings and often a brief acknowledgment of family or community connections, even when time is limited. This is more than courtesy. In a society where authority is still tied to chiefly lineages and where personal reputation extends across family networks, knowing who you are speaking with and how you are connected helps establish trust and appropriate levels of deference. Skipping this step can come across as indifferent or disrespectful, particularly when meeting elders or senior figures for the first time.
+
+Participation during the meeting reflects Tonga's strong hierarchical structure. Junior staff or younger colleagues rarely speak unless invited to do so, and disagreement with a senior person is seldom voiced openly. Decisions are usually made by the most senior person present, often after quiet reflection rather than group debate. A colleague from a culture where decisions are made through open discussion may find the room unexpectedly quiet and interpret this as disengagement. From a Tongan perspective, silence signals respect and attentiveness, while frequent questioning of a senior figure's view may be read as challenging their authority.
+
+Follow-up after a meeting can take longer than expected, particularly if the matter requires consultation with family, community leaders, or others outside the immediate business context. This reflects the communal nature of decision-making in Tonga, where individual choices often have wider social implications. Pushing for quick turnaround or bypassing the senior decision-maker to approach junior staff directly will likely slow things down further or create discomfort. Allowing time and maintaining respectful contact with the right person is the more effective path.

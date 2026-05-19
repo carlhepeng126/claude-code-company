@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Morocco is relational infrastructure, not a formality. Invitations to lunch or dinner reflect a host's willingness to invest in the relationship and to assess how someone behaves outside formal structures. These gatherings allow Moroccans to observe how you interact in a social setting, which feeds directly into trust-building. The invitation itself is a form of generosity and a signal that the relationship may move forward. Accepting gracefully and reciprocating at an appropriate moment is expected.
+
+Meals are typically social occasions, especially at first. Business may be touched on lightly or not at all until the host introduces it. Raising work topics too soon can feel transactional and misreads the purpose of the gathering. A colleague from a culture where business lunches are used to advance deals quickly may interpret this as evasion or inefficiency, while a Moroccan host may read an early pivot to business as impatience or a lack of respect for the relationship being built. The meal is the work.
+
+Tea rituals, particularly mint tea served with the distinctive high pour, are a recurring part of hospitality and function as a visible enactment of welcome and care. The performance itself communicates attention and generosity. Cafés also play a role in informal professional life, especially among men in urban settings, where they serve as social observation posts and places to talk outside the office. Gender norms can still shape who meets where. In more conservative households, women may dine separately if the invitation is to a private home. Regional differences also shape entertaining styles. The Rif, the Amazigh Atlas, and the Saharan south each bring different hospitality aesthetics, social calendars, and community memory to what a meaningful evening looks like.

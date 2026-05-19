@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Israelis move fast but flexibly. Decisions happen quickly, pivots can come without warning, and waiting for everything to be ready before acting goes against the instinct to solve the problem in front of you right now. This responsiveness grows from living with constant uncertainty. When the future is unpredictable, long-term plans hold less value than being able to change course when needed. The phrase *yihiye beseder* (it'll be fine) captures this outlook: optimistic, adaptable, and focused on the present moment rather than rigid schedules. Plans shift, meetings run over, and things rarely unfold exactly as outlined.
+
+This fluidity doesn't mean disorganization. It reflects a preference for real-time problem solving over adherence to yesterday's plan. An Israeli colleague may arrive late to a meeting without apology or interrupt one discussion to handle something urgent, not out of disrespect but because the immediate priority takes precedence. If you're working across borders, this can create tension. A colleague from a culture that values structured timelines may see this as unreliable. An Israeli, in turn, may read strict scheduling as inflexible or disconnected from what's actually happening on the ground.
+
+Build buffer time into your schedule and expect meetings to start late or extend beyond their slot. At the same time, when momentum builds, Israelis expect quick movement. If you're asked for a deliverable, responding in days or weeks sounds far more credible than proposing months. Suggest a realistic timeline but know that speed signals seriousness. If you commit to a deadline, follow through. That consistency will carry more weight than any amount of early planning.

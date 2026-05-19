@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Business meetings in Aruba reflect the island's preference for building rapport before formality takes over. The opening minutes are used to establish personal connection, often through informal conversation about family, recent travels, or weekend plans. This is not filler. It allows Aruban colleagues to assess trustworthiness and feel comfortable before the agenda begins. Moving too quickly into business can come across as transactional and may slow down the real work of building alignment. Allow this phase to unfold naturally rather than cutting to the agenda within the first few moments.
+
+Once the meeting starts, the tone becomes more focused but remains collaborative. Hierarchy is respected, and senior figures are expected to attend important meetings. Decisions tend to flow from the top, so ensuring the right level of seniority is present from the outset will prevent delays or the need to revisit topics later. Titles and roles should be acknowledged without being overstated.
+
+The pace of decision-making is typically steady rather than fast. Pushing for immediate commitment or tight deadlines may be met with polite delay rather than agreement. This reflects a preference for careful consideration and consensus-building, especially when longer-term partnerships are at stake. A colleague from a culture where decisions are made quickly may read this as avoidance or lack of interest, while an Aruban colleague may view rapid decision-making as reckless or superficial. Adjusting expectations around timelines and following up thoughtfully will support smoother collaboration.

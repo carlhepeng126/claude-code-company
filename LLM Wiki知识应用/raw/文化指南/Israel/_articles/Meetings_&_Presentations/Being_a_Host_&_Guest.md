@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Israeli hospitality runs on warmth and directness, with little emphasis on formality or protocol. As a guest, expect conversations that move quickly from small talk to personal stories, even in a business context. This openness reflects a broader cultural preference for building connection through candor and lively exchange rather than polished restraint. Israelis often make themselves at home quickly when visiting, and they welcome the same ease from their guests. If you're accustomed to more structured hosting, where boundaries between host and guest are carefully observed, the informality may feel disarming at first. For Israelis, that comfort signals trust rather than presumption.
+
+Dietary considerations require attention, particularly around kosher observance. Roughly 20% of Israelis follow kosher dietary laws, which prohibit pork, shellfish, and the combination of meat and dairy in the same meal. If you're hosting an Israeli colleague or guest, asking in advance about dietary requirements is practical and shows cultural awareness. This is not an awkward question. It's a straightforward acknowledgment that religious practice shapes daily life for many people, and it helps avoid situations where someone cannot eat what's been offered.
+
+Reciprocity matters, but not in terms of grandeur or staging. Israelis value genuine engagement and effort more than the setting itself. A relaxed meal with good conversation will resonate more than an over-engineered event. When visiting a home, bring a small gift such as flowers or sweets, but there is no expectation around alcohol. The emphasis is on presence and connection, not performance.

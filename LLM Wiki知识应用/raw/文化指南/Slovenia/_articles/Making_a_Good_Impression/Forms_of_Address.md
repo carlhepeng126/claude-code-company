@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Slovene encodes formality directly into everyday speech through the ti/vi distinction. Ti is used among friends, family, and peers who know each other well, while vi (often capitalized as Vi in writing) signals respect or social distance. This built-in register gives Slovenians a straightforward way to manage politeness without appearing overly stiff or distant. Beginning with vi and waiting for the other person to suggest ti is the safest approach, especially in professional settings or when meeting someone senior or unfamiliar. Switching too early can feel presumptuous, while sticking with vi too long simply reads as courteous.
+
+First meetings tend toward measured warmth rather than instant friendliness. Greetings are polite and sincere, often accompanied by a firm handshake and steady eye contact, but without the overt enthusiasm common in some cultures. A colleague from a culture where warmth is expressed immediately through informality or enthusiasm might read this as coolness or lack of interest. From the Slovenian side, premature familiarity can feel shallow or performative. Trust and warmth deepen through consistency and reliability over time, not through early informality.
+
+In border regions and urban centers with Italian, Hungarian, or Bosnian communities, naming conventions and greeting preferences can vary. In these settings, asking naturally about name pronunciation or language preference, and mirroring what the other person does, shows respect without performing cultural knowledge. Urban diversity means you may encounter different registers of formality or different customs around titles and greetings, especially in mixed neighborhoods.
+
+Professional and academic titles matter. Use Gospod (Sir) or Gospa (Madam) with the surname if no professional title applies, and maintain this formality until invited to do otherwise. In writing, this formality extends to email openings and closings, where titles and surnames remain standard until the relationship shifts.

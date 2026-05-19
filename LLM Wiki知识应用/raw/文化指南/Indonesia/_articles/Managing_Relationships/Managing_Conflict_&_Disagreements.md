@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Disagreement in Indonesia is rarely declared in the room. Agreement may be nodded through in a meeting, only for resistance to emerge days later through delays, minimal cooperation, or tasks quietly left undone. This reflects a deeply held concern for group harmony and the protection of face, especially in hierarchical settings where openly challenging a superior or peer would risk social rupture. Passive forms of dissent allow people to preserve the surface of consensus while signaling discontent through action, or the absence of it.
+
+When conflict needs resolution, the most effective path often runs through a trusted intermediary. A respected senior colleague, religious figure, or community elder can speak plainly to both parties without forcing either into a direct confrontation. This indirection is strategic, not evasive. It allows the substance of the disagreement to be addressed while the social fabric remains intact. For a manager from a culture where direct feedback is expected and valued, this can feel slow or incomplete. For Indonesian colleagues, the manager's insistence on face-to-face resolution may read as unnecessarily confrontational and socially reckless.
+
+Reconciliation may happen through gesture rather than speech. Bringing food to share, making a light joke that breaks the tension, or attending a family occasion can signal that the matter is settled. These acts restore relationship without requiring explicit acknowledgment of fault, which would reopen the risk to dignity that the conflict posed in the first place.

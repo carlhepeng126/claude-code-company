@@ -1,0 +1,11 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Kazakhstan functions as relationship infrastructure, rooted in a broader celebration culture where gatherings renew ties and demonstrate commitment. Invitations to dinner, tea at a colleague's home, or even a communal sauna are extended as part of getting to know each other, and attendance itself conveys seriousness about the relationship. These occasions may happen early and often, even before formal business is well underway. The expectation is that both sides will learn about each other through conversation, observation, and the rituals of hosting, not just through what is said about the project at hand.
+
+Hospitality is performed through abundance and insistence. A host will urge guests repeatedly to eat more, try specific dishes, or accept another round of tea or vodka. This is the host demonstrating generosity and care, and it reflects well on them to be seen as welcoming and attentive. Refusing too directly or too often can seem as though you are rejecting the relationship itself. A colleague from a context where restraint or modest portions are the norm may read this insistence as pressure, while a Kazakh host may read a quick refusal as coldness or disinterest. Accepting at least some of what is offered, with visible gratitude, allows the host to fulfill their role.
+
+Hierarchy is expressed gently through seating, service, and public attention. Elders and senior guests are often seated in positions of honor, served first, and introduced with care. Being treated well at the table is a social signal, and how someone is positioned or acknowledged in front of others can reflect the host's regard for them. Many toasts will be made over dinner, often in turn rather than all at once, and these moments allow both sides to show respect and build warmth, even if much of it passes through an interpreter.
+
+Business may be discussed lightly or not at all. The evening itself is often the point, and pushing too quickly toward transactional topics can undermine the trust the meal is meant to build. Reciprocating an invitation, whether during the visit or on a future occasion, is noticed and appreciated.

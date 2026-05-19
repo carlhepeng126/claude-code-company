@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Supplier relationships in the Dominican Republic are rooted in loyalty earned through presence during difficulty, not just transactional performance. Many clients remain with suppliers who supported them through hurricanes, currency volatility, or customs disputes, even when competitors offer lower prices. This reflects a deeper expectation that business relationships endure across cycles of crisis and stability. If you withdraw during a downturn or remain distant when problems arise, the relationship resets. Visiting regularly, staying engaged when margins tighten, and responding quickly in emergencies all build the foundation for long-term commitment. A manager who only appears when renewing contracts will be seen as unreliable, regardless of what the contract says.
+
+Distributors, customs agents, and family-linked intermediaries are rarely peripheral. They hold relationships, procedural knowledge, and the informal influence that makes logistics, permits, and payment flows function. Treating them as administrative obstacles rather than strategic partners often stalls progress entirely. Identifying who actually makes things move, and investing time in those relationships, determines whether your supply chain works smoothly or becomes unpredictable.
+
+In sectors like tourism, reputation spreads through local networks of operators, informal guides, and family-run businesses just as powerfully as through international platforms. Word-of-mouth in these circuits can build or erode your standing faster than formal marketing. Reliability, relational warmth, and fairness in how you handle disputes or service failures shape how you are talked about, and that shapes access to future customers and collaborators.

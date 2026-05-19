@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Being invited into a Dominican colleague's home, particularly outside the capital, marks a shift from professional courtesy to personal trust. These invitations reveal relationships built on what Dominicans call *confianza* (deep trust), and they often bring you into a fuller picture of someone's life. You may meet extended family, neighbours, and see socio-economic realities that office environments do not reflect. Accepting graciously means bringing a thoughtful gift such as good rum, sweets, or something from your own country, and arriving with unhurried time. The occasion is relational, and you may be offered the very best the household can provide.
+
+Hosts may stretch finances considerably to offer abundant food: rice, beans, meat, salad, sweets. The meal itself is an expression of care and dignity. Saying you are not hungry or eating very little can be read as rejection unless clearly framed as a genuine health restriction. Eat at least a small portion of everything offered and acknowledge both the effort and the taste. A colleague accustomed to lighter, self-directed portions at social gatherings may find this approach unfamiliar, while a Dominican guest in a culture where hosts serve modest amounts might interpret it as reserve rather than respect for autonomy.
+
+What you do as a guest holds more weight than formal politeness. Staying through the whole gathering, talking and laughing with family members, dancing a little, playing with children, or helping clear plates all demonstrate genuine engagement. Dominicans read warmth through body language and energy, and leaving shortly after the meal can feel abrupt. Time here is relational, and your presence is the gift.

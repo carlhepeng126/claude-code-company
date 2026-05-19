@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiations in Bosnia and Herzegovina unfold slowly, shaped by a history of fractured trust and the need to assess whether a partner is reliable before any deal moves forward. The country's recent past, marked by conflict and deep ethnic divisions, means that people approach agreements cautiously. Building confidence takes precedence over speed. Expect early conversations to circle around context, relationships, and background rather than terms and timelines. This repetition allows your counterpart to gauge sincerity and test whether you understand the local setting. Pressing for a quick close can signal that you are transactional rather than committed, which undermines the foundation you need to reach agreement.
+
+Decision-making authority is often unclear or dispersed across informal networks. The person at the table may need to consult others who are not present, and those consultations can take time. Delays are rarely about stalling. They reflect the reality that consensus must often be built across ethnic lines, political affiliations, or family connections before anything can be finalized. If you are negotiating across entities within the country, be aware that practices and expectations can vary regionally, and what works in one setting may not translate directly to another.
+
+Offers presented too firmly at the outset leave little room for the back-and-forth that builds mutual comfort. Leaving space for adjustments shows respect for the process and allows both sides to demonstrate flexibility. This is not bargaining for its own sake. It is how people confirm that the other party is willing to adapt and that the arrangement will hold under pressure.

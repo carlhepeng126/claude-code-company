@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Greece lands on professional pride and personal honor at the same time. A blunt assessment delivered in front of others can feel less like critique and more like public humiliation, and it will be remembered. This is why tough feedback is nearly always given one-on-one, framed carefully to separate behavior from worth. The focus should stay on concrete actions rather than sweeping judgments about the person. A manager from a culture where direct feedback in group settings is seen as transparent or efficient may assume their Greek colleague will appreciate the clarity. The Greek colleague, meanwhile, may interpret the same moment as a failure of respect and discretion.
+
+Effective coaching in Greece often sounds more like storytelling than competency mapping. Greek mentors draw on personal experience, sometimes framing lessons through stories from the crisis years or other shared hardships, inviting the listener to reflect rather than imposing analysis. This narrative approach allows learning to unfold without confrontation. When coaching a Greek colleague, it helps to invite their version of events first before offering your own interpretation.
+
+Greeks can be theatrically self-critical, quick to describe themselves or their systems as chaotic or disorganized. But insider irony does not translate into permission for an outsider to echo the same critique in the same tone. What feels like candor among Greeks can feel like judgment when it comes from someone outside the culture. Rather than repeating popular Greek self-criticisms, it is usually better to ask how your colleague sees the situation and let them lead the framing.

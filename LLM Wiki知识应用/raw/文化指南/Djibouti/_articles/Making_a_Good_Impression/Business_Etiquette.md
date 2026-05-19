@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Djibouti's business culture is shaped by its position as a multilingual crossroads where Somali, Afar, Arabic, and French-speaking communities converge. Professional interactions reflect this diversity. Greetings tend to be warm but measured, and how formal or relaxed they become depends on the setting and who is involved. In government offices or with senior figures, expect a more reserved tone. In private sector contexts, particularly among younger professionals or those with international experience, interactions may be more direct. A handshake is standard between men, though cross-gender exchanges follow more conservative norms. Wait for a woman to extend her hand first, and if she doesn't, a nod or verbal greeting is appropriate.
+
+Respect for hierarchy runs through Djiboutian workplaces, and this shows up in how decisions are made and who speaks when. Junior staff rarely challenge seniors openly, and disagreement is typically voiced privately or indirectly. A colleague from a culture where debate happens in the room may read this as disengagement. From a Djiboutian perspective, the same colleague's directness in meetings may seem unnecessarily confrontational or disrespectful of rank. If you need candid input, create opportunities for one-on-one conversation rather than expecting it in group settings.
+
+Business card exchange is informal. Cards may be swapped at the start or end of a meeting, or not at all. Having one ready shows professionalism, but don't assume your counterpart will reciprocate. French is the safest choice for printed materials, though Arabic or bilingual cards are well received in public sector or community-oriented contexts.

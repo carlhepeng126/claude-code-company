@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Tokelau is organized around collective bonds and shared responsibility rooted in the inati system, a traditional practice of equal resource distribution across households. This approach has shaped how Tokelauan professionals understand collaboration. The group comes first, and individual contribution is measured by how it serves the whole. In workplace settings, this means decisions are made collectively and tasks are shared with an expectation that everyone contributes according to their ability. A colleague from a culture where individual accountability is tracked and recognized separately may find it difficult to assess who is responsible for what, while a Tokelauan working in an environment that singles out individual performance may feel the approach undermines group cohesion.
+
+Leadership within teams tends to be vested in senior figures, often elders or those with established standing, who guide through relationships rather than directives. Younger team members defer to these leaders and wait for guidance before acting independently. This reflects the broader role of elders in village governance, where authority is distributed among the taupulega (council of elders) and decisions emerge through consensus. In cross-cultural teams, this can mean that Tokelauan members may hesitate to voice ideas or take initiative without clear endorsement from senior colleagues, particularly if hierarchy has not been openly established.
+
+Team cohesion is maintained through relationship and restraint. Public disagreement or direct challenge is avoided to preserve harmony, and feedback is given quietly, often indirectly. Managers working with Tokelauan team members should offer guidance through conversation rather than instruction, and frame praise as shared achievement rather than individual recognition.

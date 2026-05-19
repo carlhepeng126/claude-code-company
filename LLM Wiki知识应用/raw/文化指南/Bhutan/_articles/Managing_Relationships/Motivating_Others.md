@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+Motivation in Bhutan flows from relationships, shared purpose, and the broader social context in which people work. When someone feels recognized as part of a team, and when their contribution is acknowledged in a way that affirms their standing, they bring energy and commitment. Managers who take time to thank people by name, who highlight someone's role in a successful outcome, or who involve them in a task that will be visible to others, build the conditions for sustained effort. This kind of recognition works best when it feels human and timely, rather than delivered through formal systems or performance metrics.
+
+Financial incentives alone rarely inspire deep engagement. What strengthens motivation is a combination of respect, fairness, and an environment where people feel valued. When decisions about opportunities or recognition seem arbitrary or disconnected from the quality of someone's work, motivation weakens quickly. In contrast, when a manager takes care to ensure that contributions are seen and that people understand how their work connects to something meaningful, the response is tangible.
+
+Rigid deadlines and pressure-driven targets tend to produce compliance, not creativity. Bhutanese workplaces operate with a more relational sense of time, where family responsibilities and collective rhythms take precedence over strictly linear schedules. Managers who build some flexibility into timelines, and who frame goals as shared efforts rather than individual quotas, will see more authentic commitment than those who rely on urgency or competition to drive results.

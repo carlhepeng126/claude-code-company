@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Brunei are shaped by respect for hierarchy and the principle of face, which governs how disagreement, criticism, and decision-making unfold in professional settings. The Sultan's absolute authority sets the tone for organizational structures across both public and private sectors, where decisions flow from the top and deference to senior figures is expected. Junior staff rarely speak unless invited to do so, and challenging a superior's view openly, even with good intent, risks causing embarrassment. If you need input from someone more junior, address your question to their manager first, or frame it in a way that allows them to respond without appearing to overstep.
+
+Meetings tend to be formal in tone, particularly in initial encounters or when senior leaders are present. Small talk at the start is common and serves to build rapport before business begins. Topics often include family, travel, or shared experiences, though avoid anything that might touch on politics or religion unless your counterpart raises it first. Once the agenda begins, expect indirectness. Disagreement is rarely voiced in the room. A colleague from a culture where debate is seen as productive might interpret this as agreement, only to find later that concerns were raised privately or that the decision has stalled. From a Bruneian perspective, the same colleague's directness in meetings may come across as abrasive or disrespectful, especially if it implies criticism of someone senior.
+
+Decisions are rarely made during the meeting itself. Consensus-building happens behind the scenes, often through informal consultation with those whose approval is needed. Pressing for an answer on the spot may create discomfort without speeding things up. Follow up patiently and through the right channels.

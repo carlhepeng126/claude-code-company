@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Indonesia's humid heat meets conservative expectations around modesty, especially in Muslim-majority contexts. Covering shoulders and knees, choosing breathable but not tight or revealing fabrics, and appearing well groomed convey respect for the people you meet. Light cottons and linen help with the climate, but the cut and coverage matter more than the weight of the cloth. A colleague arriving in jeans to a meeting with a government department or an established firm would struggle to be taken seriously, because effort in appearance reflects seriousness about the relationship.
+
+Batik offers more than a way to stay cool. Wearing an appropriate batik shirt or dress to a formal meeting, a ceremony, or on Fridays signals familiarity with local aesthetics and national pride. Patterns differ by region: corporate batik worn in Jakarta looks distinct from the court-style designs of Yogyakarta. Asking a colleague which style fits the occasion shows you understand that the choice carries meaning. Keep a batik option ready for more ceremonial or government settings, and check in advance if you're unsure.
+
+Dress norms shift noticeably between sectors and regions. In schools or offices linked to Nahdlatul Ulama or Muhammadiyah, Indonesia's two largest Muslim organizations, headscarves, long sleeves, and looser clothing are standard. In Bali or certain creative industries, the palette may be more relaxed and colorful, but neatness still holds. When moving between these contexts, observe closely and match the more conservative end if you're uncertain.

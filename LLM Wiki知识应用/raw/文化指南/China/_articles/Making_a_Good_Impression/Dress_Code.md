@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional appearance in China reflects how seriously you take the relationship and the face you extend to others. The polished, well-maintained look expected in business settings is rooted in the concept of mianzi (面子, face). Dressing well shows respect for your counterpart's dignity and reinforces group harmony. A dark suit and quality shoes give you credibility from the first meeting. Clean grooming and fitted, conservative clothing signal that you understand your role within the collective and take it seriously.
+
+Understated quality is valued over flashy display. Confucian restraint shapes how status is signaled. Subtle tailoring and quiet craftsmanship demonstrate confidence and depth, while overly branded or conspicuous accessories can read as pretentious and undermine your standing. In competitive environments, this restraint shows you are secure enough not to announce yourself loudly. If you arrive in something too casual or visibly careless, your counterparts may interpret it as a lack of respect for the partnership, not just a personal style choice.
+
+There are few color taboos in business. Red ties occasionally appear as a nod to cultural symbolism and luck, and black or white remains standard. Traditional superstitions have faded in most corporate settings, though symbolic awareness is still quietly appreciated. The emphasis is less on specific hues and more on coherence and care. Mirroring your counterpart's level of formality is one practical way to show cultural attunement. A team meeting in a state-owned enterprise may call for full formal dress, while a tech startup might allow business casual. The consistent thread is intentionality, not improvisation.

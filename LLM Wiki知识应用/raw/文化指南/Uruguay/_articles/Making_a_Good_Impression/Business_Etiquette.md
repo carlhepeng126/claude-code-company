@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Uruguay's secular public identity, known as *laicidad* (a civic framework that separates religion from public institutions), has shaped not only law but also the rhythm of professional life. Ceremonial formality sits lightly here. Interactions begin with a calm, respectful baseline rather than elaborate ritual. What builds from there is steady warmth earned through repeated contact, not grand opening gestures. In meetings, for instance, you're unlikely to encounter stiff protocol around seating or card exchange. The tone is courteous but relaxed, and relationships deepen through consistency rather than performance.
+
+A common cultural ideal is being *correct*: measured in tone, proportional in response, and careful not to humiliate or escalate. This dignity-preserving ethic shapes how disagreement is handled. Critique is softened, and confrontation in front of others is avoided. A colleague from a culture where directness is expected may find Uruguayan responses vague or slow to surface tension. From the Uruguayan side, that same directness can feel unnecessarily blunt or socially careless. If someone shifts the subject, pauses, or offers an indirect reply, treat it as a signal to adjust course or revisit the issue privately.
+
+Social time holds relational meaning. The long after-meal conversation, or *sobremesa* (literally "over the table," the custom of lingering in conversation after eating), and the sharing of *mate* (a traditional herbal drink passed in a circle, often carried in a thermos throughout the day) are not filler. They build the interpersonal fabric that makes collaboration workable. Rushing through these moments or treating them as inefficient can undermine trust. If you're offered *mate*, accept it as part of joining the group, even briefly.
+
+Business cards and gifts follow a light touch. Cards are appreciated but not governed by ceremony. If you're meeting several people, bring enough to share. A bilingual card in Spanish signals preparation. Gifts are not expected in professional settings, though a modest token from your home country is well received if the relationship has developed. If invited to someone's home, flowers, wine, or chocolates are appropriate and should be opened when received.

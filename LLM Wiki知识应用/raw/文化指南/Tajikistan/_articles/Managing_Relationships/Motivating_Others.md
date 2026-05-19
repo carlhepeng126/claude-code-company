@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+In Tajikistan, motivation grows strongest when people understand how their work serves their family and wider community. A good salary helps support dependents, and a respected position reflects well on parents and relatives. Recognition that acknowledges this connection tends to resonate more than purely individual praise. When a manager highlights someone's contribution in front of colleagues or senior leaders, it strengthens that person's standing both inside and outside the workplace.
+
+Relationships shape commitment as much as compensation does. A manager who shows genuine care, who asks after a colleague's parents or makes space for family obligations, builds loyalty that formal incentives alone rarely achieve. People give more when they feel valued as whole individuals, not just as job titles. Thanking someone directly after they've solved a problem or delivered a difficult piece of work, especially if done in a way that others notice, creates momentum that lasts longer than abstract performance goals.
+
+Rigid targets and tight deadlines, by contrast, can drain energy rather than spark it. Life in Tajikistan moves around family rhythms and social obligations, and most people outside senior roles will not routinely sacrifice personal time to meet a deadline that feels arbitrary. Planning too far ahead feels uncertain, given how much can shift. Managers who adjust timelines when circumstances change, and who frame expectations in terms of shared progress rather than fixed milestones, tend to see more sustained engagement than those who rely on clock-driven urgency.

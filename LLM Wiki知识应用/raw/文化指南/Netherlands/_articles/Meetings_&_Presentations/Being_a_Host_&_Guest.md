@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hospitality in the Netherlands reflects the same directness and efficiency that shapes professional life. Hosts aim to make guests comfortable, but the approach is practical rather than lavish. If you are invited to someone's home, arrive on time and bring a small gift such as flowers or chocolates. The expectation is that you will respect house norms, whether that means removing your shoes or understanding that an invitation for coffee usually means coffee and perhaps one refill, after which it's time to leave. An invitation for 6.30pm typically means dinner, as the Dutch tend to eat earlier than many other Europeans. Staying too long or dominating your host's time goes against the value placed on respecting boundaries and schedules.
+
+In a professional context, if you want to entertain colleagues, plan ahead and be specific. Suggesting "we should have lunch sometime" without committing to a date will come across as insincere. Dinner is often a safer choice than lunch, as many people keep working through midday. If you invite spouses or partners, expect the tone to shift away from business, as it's considered impolite to focus on work when personal guests are present. When the bill arrives, be prepared to split it unless your host has made it clear from the start that you are their guest. There is no embarrassment around dividing the cost equally.
+
+A colleague from a culture where hospitality involves elaborate gestures or open-ended invitations may find Dutch hosting restrained or even abrupt. From a Dutch perspective, however, sincerity lies in clarity and respect for time, and excessive formality can feel unnecessary or even uncomfortable. Direct thanks, whether in person or by message, are appreciated and expected.

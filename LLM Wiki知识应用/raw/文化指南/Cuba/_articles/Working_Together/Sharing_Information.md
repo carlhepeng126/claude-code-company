@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information in Cuba moves along personal lines built over time, and often informally. The centralized structures of the state economy mean that official channels exist but frequently operate slowly or unevenly. As a result, people have long relied on personal networks to get things done, both inside and outside the workplace. Access to information depends less on hierarchy than on who you know and how much they trust you. A Cuban colleague may hold back in early exchanges, not from reluctance to collaborate but from the need to judge your reliability first. Once trust takes root, information flows more readily and partnerships become warmer and more direct.
+
+Inside organizations, information often stays within small circles, particularly where it involves difficulties, delays, or decisions still in flux. Openly acknowledging problems in formal settings can be risky, especially if hierarchy is involved or if the news reflects poorly on someone else. Face matters, and preserving dignity is part of maintaining working relationships. This means that useful context often surfaces later, in quieter conversations, or through a trusted intermediary. A colleague from a culture where transparency is expected across departments may find this frustrating, reading it as withholding. A Cuban counterpart, in turn, might view that same transparency as careless or naïve, particularly if shared before trust has been established.
+
+Building the kind of trust that encourages open exchange takes consistency. Colleagues respond to leaders who follow through on commitments, respect confidences, and treat mistakes as shared problems rather than individual failures. Informal moments, such as a coffee after a meeting or a conversation away from the office, often create the space where real information is shared.

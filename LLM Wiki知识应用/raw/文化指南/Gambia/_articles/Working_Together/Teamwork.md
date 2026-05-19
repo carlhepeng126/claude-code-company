@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in The Gambia is built on relational trust and respect for seniority, with collaboration shaped more by personal connection than formal process. Senior colleagues often guide younger team members through indirect mentorship, modeling behavior and offering advice in private conversation rather than through explicit instruction. This reflects a cultural preference for preserving dignity and avoiding public exposure of inexperience. When feedback is needed, it's typically given quietly and framed constructively. Public correction risks embarrassment and can damage both individual standing and team morale, so managers who want to maintain trust will address concerns one-on-one.
+
+Hierarchy shapes how teams function, but it coexists with a relational warmth that softens formal structures. Team members expect leaders to take a genuine interest in their well-being, not just their output. A manager who focuses solely on deadlines or performance metrics without attending to personal rapport may be seen as disconnected or cold. Building relationships takes time and is considered foundational to effective collaboration. Colleagues from cultures where task completion is prioritized over relationship-building may interpret this pace as inefficiency, while Gambians working in more transactional environments may find the lack of personal engagement isolating.
+
+Praise is typically directed at the group rather than singling out individuals, which reinforces collective cohesion and avoids creating resentment or perceptions of favoritism. Recognizing one person publicly can unsettle team balance, so managers working across cultures should consider how recognition is framed and delivered.

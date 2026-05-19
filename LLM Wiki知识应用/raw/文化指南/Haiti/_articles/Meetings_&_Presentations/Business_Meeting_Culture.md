@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Haiti often begin without the rigid structure seen in some corporate environments, and timing can shift even after an invitation has been sent. This reflects a culture where relationships take priority over procedures, and where flexibility allows people to respond to immediate needs, family obligations, or changes in circumstance. Scheduling well in advance helps, but expect adjustments. Confirming details a day before, ideally through a phone call rather than email alone, shows respect and gives both sides a chance to adapt if something has changed.
+
+The meeting itself may start with extended conversation that feels unrelated to the agenda. This time serves a real purpose. Haitians assess character and sincerity through dialogue, and trust is built through these exchanges rather than through credentials alone. Jumping straight into business proposals can come across as transactional or dismissive. A colleague from a culture where meetings follow tight agendas might interpret this opening phase as inefficient, while a Haitian counterpart might view an abrupt start as cold or overly formal. Allowing the conversation to unfold naturally, and contributing to it genuinely, establishes the foundation for everything that follows.
+
+Hierarchy shapes who speaks and when. Senior figures are expected to lead the discussion, and decisions rarely happen in the room without their explicit involvement. Pressing junior staff for commitments can create discomfort and delay progress, as they may not have the authority to respond. Directing questions and proposals to the most senior person present, and giving them time to consult privately if needed, aligns with how decisions are actually made. Follow-up is often verbal and relational rather than documented in formal minutes, so maintaining direct contact after the meeting helps keep momentum.

@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Professionalism in Russia rests on follow-through and substance rather than performative warmth. Smiling in business settings is reserved for moments of genuine connection or sincerity, so a neutral expression at the start of a meeting reflects focus, not unfriendliness. What communicates respect is preparation, plain speech, and keeping your word. A colleague who arrives on time, speaks directly, and then delivers on commitments builds credibility quickly. A counterpart who leads with upbeat energy but misses deadlines or glosses over details may be read as insincere or unserious.
+
+Official processes and informal problem-solving often run in parallel. Russians recognize that written agendas, structured summaries, and formal documentation serve strategic purposes, but they also understand that relationships open doors when systems stall. If you rely only on procedure, you may find yourself waiting. If you rely only on personal ties without demonstrating competence, the relationship has no foundation. The most effective approach combines both: clarity on the formal side, awareness on the informal.
+
+The Russian Federation's regional and cultural diversity shapes what feels respectful or appropriate. Interaction patterns in Moscow, the North Caucasus republics, or Far Eastern cities differ meaningfully. What reads as normal courtesy in one context may feel too formal or too casual in another. When working across regions, ask local colleagues how communication and respect are typically shown. Treating this variation as structural, rather than incidental, keeps you from applying one baseline everywhere and expecting it to land.

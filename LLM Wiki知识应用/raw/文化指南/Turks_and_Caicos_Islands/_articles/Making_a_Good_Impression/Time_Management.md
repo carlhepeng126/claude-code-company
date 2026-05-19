@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Turks and Caicos Islands follows relational rather than rigid structures. This reflects the islands' small-scale, relationship-centred society, where preserving harmony and personal connection often takes precedence over strict adherence to schedules. The working culture is rooted in Caribbean social norms that value face-to-face interaction and flexibility, particularly in sectors tied closely to local networks. At the same time, the islands' economy depends heavily on international tourism, offshore finance, and foreign investment, which means professionals regularly navigate between island time and the punctuality expectations of North American and European partners.
+
+In hospitality, real estate, and government offices, meetings may begin later than scheduled, and timelines can shift to accommodate availability or unexpected developments. This reflects a belief that relationships sustain business over the long term, and that pushing too hard for speed can damage trust. A colleague accustomed to back-to-back schedules may interpret this as disorganization, while a Turks and Caicos professional may see a visitor's insistence on tight timing as transactional or dismissive of the person in front of them.
+
+In settings with strong international ties, particularly finance, legal services, or large resort operations, deadlines are taken seriously and punctuality is expected. Even here, building rapport before diving into business remains culturally valued. Allowing time for greetings and brief personal exchange at the start of a meeting, even when the agenda is tight, helps establish the relational foundation that makes subsequent efficiency possible.

@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Trinidad and Tobago combines informality with respect codes that run deeper than surface warmth suggests. A relaxed greeting or first-name use does not erase expectations around acknowledging seniority or adjusting tone to the situation. People move fluidly between joking familiarity and serious respect depending on who is present, and misjudging that shift can affect how your credibility is read. A handshake is standard in professional settings and should be firm, while using "Mr." or "Mrs." with a surname is expected until the person invites you to drop the formality. Written communication follows the same rule: maintain formal address until clearly signalled otherwise.
+
+Calypso commentary traditions and everyday verbal sparring have shaped speech as a cultural performance tool. How you speak, not just what you say, forms part of how people assess your competence and social intelligence. Colleagues may evaluate whether you can tell a story, land a point with humor, or shift register smoothly across contexts. For professionals from cultures where communication style is seen as separate from content delivery, this can create a sense that conversations are being judged on criteria that feel unspoken. From the other side, a flat or overly literal delivery may come across as socially unaware, even when the content is sound.
+
+Ethno-religious traditions add further texture. Hindu, Muslim, and Christian communities each bring distinct greeting styles and forms of respectful address, particularly around elders and religious figures. Being attentive to which setting you are in helps avoid missteps. Similarly, Tobago's more village-centered social texture can shape preferences around warmth and politeness compared to faster-paced urban Trinidad contexts, so calibrating your tone to the local feel makes a difference in early encounters.

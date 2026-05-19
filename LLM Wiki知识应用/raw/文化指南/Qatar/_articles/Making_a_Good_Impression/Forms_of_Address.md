@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Respect in Qatar is built into language itself. Arabic remains the official language and the frame through which public life is understood, even in a country where English functions widely as a workplace bridge. Names often carry lineage and relationship information, sometimes revealing family origin and connections at the point of introduction. Titles reflect not only professional standing but also social position, and using them correctly is part of how dignity is maintained in formal settings. The ruling family's presence in public life reinforces this sensitivity: National Day itself marks Sheikh Jassim's succession in 1878, and the culture around titles and address continues to reflect that constitutional and symbolic weight.
+
+In professional contexts, start formally. Use titles where they apply, particularly those that signal seniority or government roles. "Sheikh" is a marker of respect attached to the first name or full name, never the surname alone. Professional titles such as "Doctor" or "Engineer" are used in both literal and honorific ways. If someone introduces themselves with a title, use it until they invite you to drop it. In email or formal correspondence, maintain that same level of formality. The structure of address communicates where you understand yourself to stand in the relationship.
+
+Warmth and formality can coexist. The informality of access, common in tribal-rooted cultures, does not erase the expectation of correct positioning. You may find yourself in a relaxed meeting with a senior figure who is easy to reach and quick to welcome you, but that ease does not mean you should rush to first names. Let the other person set the pace. If they shift to informality, follow. If they maintain titles, respect that boundary without reading it as coldness.
+
+In a multilingual environment, these conventions matter more visibly when Qatari nationals are present or when the setting is citizen-facing or government-linked. Even colleagues from other countries working in Qatar often adopt a slightly more formal register in mixed settings to avoid missteps. Mirror the most respectful version you hear used around you, and adjust once the tone is clearly established.

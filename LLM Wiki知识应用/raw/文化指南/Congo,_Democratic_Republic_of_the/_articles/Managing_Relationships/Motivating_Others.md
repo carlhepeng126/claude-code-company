@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+Motivation in the Democratic Republic of Congo grows from connection and recognition more than from systems or targets. When someone feels genuinely valued and sees that their work reflects well on their family and community, commitment deepens. Success is rarely just individual. It extends outward, shaping how a person is seen by those they care about. A manager who acknowledges someone's contribution in front of colleagues, or who invites them into a project with visible impact, strengthens that person's standing in ways that matter far beyond the office. Recognition works best when it is personal, timely, and tied to something concrete.
+
+Financial incentives alone rarely sustain effort. What does is a workplace that feels human: where managers check in, where people know their efforts are noticed, and where team cohesion is actively fostered. A leader who thanks the team after a challenging stretch, or who takes time to understand what someone is managing outside work, builds loyalty that formal reward structures cannot. The relationship with the manager often shapes how hard someone is willing to work, particularly when that relationship includes respect, warmth, and a sense of shared purpose.
+
+Rigid deadlines and distant targets tend to fall flat. Time in Congolese workplaces moves more fluidly, shaped by family obligations, relational priorities, and a view of the future that leaves room for uncertainty. Expecting someone to work late to meet a deadline set weeks earlier, especially if it conflicts with family responsibilities, misreads what drives effort here. Managers who build in flexibility, who adjust timelines when circumstances shift, and who frame goals in relational rather than purely procedural terms will see stronger engagement than those who rely on pressure and schedules alone.

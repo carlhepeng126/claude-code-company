@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Audiences in Azerbaijan respond to presentations that combine technical substance with narrative warmth. The cultural esteem for mugham singers and poets means people expect storytelling alongside evidence. A purely data-driven deck feels cold and incomplete, while a presentation built only on emotion reads as unserious. The most effective approach weaves a concrete example from a school, farm, or factory together with a clear chart or table. This speaks to both the analytical training many professionals received during the Soviet era and the cultural respect for well-told stories that reveal lived experience.
+
+Many decision-makers in Baku retain strong ties to specific regions, whether Lankaran's tea country, reconstruction sites in Karabakh, or mountain villages in Quba. Generic references to "the regions" suggest you have not done your homework. Using a map or naming a district shows you understand the country beyond the capital. This specificity builds credibility in a way that polished but shallow consultancy decks do not. Soviet-era technical expertise still shapes professional identity, and audiences listen carefully for whether you acknowledge local knowledge or assume you are bringing enlightenment from outside.
+
+Deliver your presentation in Azerbaijani or with strong Azerbaijani language support, and avoid jargon that only multinationals recognize. Close with concrete, locally relevant next steps. People will ask themselves what your proposal changes for their ministry, company, or district. If that question has no clear answer by the end, the presentation has not landed.

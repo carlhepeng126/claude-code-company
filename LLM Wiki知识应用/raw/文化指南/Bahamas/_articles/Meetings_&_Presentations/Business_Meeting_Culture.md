@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in the Bahamas typically begin with an extended social opening. This is when relationship groundwork happens. Jumping into business too early can come across as transactional or disrespectful, especially when meeting someone for the first time. Bahamians use this time to assess character and trustworthiness, and trust is built through personal rapport before professional credibility. If you arrive with a packed agenda and move to business within five minutes, expect the atmosphere to cool. A colleague from a culture where decisions are made quickly may read this extended opening as avoidance or inefficiency, while a Bahamian counterpart may see a rush to business as dismissive or overly impersonal.
+
+Formality varies depending on who is in the room. Senior figures are addressed with titles and shown deference, and meetings where hierarchy is present tend to be more structured. If the relationship develops over time, later meetings often become less formal, with humor and storytelling woven into the conversation. This shift reflects growing trust, but it does not mean that respect for seniority fades. If you mirror the tone set by the most senior person present, you will navigate this well.
+
+Decisions are rarely finalized during the meeting itself. Even when consensus appears to have been reached, final approval often rests with someone not in the room. Pushing for on-the-spot commitments can backfire. Follow-up is where agreements solidify, and this process may take longer than expected. If a next step is unclear, confirm it directly before you leave rather than assuming it will happen.

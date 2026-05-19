@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Gambia, feedback is rarely delivered as a standalone event. It happens through relationship, often indirectly, and almost always with an eye to preserving dignity. Direct criticism, even when intended constructively, can damage the social fabric that makes work possible. Managers tend to frame feedback as guidance or advice, softening the message through tone and careful word choice. A colleague might say, "Perhaps we could look at this another way," or "Let me share what I've seen work before," rather than stating what went wrong. This indirectness reflects a broader cultural value: maintaining harmony and respect, particularly where age or seniority are involved.
+
+Praise can be given more openly, especially when it acknowledges group effort or reflects well on a team. Public recognition that names an individual too prominently, however, may cause discomfort. It can create envy or be seen as singling someone out in a way that disrupts balance. When giving positive feedback, anchor it in shared success or acknowledge the support that made the achievement possible. This helps the recognition feel collective rather than isolating.
+
+Negative feedback should always be delivered privately and framed with care. A manager might lead with encouragement, express confidence in the person's ability, and then gently introduce what needs to shift. The feedback is often embedded in a broader conversation, not delivered as a formal critique. For a colleague from a culture where feedback is expected to be direct and task-focused, this can feel vague or incomplete. From a Gambian perspective, the directness may feel harsh, even disrespectful, especially if it comes without relationship or context. Building trust first makes the feedback easier to hear and more likely to lead to change.

@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Christmas Island's business culture reflects the multiethnic makeup of its small population, where Chinese Australian, Malay, and other communities have long worked alongside one another in the phosphate industry, local government, and small enterprise. Interactions lean informal and pragmatic. Hierarchy exists but is not emphasised through ritual. Greetings are straightforward, first names are used quickly, and titles matter less than they might in parts of mainland Australia or Southeast Asia. This ease is born partly of scale: in a small community where professional and personal networks overlap, formality can feel artificial.
+
+That informality does not mean shortcuts. Relationships still underpin collaboration, and trust is built over repeated interaction, not assumed at first contact. Someone arriving for a short-term project or consultancy may find that decisions take longer than expected, not because of bureaucracy but because people are waiting to see how you work, how you follow through, and whether you understand the community's rhythms. A colleague from a culture where decisions are made quickly in initial meetings may read this as inefficiency, while someone from Christmas Island may view the rush to close a deal as transactional and lacking foundation.
+
+Dress is casual by corporate standards. Open-necked shirts and light fabrics suit the climate and the tone. Overdressing can mark you as disconnected from the local context. Small gestures of respect go further than formality: remembering names, acknowledging the mix of cultural backgrounds in the room, and recognising that business here often means working with the same few dozen people across multiple roles and settings.

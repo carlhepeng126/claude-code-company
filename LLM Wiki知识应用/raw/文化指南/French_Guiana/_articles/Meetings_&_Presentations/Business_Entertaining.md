@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in French Guiana reflects the country's distinctive position as a département of France in South America. The setting shapes the style: meals tend to be relaxed and informal, often influenced by Creole hospitality and the region's Caribbean connections, but decisions about timing and venue can still carry French administrative precision. A lunch or dinner invitation usually means the relationship has progressed beyond purely transactional contact, though the meal itself is rarely the place where deals are finalised.
+
+Restaurants in Cayenne or Kourou are common venues, and the choice of cuisine often reflects French Guiana's cultural mix. Hosts may choose French, Creole, or Brazilian options depending on the guest and the occasion. Alcohol is generally present and socially accepted, though not always central. Wine or rum may be offered, and declining politely is rarely an issue. What can create tension is rushing the conversation toward business. Colleagues accustomed to mixing work talk with eating may find the pace slower here, where the meal is often treated as a social anchor rather than a working session.
+
+For visitors from cultures where entertaining follows a more structured agenda, the informality can be misleading. A relaxed tone does not mean the relationship is less deliberate. The time spent together is part of how trust is built and how people assess whether collaboration will work beyond the contract. Reciprocating the invitation, whether during the same visit or on a return trip, is noticed and valued.

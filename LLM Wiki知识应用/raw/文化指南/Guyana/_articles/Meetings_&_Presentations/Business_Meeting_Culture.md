@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Guyana are rarely scheduled far in advance. Professionals often arrange discussions with only a few days' notice, reflecting a preference for flexibility and personal connection over rigid planning. If you're used to booking weeks ahead, this can feel uncomfortably informal. But in a small, relationship-driven business environment where networks are tight and face-to-face contact still dominates, last-minute coordination is the norm. Confirm attendance the day before and be prepared for the occasional reschedule without prior warning.
+
+Formality in meetings is shaped by status and seniority. Titles are used consistently, and deference to senior figures is expected, particularly in government or traditional sectors. Younger professionals in Georgetown's growing private sector may adopt a more relaxed tone, but even here, respect for hierarchy runs through the conversation. Decisions are rarely made in the room. Senior figures prefer to consult privately before committing, so pushing for immediate agreement will likely meet resistance. A colleague from a culture where decisions are made quickly in meetings may read this as indecision or delay, while Guyanese participants may see fast commitment as hasty or superficial.
+
+Discussions often take longer than the agenda suggests. This reflects both a cultural comfort with open-ended conversation and the practical need to build trust before moving forward. Small talk at the start is expected, and meetings may shift fluidly between topics without strict time boundaries. If you treat this as inefficiency and try to redirect the conversation sharply, you risk appearing dismissive. Follow the flow, contribute when invited, and allow space for relationship-building alongside business.

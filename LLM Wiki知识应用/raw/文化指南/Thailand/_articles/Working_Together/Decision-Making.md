@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Thai workplaces reflect two layers of authority: formal position and social seniority. A choice feels legitimate when it comes from someone with the right standing, typically a *phu yai* (senior figure), even if the analysis was done by others. The room often tracks who has the right to propose, who can endorse, and whose name should be attached to the outcome. This means routing proposals through the correct seniority channels before bringing them forward. A well-prepared plan presented too early or by someone too junior can lose traction simply because the lineage feels wrong.
+
+Consensus forms gradually, often through quiet checking rather than open debate. Real alignment happens in side conversations, informal follow-ups, and careful permission-building, allowing people to shift positions without the visibility of public reversal. A meeting may appear calm and agreeable while the decision is still forming elsewhere. Stalling is common when commitment feels premature or the social ground has not been prepared. If you hear general agreement in the room, confirm privately afterward rather than treating it as final.
+
+Face plays a central role in shaping how options are presented. If a decision would require someone to admit error or delay publicly, it becomes socially costly. Outcomes are often framed to avoid visible loss of standing, through adjusted timelines, reframed language, or phased approaches that let people move forward without having to "lose." Offering options that preserve dignity, such as pilots or adjustments, makes agreement easier to reach than forcing a binary choice.

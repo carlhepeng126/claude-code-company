@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Djibouti begin with formality and careful attention to who holds authority. Senior figures set the tone and make the decisions, so invitations must reach the right level from the start. Trying to accelerate outcomes by working around hierarchy or pushing junior staff for answers will slow things down rather than speed them up. Respect for seniority reflects both Islamic values of deference and the influence of French administrative tradition, where rank determines access and influence.
+
+Expect the opening of a meeting to involve greetings, inquiries about health and family, and sometimes tea. This is relationship-building, and skipping it to dive straight into business can be read as dismissive. Once the agenda begins, discussion tends to be measured and indirect. Direct criticism or blunt disagreement, especially in front of others, risks causing offense and damaging the relationship. A colleague from a culture where feedback is given openly in meetings may interpret this caution as avoidance, while a Djiboutian counterpart may view that directness as confrontational or lacking in respect.
+
+Decisions are rarely made on the spot. Authority is centralized, and even when a senior person is present, they may prefer to consult further before committing. Pressing for immediate answers or presenting tight deadlines can backfire, signaling impatience rather than efficiency. Allow time between meetings for internal discussion, and follow up with written summaries that confirm what was discussed. This gives space for reflection and builds confidence that both sides understand the terms.

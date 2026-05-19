@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Trust in Rwanda grows from integrity and character. Agaciro (dignity) and ubupfura (good character) shape how credibility is assessed, meaning that honesty, respectfulness, and reliability feel less transactional and more moral. A supplier who keeps their word, avoids over-promising, and admits constraints early will build trust faster than one who prioritizes enthusiasm over accuracy. This means that written agreements should be crisp and deliverable. Clear scopes, timelines, and ownership show seriousness, and any form of fraud or misrepresentation can damage a relationship permanently.
+
+Service is also judged on dignity. Protecting a client from embarrassment or handling problems quietly and competently reflects respect. If something goes wrong, fix it without drawing attention to the customer's role in the issue. In a culture where presentation and order are tied to national self-image, partners are often evaluated on whether their processes and commitments align with this seriousness. Reliability and clarity can be as persuasive as competitive pricing.
+
+Rwanda's modern narrative emphasizes collective uplift, drawn from practices like ubudehe (mutual support) and Girinka (symbolic communal gifting). If you reference social impact or community benefit, keep it grounded and non-performative. Link it to real contribution and mutual benefit rather than branding. Partnerships may be judged on whether they strengthen local capacity, not just extract value. Established relationships are valued and switching suppliers is uncommon when a partnership functions well, but loyalty depends on continued alignment with the client's long-term goals and ongoing demonstration of value.

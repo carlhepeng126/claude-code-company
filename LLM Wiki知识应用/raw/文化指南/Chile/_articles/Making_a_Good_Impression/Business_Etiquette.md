@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+In Chilean professional life, the social ideal of being *piola* (modest, understated, reliable) shapes how people present themselves and respond to others. Over-the-top self-promotion or loud displays of confidence tend to clash with this expectation. Colleagues appreciate competence shown through steady delivery rather than bold claims, and understatement often reads as more credible than hype. If you come from a context where direct self-advocacy is the norm, framing your contribution as a team effort or letting results speak first can help you build trust without seeming arrogant.
+
+Disagreement is rarely delivered bluntly. Instead of "you're wrong," expect phrases like *es complicado* (it's complicated), *no es tan fácil* (it's not that simple), or *podría ser, pero…* (maybe, but…). The negative content is there, but wrapped. Learn to hear the substance inside these softened responses and respond to what's actually being signaled, rather than pressing for a binary yes or no. A colleague from a culture where direct refusal is the norm might read this as vague or evasive; a Chilean colleague might read blunt disagreement as disrespectful or unnecessarily abrasive.
+
+Humor, particularly sarcasm and irony, offers a safe way to express criticism without open confrontation. Jokes about politicians, bosses, or "the system" build camaraderie and allow dissent to surface without damaging relationships. But avoid heavy teasing or divisive political commentary early on. First meetings tend to be polite and structured, with small talk that stays light: family, football, even earthquakes, but not deep personal disclosure yet.

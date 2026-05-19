@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Jersey is shaped by the island's smallness and the deep, overlapping networks that connect nearly everyone. In a community where professional and personal lives intersect often, direct criticism risks damaging relationships that extend well beyond the workplace. Managers typically soften feedback by framing it as a suggestion or contextualizing it within a broader conversation, and they tend to deliver it privately. This isn't evasion. It reflects a practical understanding that public correction can ripple through a small society in ways that affect standing, morale, and future collaboration.
+
+Positive feedback is easier to give openly and is often shared across the team, particularly when it reinforces collective effort. Praise that acknowledges contribution without singling someone out too sharply fits comfortably within Jersey's modest, group-oriented culture. Managers from more individualistic settings may initially find the restraint around public recognition puzzling, but the logic is relational. Overemphasis on individual achievement can feel awkward or divisive in a place where interdependence is valued.
+
+Coaching conversations tend to unfold gradually rather than in single, structured sessions. A manager might touch on an issue lightly, then return to it later, allowing time for the message to settle. This indirect approach can feel inefficient to colleagues accustomed to more immediate, candid exchanges, but in Jersey it reflects respect for the person and the relationship. Repeated, gentle nudges are more common than one blunt conversation, and they're more likely to be acted on without rupturing trust.

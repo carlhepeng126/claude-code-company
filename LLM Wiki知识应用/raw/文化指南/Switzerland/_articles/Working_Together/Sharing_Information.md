@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information in Swiss workplaces flows most reliably when it is precise, traceable, and clearly structured. This preference reflects more than professional habit. Switzerland's civic culture prizes contestable legitimacy, where procedures can be challenged and must hold up to scrutiny. In that context, documentation becomes a form of fairness. When information can be reviewed and verified, it feels trustworthy. Colleagues tend to write decisions down, define terms carefully, and distinguish what is confirmed from what is assumed. A proposal framed as fact without supporting detail may be met with quiet skepticism, while one that separates evidence from interpretation earns credibility.
+
+The country's multilingual reality reinforces the value of clarity. In teams where French, German, and Italian speakers collaborate, crisp sentences and low-idiom phrasing help meaning land across linguistic frames. Summaries and recaps are common, and neutral wording is preferred. This is practical, but it is also a form of respect. A colleague from a culture where verbal updates and quick exchanges feel sufficient may find the preference for written records and careful scope-setting slow or formal. From the Swiss side, relying on unwritten agreements or vague verbal commitments can feel risky and incomplete.
+
+Trust develops through consistency rather than immediate openness. People may share selectively at first, especially in new relationships. This is not suspicion, but a reflection of privacy as part of social consideration. Over time, demonstrated reliability opens the door to fuller information exchange. For international partners, this means showing up prepared, following through on commitments, and documenting clearly from the start.

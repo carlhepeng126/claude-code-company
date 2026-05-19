@@ -1,0 +1,11 @@
+# Sharing Information
+
+## Working Together
+
+Information moves carefully in Cambodian workplaces, shaped by hierarchy and a history that has made people cautious about putting sensitive material in writing. Decisions and strategic context typically sit with senior leaders and flow downward on a need-to-know basis. Junior staff often receive instructions without the reasoning behind them, and many feel it would be inappropriate to push for fuller explanation. Among colleagues of similar rank, however, information travels more freely through trusted friendships and informal networks, where people share what they know in ways that bypass the formal chain.
+
+People can be wary of documenting problems, mistakes, or anything politically sensitive on paper. Written records have been used to assign blame in the past, and that memory lingers in how people choose their words. Documents tend to be formal, detailed, and factual, used more to report than to open debate. Opinions and concerns move through conversation instead. If you need honest feedback on something delicate, make room for spoken discussion alongside any written process, so colleagues do not feel exposed by what they commit to the page.
+
+When someone shares a story about a failed project or a previous manager who left abruptly, they are usually doing more than making conversation. These narratives often encode concerns or warnings that would be awkward to state directly, especially if the speaker is junior or the issue involves someone senior. Listen for what the story reveals about what people hope to avoid this time around, and treat it as useful intelligence rather than small talk.
+
+Because juniors may not ask for context even when they need it, spell out not just the task but the reasoning, the risks, and the connections to broader goals. What feels like over-explaining to a colleague from a culture where people routinely question upward can be exactly the clarity that helps Cambodian team members understand what matters and why.

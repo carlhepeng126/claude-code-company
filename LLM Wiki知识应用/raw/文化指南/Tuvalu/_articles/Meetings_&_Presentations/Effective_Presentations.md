@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+In Tuvalu, presentations succeed when they feel like conversations rather than performances. The cultural emphasis on collective decision-making and relational trust means your audience will be watching for signs of respect and collaboration, not just technical competence. A polished slide deck means little if the tone feels transactional or if you haven't taken time to build rapport beforehand. Start by acknowledging relationships in the room and showing genuine interest in what matters to the group, not just what you want to achieve.
+
+Pacing should allow for reflection and dialogue. Tuvaluans often process ideas collectively, and silence may indicate thoughtful consideration rather than disengagement. If you rush through points or fill every pause with talk, you risk cutting off the kind of quiet exchange that helps people arrive at shared understanding. Leave room for questions and comments, even if they emerge slowly or indirectly. A colleague from a culture where quick responses signal engagement might interpret this slower rhythm as lack of interest, while a Tuvaluan presenter might find rapid-fire questioning intrusive or impatient.
+
+Decision-makers may not be the most vocal people in the room. In a hierarchical and consensus-oriented setting, someone asking detailed questions may be gathering input to share with elders or senior figures later. Treat every attendee as influential, and expect that the real conversation may continue after the formal presentation ends. These follow-up exchanges are where clarifications happen and where trust deepens, so remain accessible and unhurried in your responses.

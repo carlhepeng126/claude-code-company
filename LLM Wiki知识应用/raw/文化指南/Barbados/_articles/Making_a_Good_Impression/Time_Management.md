@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Barbadian time management reflects a culture where social cohesion and relational trust shape professional rhythm. Punctuality in formal settings is expected and understood as a professional standard, particularly in sectors tied to international business, tourism, or finance. Meetings in these contexts typically begin on time, and deadlines are treated seriously. Yet in less formal environments, such as small local businesses or community gatherings, flexibility persists. People may arrive a few minutes late without tension, and conversations often precede the formal agenda. This is relational courtesy, a way of acknowledging the person before the task.
+
+The flexibility does not mean disregard. Barbadians distinguish between what requires strict adherence and what allows space for adjustment. In sectors where reputation and global credibility are at stake, punctuality is non-negotiable. In family-run enterprises or among long-standing colleagues, time may bend slightly to accommodate personal circumstances or the need for rapport. A colleague from a culture where efficiency is measured strictly by clock time may read this as inefficiency. A Barbadian colleague, in return, may view rigid adherence to schedule without social acknowledgment as impersonal or unnecessarily transactional.
+
+Understanding this distinction allows for clearer collaboration. Confirm expectations early, particularly around deadlines and meeting start times. If working in a more informal setting, allow for social exchange before formal business begins. Time in Barbados is relational, but it is also professional where context demands it.

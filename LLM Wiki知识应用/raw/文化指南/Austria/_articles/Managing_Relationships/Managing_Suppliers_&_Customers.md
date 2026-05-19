@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Austrian supplier and customer relationships are built on formality, reliability, and the expectation that what is agreed will be delivered. Trust develops slowly and is earned through consistent performance rather than persuasive pitches or personal warmth. A company's longevity is taken as a serious indicator of stability. The founding date on a business card is read as evidence that the company has delivered reliably over time and will continue to do so. For a new supplier entering the market, demonstrating a track record becomes the most convincing form of credibility.
+
+Written contracts form the foundation of any commercial relationship. What appears in the agreement is what is binding, and verbal modifications hold little value. Documentation is understood as the structure that protects both parties, and any discrepancy between what was discussed and what is written will undermine confidence quickly. If contract terms need to change, the change must be formalised in writing. A colleague from a business culture where flexibility and verbal reassurances are routine may find this level of formality rigid, while an Austrian counterpart may view informal adjustments as evidence of unreliability or lack of professionalism.
+
+Loyalty to suppliers is strong when performance is consistent. Austrian customers and suppliers expect transparency and will respond negatively if they sense information is being withheld. Openness builds the kind of trust that sustains relationships even when individual contacts change. Relationships exist between organizations, and if a key person leaves, a smooth handover and continued delivery will keep the partnership intact. Business relationships are professional rather than personal, but courtesy and correctness remain essential throughout.

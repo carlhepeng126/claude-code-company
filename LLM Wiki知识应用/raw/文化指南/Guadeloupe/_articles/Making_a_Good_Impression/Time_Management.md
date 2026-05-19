@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time management in Guadeloupe reflects a deeply social orientation where relationships and situational context regularly take priority over rigid schedules. Rooted in Caribbean rhythms and a layered colonial history, time here is flexible but purposeful, shaped by human connection rather than the clock. Meetings may begin later than planned because building rapport precedes agenda-setting, and the exchange of news or personal updates establishes trust before turning to business. What a colleague from a culture where punctuality signals professionalism might read as disorganization is understood locally as relationship-building that makes collaboration smoother over time. From the other direction, a Guadeloupean professional working with someone who moves immediately to agenda items without social preamble might perceive that approach as transactional or dismissive.
+
+This flexibility has clear limits, particularly in contexts tied to external expectations. In tourism, international trade, or multinational firms, schedules align more closely with client-driven timelines, and punctuality becomes a matter of professional credibility. In public administration or smaller locally owned enterprises, however, time remains more elastic. Decisions may take longer not because they lack urgency, but because consensus and relational considerations shape the process.
+
+If you are scheduling a meeting, confirm timing closer to the date and allow buffer room in your own planning. Open the conversation with genuine social exchange rather than launching straight into content. Understand that when time stretches, it often serves the relationship, not simply the immediate task.

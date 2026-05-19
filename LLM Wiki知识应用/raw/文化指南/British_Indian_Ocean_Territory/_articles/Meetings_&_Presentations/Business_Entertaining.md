@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in the British Indian Ocean Territory is practically non-existent in the conventional sense. The territory consists of the Chagos Archipelago, which has no permanent civilian population and no local business community. Diego Garcia, the largest island, hosts a joint UK-US military facility with a transient population of military personnel and contractors. The infrastructure is limited to operational and logistical support, with no restaurants, hotels, or venues designed for business hospitality.
+
+Any professional engagement here takes place within the confines of the military base, where dining facilities and recreational spaces are shared and regulated by military protocol. Meals are typically eaten in communal mess halls, and social time occurs in controlled environments such as lounges or outdoor recreation areas. Entertaining in this context means informal social time between shifts or after working hours, rather than a meal arranged to build client relationships or close deals. The environment is functional, and socializing follows base rules, including restrictions on alcohol in certain areas and times.
+
+For anyone working temporarily on Diego Garcia as a contractor or in a liaison role, relationship-building happens through consistent daily interaction rather than formal dinners. Shared experience in a remote, highly structured setting tends to build rapport naturally. Reciprocal gestures, such as offering to cover a round of drinks in the permitted social areas or organizing a small gathering during downtime, are appreciated but necessarily modest in scope.

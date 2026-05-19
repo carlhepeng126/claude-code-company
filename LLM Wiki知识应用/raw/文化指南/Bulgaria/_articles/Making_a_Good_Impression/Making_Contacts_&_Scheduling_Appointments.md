@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Bulgaria, a warm introduction opens doors far more reliably than a polished cold email. People instinctively trust "nashi" — our people — first: former classmates, neighbours, army colleagues, someone's cousin. New contacts are often quietly checked through this web before being taken seriously. This reflex reflects a history of navigating systems where formal channels were unreliable and informal networks were how things actually got done. The question beneath the surface is often "Who sent you?" rather than "What do you offer?" If you arrive through a mutual friend, an ex-colleague, or even a weak tie like a shared university abroad, that counts. Even a distant connection establishes you as someone worth knowing rather than just another stranger making promises.
+
+Initial meetings often happen over coffee, either in the office or at a nearby café. The conversation may wander through politics, rising prices, and "how things really are." This talk is as much about testing your character and realism as about your proposal. Bulgarians have lived through scams, broken promises, and political theatre, so they listen for signs that you understand their context and aren't naïve. A colleague from a culture where first meetings focus tightly on the business case may find this indirect, while Bulgarians may read a purely transactional approach as rushed or shallow. Showing that you grasp their reality builds credibility faster than any slide deck.
+
+After a good first coffee, follow up promptly but without pressure. Bulgarians test whether you're reliable, not just charming. Meetings may be scheduled at the last minute or cancelled without much notice, reflecting a context where plans often shift. Build time around your appointments rather than stacking them tightly, and treat the first encounter as the beginning of a relationship, not the conclusion of a pitch.

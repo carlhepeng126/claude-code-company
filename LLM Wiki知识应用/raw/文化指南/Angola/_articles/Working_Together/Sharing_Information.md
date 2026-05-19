@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Angola's decades of war and authoritarian governance built habits around information that persist in workplaces today. Knowing the wrong thing, being on the wrong list, or putting the wrong detail in writing once carried real risk. Caution around sharing is a rational inheritance, and it shows up most clearly when colleagues are asked to commit information to paper or pass data to people they do not yet know. When you ask for written detail, explain not just why you need it but how it will be protected. Demonstrating secure handling through examples, rather than reciting policy, helps colleagues assess whether sharing is safe.
+
+Angola's public sector operates through fragmented systems. Ministries, provinces, and state-owned enterprises often keep parallel data sets and reporting lines, sometimes incompatible, sometimes shaped by competing political interests. A national figure rarely tells the full story. Ask provincial and municipal partners how those numbers look on the ground, and expect variation. Colleagues may not fully trust statistics from other departments or levels of government, so treat centralized data as a starting point rather than a settled fact.
+
+Meanwhile, *radio boca* (the mouth radio) often spreads news faster than any official channel. Rumors about appointments, investigations, or conflicts move through social and professional networks long before formal announcements. Listen to *radio boca* through trusted partners to understand the narratives forming around your project, but do not base critical decisions on rumor alone. Building shared documentation practices that feel low-risk, using joint logs and neutral language, gives colleagues a safe alternative to purely oral channels and makes information more reliable over time.

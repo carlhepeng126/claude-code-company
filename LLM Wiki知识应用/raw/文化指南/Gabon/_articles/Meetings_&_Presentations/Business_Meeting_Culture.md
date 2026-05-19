@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Gabon reflect the country's French colonial legacy and its relationship-centered professional culture. Formality is expected at the outset, particularly in first encounters. Titles matter, and it is standard to address senior colleagues using their professional designation or Monsieur and Madame. This formality is not simply etiquette; it acknowledges the hierarchy that structures decision-making in most Gabonese organizations. Authority rests at the top, and senior figures are expected to be present if real progress is to be made. If you are scheduling a meeting, ensure that invitations reach the appropriate level, as junior staff may not have the mandate to commit.
+
+The meeting itself will often open with personal conversation. Gabonese professionals use this time to assess character and establish rapport before turning to business. Rushing this phase or launching directly into the agenda can signal impatience and undermine trust. Once the discussion begins, expect a more measured pace. Decisions are rarely made on the spot, particularly when they involve authority figures who prefer to consult privately or review internally before committing. A colleague accustomed to making decisions quickly in the room may read this as evasiveness, while Gabonese participants may view immediate commitments as reckless or insufficiently considered.
+
+Language is another practical consideration. French is the language of business and government, and meetings are conducted in French unless otherwise agreed. If you require interpretation or wish to share materials in advance, communicate this clearly when scheduling. Silence during a meeting is not uncommon and should not be filled unnecessarily. It often signals reflection rather than disengagement, and interrupting it can be seen as disrespectful.

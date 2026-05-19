@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Jersey's business community is compact and tightly connected. The island has a population of around 100,000, and most people working in finance, legal services, or public administration will know each other, or know someone who does. This means introductions happen quickly, often through a mutual contact, and reputation travels fast. A warm referral from a trusted colleague opens doors more readily than a cold approach, because it brings immediate context and credibility to the conversation.
+
+Scheduling is straightforward. Email is the usual route, and appointments are typically made a week or two in advance. Meetings start on time, and people expect agendas to be followed. There's little appetite for long preambles or extended small talk before getting to the substance of the discussion. This reflects both the island's professional culture, where efficiency is valued, and the practical reality of a small market where people's time is visible and accounted for.
+
+That efficiency can feel abrupt to colleagues from cultures where relationship-building happens more gradually or where meetings begin with extended personal conversation. A Jersey professional may move straight to the agenda, seeing that as respectful of everyone's schedule. Someone expecting a slower warm-up might read this as coolness or disinterest. From the Jersey side, prolonged introductory chat before discussing business can seem unnecessary or even evasive. Naming the purpose of the meeting early and clearly, while staying courteous, helps both sides stay aligned.

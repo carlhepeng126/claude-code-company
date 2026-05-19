@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Chad, time tends to follow relational and situational logic rather than strict adherence to the clock. This approach reflects social structures where personal relationships, family obligations, and community status shape daily rhythms more than formal schedules. A meeting may start late because a senior colleague stopped to greet an elder, or because an unexpected family matter required attention. These are not excuses but accepted realities. Time bends for people and context, particularly when hierarchy or kinship is involved.
+
+The flexibility around timing differs across settings. In international organizations, oil sector offices, or NGOs with foreign partners, punctuality is often expected and largely observed. Deadlines and scheduled meeting times hold more firmly when external accountability is clear. In government ministries, smaller local businesses, or family-run enterprises, schedules tend to be more fluid. Decisions may wait on the availability of a key person, or on social courtesies that cannot be rushed without giving offense.
+
+A colleague from a culture where meetings start on time may read a delayed start as disorganization or lack of professionalism. From the Chadian side, rigidly insisting on punctuality without acknowledging the person or situation can seem transactional and dismissive of relationship. If you are coordinating across this divide, confirm timing in advance, build in buffer time, and recognize that what looks like delay may reflect priorities you have not yet seen. Time in Chad is rarely wasted, but it is often shared.

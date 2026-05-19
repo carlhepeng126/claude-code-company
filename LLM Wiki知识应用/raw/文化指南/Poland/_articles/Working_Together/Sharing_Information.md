@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Decades of doublespeak during the PRL era left many Poles with a finely tuned radar for inflated or vague language. When official messaging could not be taken at face value, people learned to listen for what was actually being said. That habit persists in the workplace today. Clarity and specificity are often read as markers of honesty, while abstract or overly polished communication can raise quiet doubt. If you are preparing a status update or project proposal, ground your language in concrete facts, explicit next steps, and verifiable detail. A colleague who has absorbed this historical sensitivity will place more trust in accurate recaps and consistent messaging than in reassuring generalities.
+
+The formal Pan/Pani address system encodes social distance structurally, and that formality shapes early information exchange. Until a relationship category shifts, people may share carefully, staying precise but selective. This is compounded by a strong boundary between public and private spheres, a pattern reinforced by historical anxieties around surveillance. Many Poles will open up candidly once trust is established, but early on they may hold back personal or sensitive detail. Pressing for disclosure too soon can backfire. Let relationship depth emerge through time and consistency rather than trying to accelerate it through warmth alone.
+
+Poland contains distinct regional identities, some with their own protected languages and cultural micro-worlds. While these differences are rarely foregrounded in business settings, they quietly shape how people interpret tone, belonging, and openness. If you are working across regions or with diverse teams, avoid assuming a single Polish norm and keep language inclusive.

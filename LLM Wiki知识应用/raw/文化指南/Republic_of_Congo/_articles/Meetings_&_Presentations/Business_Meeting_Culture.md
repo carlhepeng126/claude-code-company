@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in the Republic of Congo begin with relationship maintenance, and this opening exchange is rarely brief. Health, family, and personal news are discussed before any agenda items, and pushing past this phase to get to business misreads its function entirely. The conversation re-establishes the human connection that makes collaboration possible. In Kongo cosmology, community includes both the living and the dead, and decisions of real significance are made with a sense of wider accountability — to family, to lineage, sometimes to ancestors. This means a single meeting rarely carries enough weight for a firm commitment, no matter how positive the tone. Expecting a yes or no at the end of a first session is unrealistic.
+
+Decisions also move through long approval chains, a legacy of the Marxist-Leninist era when top-down structures became embedded in institutional life. A productive conversation with a mid-level contact is genuine progress, but it is rarely the end of the process. The person you are meeting with may be building internal support or waiting for senior sign-off, and this can take time. If a colleague from a culture where decisions are made quickly interprets this as stalling, they risk withdrawing too early. From a Congolese perspective, a foreign partner who expects immediate answers may seem unaware of how organizations actually function or unwilling to invest in the relationship that underpins any agreement.
+
+Allow space between meetings. Each one builds on the last, deepening trust and clarifying intentions. Scheduling back-to-back sessions or pressing for faster closure is counterproductive and may be read as impatience or disrespect for the process.

@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Access in Greece often begins with someone who can vouch for you. The term *mesa* (literally "inside") describes this relational bridge: someone who can quietly confirm you're worth meeting. That person might be an old university contact, a party connection, a family member in the same sector, or a friend from a shared region. Without that introduction, your formal request joins every other cold approach. This rooting in established trust reflects a culture where uncertainty around institutions and unfamiliar outsiders has long made personal guarantees the most reliable form of credibility. When scheduling, ask "who knows whom?" as carefully as you draft the pitch itself.
+
+The real vetting often takes place in cafés and traditional *kafeneia* (neighbourhood coffee houses), not the boardroom. Over small coffees and informal conversation, people assess character and quietly check reputations. These settings feel social, but they're where trust gets built or ruled out. A calendar invite might follow, but the decision to take you seriously has usually already happened over coffee. Treat these meetings as business development, and recognize you're being evaluated on who you are, not just what you're proposing.
+
+When you hear "come by the office and we'll talk," it can mean genuine interest or a polite way to delay commitment. Whether it turns into a real appointment depends largely on your *mesa* and what people have heard about you. Follow up, but check with a local ally what the invitation actually means and whether the relational groundwork is in place. Book meetings two weeks ahead and reconfirm closer to the date, leaving room in your schedule for late starts, interruptions, and unexpected guests.

@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+First contact in Zambia is smoother when it builds on an introduction. Zambia's nation-building history put unity across many ethnolinguistic communities at the centre of public life, which means people value cohesion and ease in early professional encounters. Cold outreach can work, but it helps to show who knows you or what connects you to the context. Church networks, mutual colleagues, or shared community ties often serve as real social infrastructure, opening doors more readily than formal credentials alone. In practice, this means asking for an introduction rather than sending unsolicited emails will usually get you further.
+
+When you reach out, lead with warmth and context before pushing straight to logistics. A respectful tone and a sentence or two about why you're reaching out or who suggested the connection gives the person room to place you socially. In urban centres shaped by the Copperbelt's mining history, you may find a practical, relationship-forward openness that feels easier than you expect, but the preference for relational grounding before business still holds.
+
+Scheduling requires flexibility. Many people live between urban work and obligations in a home area, and plans can shift when a funeral or family duty arises. Bereavement mobilizes wide networks and is treated as a non-negotiable moral obligation, so expect last-minute changes and treat them as legitimate. Confirm appointments a day or two ahead, offer clear options for time and format, and build in buffers. Avoid back-to-back bookings. Meetings may start late or run longer than planned, and generosity with time is common once the relationship feels established.

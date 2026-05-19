@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+In Burkina Faso, decisions typically move through layers of consultation before they reach a conclusion. This is grounded in social structures that value collective input and the wisdom of those with seniority or lived experience. A manager may not finalize a decision alone, even when they hold formal authority. Instead, they draw on trusted colleagues, elders within the organization, or those with relevant experience to inform the choice. This approach reduces the risk of decisions that conflict with group harmony or overlook important social realities. If you present a proposal expecting quick approval, allow time for this consultation to unfold and avoid pressing for an immediate answer.
+
+The person holding formal authority still makes the final call, but the path to that decision is often relational rather than procedural. Input may be gathered informally, in one-on-one conversations or through trusted intermediaries, rather than through structured meetings with open debate. This means the real conversation may happen outside the room where the decision is formally announced. If you are seeking influence, focus on building trust with those whose views are sought, not just with the final decision-maker.
+
+Decisions may also shift as new information emerges or as circumstances change. What appears final may be adapted if family obligations, social ties, or unforeseen events require it. This flexibility reflects a practical responsiveness to the realities people live with, not a lack of commitment. For colleagues from cultures where a decision is expected to remain fixed once made, this can feel like inconsistency. From a Burkinabè perspective, however, a decision that cannot bend when life demands it may be seen as rigid or disconnected from the real conditions people face.

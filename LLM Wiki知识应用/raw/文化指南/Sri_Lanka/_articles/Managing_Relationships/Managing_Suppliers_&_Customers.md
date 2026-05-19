@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Trust in Sri Lankan supplier and customer relationships grows through repeated proof, not paperwork alone. Reliability is read through follow-through: confirming details, closing loops, and responding when you said you would. Economic instability over recent years has made people wary of overpromising. If you commit to a timeline and then disappear when conditions shift, trust drops quickly. Offer conservative deadlines and clear alternatives from the start, especially when supply conditions are uncertain. This approach builds credibility more effectively than optimistic assurances that later fall apart.
+
+Hospitality functions as a service language. Tea, warmth, and attentiveness demonstrate care and professionalism. When something goes wrong, how you handle the complaint reveals more than the mistake itself. Preserve the customer's dignity by staying calm, avoiding blame, and quietly offering a solution. A colleague from a culture where direct acknowledgment of fault is expected may read this indirectness as evasiveness. A Sri Lankan supplier may read a blunt "this is your error" as needlessly damaging to the relationship when the focus could be on resolving the issue together.
+
+Expectations vary by region. Colombo commercial life often moves quickly and can feel cosmopolitan in tone. Provincial towns may be more reputation-driven, where personal networks and word-of-mouth shape business dealings. Post-war and estate regions carry different sensitivities and practical constraints. Asking what works locally, rather than assuming one customer style applies everywhere, helps you navigate these differences without missteps.

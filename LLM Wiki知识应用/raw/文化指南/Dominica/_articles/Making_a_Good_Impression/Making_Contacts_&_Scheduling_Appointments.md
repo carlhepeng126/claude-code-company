@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Dominica, business relationships begin through personal connection. The island's small population and strong community ties mean that trust is built face to face, often through mutual acquaintances. A direct approach can work, but an introduction from someone already known speeds things along considerably. If a colleague or friend can vouch for you, that reference opens doors more readily than a cold email or phone call. People want to understand who you are and what you represent before committing to a working relationship, and this happens most naturally through conversation rather than correspondence.
+
+Scheduling appointments benefits from advance notice, though timing tends to be more relaxed than in cultures where calendars are tightly managed. Confirm a meeting a few days beforehand, and expect some flexibility around start times. Discussions may extend beyond the scheduled slot, and interruptions are common. A colleague from a culture where meetings begin and end punctually may find this unsettling, while Dominicans working abroad sometimes feel rushed when conversations are cut short to keep to a timetable. Building in buffer time between appointments shows respect for the rhythm of local business life.
+
+Younger professionals, particularly those in tourism or international sectors, may be comfortable with quicker exchanges and digital communication. In more traditional settings or rural areas, the preference for personal introduction and slower relationship-building remains strong. Flexibility in how you make contact, and a willingness to invest time in early conversations, will make collaboration smoother as the relationship develops.

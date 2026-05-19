@@ -1,0 +1,11 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Kenya's approach to commercial relationships draws from centuries of trade traditions, particularly along the coast where Indian Ocean commerce created norms of negotiation, reciprocity, and relationship-based exchange. Trust still emerges through personal connection, reputation, and credible introductions, echoing older systems built on clan networks and community standing. This means a supplier or customer relationship begins with investing in the person, not just the transaction. Face-to-face meetings, shared tea, and conversation about family or challenges establish the foundation that makes business possible. A contract signed without this groundwork may not translate into reliable follow-through.
+
+Hospitality strengthens these ties in concrete ways. Offering refreshments, showing warmth, and taking time to greet properly all communicate respect and seriousness of intent. Declining these gestures or rushing through them can signal disinterest in the relationship itself. For a colleague from a culture where efficiency is demonstrated through brevity, this investment in hospitality may feel unnecessary. From a Kenyan perspective, a counterpart who skips greetings or declines tea may appear dismissive or transactional, undermining the trust needed for long-term collaboration.
+
+Regional backgrounds shape how these dynamics unfold. Coastal partners may bring strong negotiation skills and Islamic etiquette norms, while highland or pastoralist communities may emphasize different forms of reciprocity and honor. Understanding these variations allows you to tailor your approach without assuming a single national style.
+
+Regular in-person visits help maintain alignment on timelines and quality standards. Email alone rarely sustains the relationship or ensures follow-through. Sitting down to understand a supplier's constraints and discussing how you can support them builds the mutual investment that keeps commitments on track.

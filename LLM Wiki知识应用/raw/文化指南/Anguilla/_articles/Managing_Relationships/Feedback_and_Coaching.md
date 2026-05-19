@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Anguillans value feedback that protects dignity and preserves relationship. Criticism delivered bluntly, even if framed as constructive, can feel like a public slight. A manager who calls out a mistake in front of others risks damaging trust in a way that formal apologies won't easily repair. The close-knit nature of Anguillian society means that how something is said can become as widely known as what was said, and reputations are guarded carefully. Feedback that honors the person first stands a better chance of being heard and acted on.
+
+In practice, this means coaching happens privately and often indirectly. A manager might ask a reflective question or share a related experience rather than naming the problem outright. Framing feedback as a shared observation, or offering it as advice rather than correction, gives the recipient room to absorb the message without losing face. Where a colleague from a more direct feedback culture might expect a clear summary of what went wrong and what should change, an Anguillian manager may expect the person to read between the lines. From the other direction, an Anguillian professional receiving very direct feedback from an outsider may hear it as harsher than intended and feel the relationship has been compromised.
+
+Praise, by contrast, is welcome and often given openly. Public recognition reinforces team spirit and motivates without singling anyone out uncomfortably. Acknowledge effort and contribution in ways that strengthen connection, and save corrective conversations for quiet, one-on-one settings where respect can be maintained.

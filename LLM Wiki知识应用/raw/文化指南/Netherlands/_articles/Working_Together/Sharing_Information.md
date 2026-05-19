@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information flows openly in Dutch workplaces, rooted in a deep cultural commitment to transparency and equality. The assumption is that withholding information creates inefficiency and undermines the flat, consensus-driven approach to decision-making that most Dutch organizations depend on. People expect to be kept informed regardless of where they sit in the hierarchy, and leaders who hold back details or communicate selectively risk being seen as autocratic or untrustworthy. Newsletters, shared files, and open access to documentation are standard. This openness extends upward as well: giving honest feedback to a manager, including criticism, is considered normal and constructive rather than insubordinate.
+
+Colleagues from cultures where information is shared selectively or where hierarchy determines access may find this level of transparency disorienting, or interpret it as a lack of boundaries. A Dutch counterpart, meanwhile, may read selective disclosure as dishonesty or time-wasting, especially in negotiations. The preference is for clarity and directness from the outset. Revealing information in stages to gain advantage will likely backfire. Strong reasoning and well-supported argument are more effective than strategic withholding.
+
+Clarity and conciseness are equally valued. Ambiguity is unwelcome, and written communication should be accurate and to the point. Silence in meetings or reluctance to voice concerns stands out as unusual. If you disagree or lack information, say so. The expectation is that everyone contributes to keeping the process transparent, which in turn allows decisions to move forward on solid ground.

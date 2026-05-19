@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Building business contacts in Benin begins with relationships, not transactions. The legacy of close-knit community structures means that trust must be established before business discussions can meaningfully begin. People want to understand who you are, who you know, and whether you're likely to follow through. A mutual contact who can vouch for you opens doors far more quickly than a cold email or formal letter. In practice, this might mean asking a colleague to arrange an informal introduction, or being invited to meet over lunch before any business agenda is mentioned. These early conversations help assess reliability and build the personal rapport that underpins professional commitment.
+
+Appointments should be scheduled well in advance, ideally two to three weeks ahead, and confirmed again a day or two before the meeting. Timing can shift, so avoid scheduling appointments back to back. Meetings may start late, extend beyond their planned duration, or include additional participants who arrive without prior notice. These adjustments reflect the value placed on flexibility and relationship over rigid scheduling. A colleague from a culture where punctuality is strictly observed might read this as disorganization, while a Beninese counterpart may view insistence on exact timing as overly transactional and impersonal.
+
+Generational and geographic differences also shape how contacts are made. Younger professionals in Cotonou, especially those working in international firms, may be comfortable with digital communication and quicker transitions to business topics. In smaller towns and rural areas, introductions still tend to come through trusted intermediaries, and the relationship-building phase takes longer before formal discussions begin.

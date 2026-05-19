@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Mozambique often gain legitimacy when they visibly protect people and preserve stability. This reflects a modern state history shaped by independence, socialist restructuring, and a civil war concluded by the 1992 peace agreement. A good decision is often one that safeguards continuity and avoids disruption, particularly when past instability remains part of living memory. Senior leaders hold ultimate authority, but the route to a final decision typically involves consultation across the group. Middle managers may prefer to shelter within collective agreement rather than take individual responsibility, especially if the outcome is uncertain. This approach reflects both low tolerance for personal risk and the cultural value placed on group cohesion.
+
+Family and kin obligations operate as real governance units and can shape whether a decision is feasible in practice. Choices are rarely fully individual. They are often distributed across household and extended family networks, where resource-sharing and social responsibility influence follow-through. In northern regions where matrilineal systems prevail, authority over land and belonging may rest with maternal kin lines. This changes who holds durable claims and whose consent is required. A colleague assuming patrilineal structures may engage the wrong people or misread where decision-making power actually sits.
+
+In insurgency-affected areas, repeated displacement can compress planning horizons. Decisions may prioritize immediate safety and continuity over long-range goals, a response grounded in lived insecurity rather than lack of ambition. Recognizing this means adjusting timelines and understanding that shorter planning windows can reflect rational adaptation to context. If you push for rapid closure or skip consultation, you risk undermining the social legitimacy a decision needs to hold.

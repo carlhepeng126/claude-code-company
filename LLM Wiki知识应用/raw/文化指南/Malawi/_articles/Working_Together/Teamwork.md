@@ -1,0 +1,11 @@
+# Teamwork
+
+## Working Together
+
+In Malawi, teamwork rests on *umunthu*, a Chichewa concept that frames personhood as fundamentally relational. You become fully human through how you uphold others' dignity and contribute to the group's cohesion. This is less philosophy than everyday expectation. Team members are assessed by how they protect collective harmony and share responsibility, not only by what they deliver individually. Colleagues who claim solo credit or push individual agendas can find themselves quietly sidelined, while those who visibly honour the group's unity often gain influence regardless of formal rank.
+
+Kinship and community networks shape who holds a team together. In Chewa matrilineal traditions, for example, authority and obligation often flow through maternal uncles, reflecting broader patterns where kin networks function as practical infrastructure for mutual support. Within workplace teams, this means informal leaders may emerge based on community legitimacy or family standing as much as job title. A colleague from a culture where decisions follow the organizational chart may struggle to map the actual pathways of influence, while a Malawian counterpart in a more transactional setting might wonder why relationships are treated as separate from work.
+
+Trust is built through participation over time, not instant inclusion. This mirrors traditions like Gule Wamkulu, the Chewa initiation-based fraternity that offers solidarity and belonging earned through sustained involvement. In teams, expect a careful period of observation before full contribution or candid feedback. Rushing this process to meet project deadlines can feel dismissive of the relational foundation that makes real collaboration possible.
+
+Urban workplaces, especially in Lilongwe where most residents live in informal settlements, carry habits of neighbour reliance and improvised problem-solving. Teams often coordinate around practical constraints, so flexible scheduling and realistic logistics strengthen cohesion more than rigid timelines.

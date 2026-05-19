@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+The Cocos (Keeling) Islands have no distinct local leadership tradition documented in professional settings. As an external territory of Australia with a small population split between West Island and Home Island, formal leadership in government services, education, and infrastructure projects typically follows Australian public sector norms. Managers and administrators are often brought in from mainland Australia or work remotely, and decision-making structures reflect Australian frameworks around accountability, process, and consultation.
+
+On Home Island, where the Cocos Malay community is concentrated, informal leadership has historically centered on respected elders and religious figures within the mosque. These leaders guide community matters through consensus-building and careful attention to social cohesion. This influence rarely extends into formal workplaces, but it shapes expectations around respect, inclusion, and the importance of maintaining harmony when decisions affect the group.
+
+In the few small businesses and cooperatives on the islands, leadership tends to be practical and relational. Decisions are made quickly when needed, but input is sought from those directly affected, especially when the decision touches on shared resources or community reputation. A manager from a highly hierarchical culture may find this informality disorienting, while someone from a flat, individualistic environment may underestimate how much weight is placed on group cohesion and elder perspectives, even when those voices are not formally represented in the room.

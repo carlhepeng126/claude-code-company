@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Tokelau's business etiquette reflects its foundation in communal values and the overarching structure of the *inati* system, where resources and roles are shared through collective consensus. Professional interactions are shaped less by corporate formality and more by extended kinship ties and village-level decision-making. Hierarchy exists, but it functions through respect for elders and community leaders rather than through rigid organizational charts. When meeting someone for the first time, acknowledge their connection to family and village. These affiliations explain how people relate to one another and where authority genuinely sits.
+
+Communication tends to be indirect and consensus-focused, especially in group settings. Open disagreement is unusual, and decisions emerge through quiet consultation rather than confrontation. If a colleague seems noncommittal or defers to others before responding, this reflects the cultural expectation that agreements be reached collectively, without isolating or embarrassing anyone. A manager from a culture where decisions are made quickly and individually may read this as hesitation or lack of initiative, while a Tokelauan counterpart may view rapid, solo decision-making as disrespectful to the group. Allow time for consultation and follow-up rather than expecting immediate answers in meetings.
+
+Dress is generally informal, and gestures of hospitality, such as sharing food, hold more significance than formal礼protocols around titles or business cards. Building trust happens through demonstrated respect for community, not through credentials alone.

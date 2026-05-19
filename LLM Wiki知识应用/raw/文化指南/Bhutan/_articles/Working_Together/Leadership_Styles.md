@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Bhutan is grounded in deeply Buddhist values where authority is seen as a form of service and guidance rather than command. The concept of *chhoe-sid* (dharma and law), which underpins Bhutanese governance, extends into organizational life. Leaders are expected to act with compassion, patience, and mindfulness, modeling the principles they expect others to follow. This means decisions often involve extended consultation and reflection, not to delay but to ensure alignment with collective wellbeing and the relationships within the team. A manager who moves quickly without this process may be seen as lacking wisdom or concern for the group.
+
+Hierarchy is respected but expressed gently. Senior leaders maintain authority through quiet influence and moral example rather than direct assertion. Instructions are often framed as suggestions or requests, and disagreement is rarely voiced openly in the moment. Instead, concerns may surface later through trusted intermediaries or in private conversations. For a colleague from a culture where feedback is immediate and direct, this can feel opaque. From a Bhutanese perspective, the same colleague's directness may seem unnecessarily confrontational or disrespectful of the relational care that holds the team together.
+
+Younger professionals and those in private sector or NGO settings may adopt more participative styles, especially when working with international partners. Even here, the expectation remains that leaders will take ultimate responsibility and that consultation will be genuine, not performative. Trust builds slowly and is maintained through consistency, humility, and visible regard for others' dignity.

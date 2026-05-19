@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in the Central African Republic are shaped by relational priorities and a strong awareness of hierarchy. Building trust comes before discussing details, so early meetings often focus on personal exchange rather than immediate business outcomes. This reflects the value placed on knowing who you are working with. Colleagues from cultures where agendas are followed tightly from the start may find this opening period unfocused, while Central African professionals may view a rush to business as impersonal or premature. Allowing time for this relational groundwork shows respect and prepares the ground for any practical discussion that follows.
+
+Seniority plays a clear role in how meetings unfold. Senior figures are expected to attend, and decisions rest with them. Speaking out of turn or bypassing hierarchy can cause confusion or quietly undermine progress. If you need a decision, the right people must be in the room. Junior staff may attend but are less likely to speak unless invited. Recognizing this structure and directing key questions to senior participants will help keep the conversation productive.
+
+Pace can vary. Meetings may not follow a fixed timeline, and outcomes may not be reached in a single session. This reflects a preference for thorough consideration over speed. Pushing for immediate answers or imposing tight deadlines can feel disrespectful and may slow things down rather than accelerate them. Following up respectfully after a meeting, rather than expecting closure during it, is often more effective.

@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Reputation in Russia travels through people, and this shapes how commercial relationships are built and maintained. The concept of *blat*, historically a system of informal networks and mutual favours, has left a cultural imprint: trust is less about what you claim and more about who can vouch for you and whether you follow through. A warm introduction from a credible contact will often open more doors than a polished pitch. This means that suppliers and customers alike may judge your reliability by your consistency over time and by how you are spoken of within their circles. If you overpromise or change direction without early communication, the reputational cost can spread quickly beyond the immediate relationship.
+
+Shared meals and hospitality rituals like *zakuski* (a spread of appetisers and drinks served at the start of a gathering) play a substantive role in Russian business culture. These moments turn transactional exchanges into human ones. When a supplier or customer invites you to a meal, they are offering more than food. They are creating space for the relationship to deepen and demonstrating their regard for you. Responding with genuine attention, restraint, and respect for the effort involved strengthens trust. Treating these occasions as purely social or secondary risks misreading their function.
+
+Service culture and commercial expectations vary noticeably across regions. What counts as responsive or professional in Moscow or St. Petersburg may differ sharply from what customers in other cities expect. A supplier relationship that works smoothly in one region may need recalibration elsewhere. Asking local contacts what good service looks like in a given market, rather than applying a single national template, will give you more accurate insight and help you adjust your approach accordingly.

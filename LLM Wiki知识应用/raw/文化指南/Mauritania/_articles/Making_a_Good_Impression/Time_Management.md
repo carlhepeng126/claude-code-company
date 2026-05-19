@@ -1,0 +1,11 @@
+# Time Management
+
+## Making a Good Impression
+
+Timing in Mauritania has long been shaped by the desert, where water, heat, and route knowledge made schedules conditional. Movement across the interior was coordinated by feasibility, not fixed hours. That cultural realism persists today, where conditions and relationships often take precedence over the clock. Lateness is rarely seen as disrespectful if something more pressing came up, and many Mauritanians still interpret timing through context rather than strict adherence to appointment slots.
+
+Tea culture encodes this tempo structurally. *Atay* (traditional mint tea) is prepared in three rounds, each slowly brewed and shared. The ritual is unhurried by design, building trust through presence. Staying signals respect; rushing suggests the relationship is secondary. This sets a broader expectation that meaningful interaction has its own rhythm, which may not align with short, transactional meetings. If you schedule back-to-back sessions, you may find the first one expands into the second, especially if the conversation is relational or involves senior figures.
+
+Nouakchott brings faster institutional rhythms, but people often switch between formal office time and slower relational time depending on setting. Prayer breaks and the midday pause are still observed, and meetings may shift around them. In export-oriented sectors or government engagements tied to donor schedules, punctuality is expected more consistently, but even there, relationship-building time is rarely skipped entirely.
+
+When setting deadlines, confirm shared understanding of why the timeline is firm, and check in regularly. If a colleague from a culture where speed and efficiency are prioritized pushes for rapid turnaround, Mauritanian counterparts may see this as bypassing the trust-building that makes execution sustainable. Conversely, Mauritanians may read colleagues who resist relational time as transactional or untrustworthy, even when those colleagues see themselves as focused.

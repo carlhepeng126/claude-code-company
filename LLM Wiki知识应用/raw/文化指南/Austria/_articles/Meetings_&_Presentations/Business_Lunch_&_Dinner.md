@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Austrian cuisine represents identity, not just sustenance. Dishes like Wiener Schnitzel, Tafelspitz, and Kaiserschmarrn reflect a genuine source of cultural pride rooted in Central European tradition. Showing real interest in the food, whether asking about preparation or the regional origin of a wine, demonstrates cultural respect. The country's white wines, especially those from the Wachau and Burgenland, are another point of national pride worth knowing something about. A visitor who can recognize or comment on a Grüner Veltliner or Riesling from these regions opens a conversation, not just a bottle.
+
+The traditional Austrian Mittagessen (lunch) was historically the main meal of the day, a full, unhurried sit-down experience. While urban professional life has shifted this rhythm somewhat, the cultural ideal persists. Treating a business lunch or dinner as a working session misreads the purpose entirely. Food and conversation are the event itself. Business may arise naturally, but only after the meal has been given its due attention. Arriving with an agenda or rushing through courses to return to the office undermines the relationship the meal is meant to build.
+
+Table manners follow formal conventions. Wait to be seated, wait for the host to begin, and do not start eating until everyone has been served. These are noticed behaviours, and the same applies to how cutlery is held and how toasts are handled. A colleague from a culture where business lunches are brief and transactional may find the pace slow or the formality unnecessary. From the Austrian perspective, that haste suggests a lack of care, both for the food and for the people at the table.

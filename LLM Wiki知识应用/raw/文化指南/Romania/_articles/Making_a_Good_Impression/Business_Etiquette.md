@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Romanian professional culture asks for something particular: genuine courtesy anchored in respect for dignity. Warmth is real, but condescension or jokes that lean on stereotype land badly. People evaluate how seriously you take them, and the attentiveness you bring to the first meeting shapes whether the relationship opens up. Hospitality can be generous, but it runs alongside a private assessment of reliability. If you're offered coffee or a small gesture early on, receive it with grace. These moments are social cues, and how you respond becomes part of the relationship's foundation.
+
+Communication leans indirect. A colleague is more likely to soften a refusal or tell you what you want to hear than deliver unwelcome news bluntly. This reflects a shared preference for avoiding open confrontation and protecting dignity in the exchange. If you're working with someone from a culture where disagreement is aired quickly, you may read the silence as agreement when it's actually hesitation. Conversely, your Romanian counterpart may find directness jarring or dismissive. Listen for context and what isn't being said. When you need to correct or disagree, do it calmly and specifically, framing the issue rather than the person.
+
+Physical closeness is higher than in northern Europe. Expect closer conversational distance, steady eye contact, and gestures that accompany speech. Among colleagues who know each other, touching an arm or greeting with a hug is normal. Business card exchange is straightforward but courteous: read the card before putting it away, and if you have a Romanian reverse side printed, it registers as thoughtful preparation. Gift giving is understated. A small token from your country or high-quality alcohol when visiting someone's home is appropriate, but avoid extravagance or early gifts in formal settings, which may be misread.

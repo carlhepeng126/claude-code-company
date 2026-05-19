@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Trust in Iran flows through networks rather than cold outreach. Decades of sanctions, political scrutiny, and close-knit community structures mean that before someone commits to meeting you, they will often ask quietly: who exactly are you, and what risks come with you? A formal email from a stranger may sit unanswered while an introduction from a respected mutual contact, an old classmate, or a family connection opens the door immediately. The person who introduces you functions as a quiet guarantor of your credibility, easing concerns that might otherwise take weeks to resolve.
+
+Location shapes how contacts are made. In Tehran, professionals are accustomed to email exchanges, LinkedIn messages, and relatively fast-paced scheduling. In cities like Mashhad, Tabriz, or Kermanshah, personal referral and local reputation often matter more than organizational brand. If you are working outside the capital, invest time in understanding who holds influence locally and how they are connected to your counterpart. A name that means little in Tehran may open every door in Ahvaz.
+
+Scheduling requires awareness of Iran's ritual calendar. Ramadan, Muharram, Ashura, Safar, and Nowruz are not simply public holidays but periods when emotional focus, energy, and availability shift. Some weeks are marked by mourning or family gatherings that overshadow business entirely. Asking whether a proposed time works given the season shows you understand the rhythm of life here. Book meetings several weeks ahead and reconfirm once you arrive, but keep your own schedule loose. A colleague from a culture where meetings start and end on time may find the fluidity unsettling, while an Iranian counterpart may read rigid timekeeping as a lack of respect for the conversation unfolding in front of you.

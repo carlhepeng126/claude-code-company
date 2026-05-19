@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional dress in Hungary follows a Central European logic that favours understated quality over visible show. In Budapest's business districts, men typically wear shirts, jackets and smart trousers, while women choose office wear that is tidy and modest. This preference for solid, well-made clothing rather than flashy brands reflects an older cultural instinct where discretion was valued more than display. Very bold fashion, overtly expensive labels worn for attention, or casual styles that might pass in startup hubs elsewhere can feel out of step in conservative environments like banks, municipalities or state-owned companies. If your counterpart dresses formally, matching that level signals you understand the setting.
+
+Regional differences exist but centre on degree rather than principle. In smaller towns outside Budapest, the formality bar may be slightly lower, but neatness and being put-together still count. Arriving in a suit when your local counterpart wears smart trousers and a pressed shirt is safer than underdressing. Being slightly more formal than the room, especially when meeting someone for the first time, shows you take the relationship seriously.
+
+Hungary's climate swings between cold winters and very hot summers, and local professionals adjust their wardrobes accordingly. Coats and scarves layer over office wear in winter, lighter fabrics appear in summer, but the baseline expectation of tidy, composed appearance does not shift. Shivering in a thin jacket or sweating visibly because you overdressed for the heat distracts from the credibility you are trying to build. Plan for seasonal extremes so you can stay comfortable and focused on the work.

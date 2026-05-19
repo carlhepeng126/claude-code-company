@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Costa Ricans value presentations that show you have done your homework. Generic Latin America decks or recycled regional pitches read as lazy or disrespectful. Audiences expect concrete references to Costa Rican realities: cooperatives, ecotourism, the public health system, indigenous territories, or the country's commitment to environmental stewardship and peace. Touching on these themes aligns your message with national self-image and signals that you understand what the country stands for. Proposals that come across as purely extractive or disconnected from local context will struggle to gain traction, no matter how polished the slides.
+
+Clarity and evidence land better than bombast. Ticos appreciate specific examples, numbers, and local case studies over sweeping promises or motivational rhetoric. Heavy jargon or corporate buzzwords can be read as showing off or hiding a lack of substance, even in sectors like tech or tourism where English terms are common. Keep language simple and transparent so people from different backgrounds can follow comfortably. This builds credibility and invites engagement rather than suspicion.
+
+Expect interruptions, phone calls, or people stepping in and out. This reflects the relationship-oriented rhythm of professional life, not a lack of interest. Build in time for questions at the end. Costa Ricans value the chance to probe details and test your understanding, and the quality of your answers will shape how seriously your proposal is taken. Supporting materials should be in Spanish unless your local contact confirms otherwise, and any translation should use Costa Rican idiom, not generic Spanish from elsewhere.

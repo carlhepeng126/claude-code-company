@@ -1,0 +1,11 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+In Zambian professional life, sharing a meal can quietly shift a relationship from formal to trusted. Eating together communicates belonging and safety, not just courtesy. This means the tone of the table often stays relationship-friendly rather than transactional. Colleagues and clients may use the meal to confirm that you are someone they feel comfortable with, and early conversation tends to focus on family, weekend plans, or shared interests. Pushing business points too early, or treating the meal as an extension of a negotiation, can read as impatient and undermine the trust being built. If you need to discuss work, wait for your counterpart to raise it, or leave it until coffee.
+
+The food itself can reflect care and hospitality. When hosting, Zambians may offer familiar dishes like nshima served with relish such as ifisashi or fish, where the effort and thoughtfulness of the meal say as much as the choice itself. Receiving what is offered with genuine appreciation validates the host. If you are arranging the meal, choose venues that prioritize comfort over prestige, and ask quietly about dietary preferences or whether alcohol is appropriate. Not all colleagues will drink, and assumptions can create awkwardness.
+
+When senior colleagues or elders are present, the tone can shift toward respect and steadiness. Conversation becomes more measured, and debate is unlikely. A colleague from a culture where meals are used to test ideas or spar over strategy might find this restraint puzzling, while a Zambian counterpart at a more confrontational table abroad may see it as unnecessarily combative. Follow the lead of the most senior person present, and avoid forcing discussion if the mood stays light.
+
+Logistics also shape inclusion. In Lusaka, distance and transport realities mean that inviting someone to dinner outside central areas can require real time and planning. Be thoughtful about location and travel when extending invitations, especially if colleagues are coming from further out.

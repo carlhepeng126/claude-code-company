@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Open confrontation in Guatemala has historically been dangerous, and that memory shapes how disagreement unfolds at work today. Rather than raising voices or confronting someone directly, people often express discontent through withdrawal, delay, selective forgetting, or doing only what is strictly required. By the time a conflict becomes visible, the frustration underneath it may already be significant. If you manage a team, watch for shifts in engagement — someone who stops contributing in meetings, slows their output without explanation, or begins coordinating quietly with colleagues outside formal channels — rather than waiting for an argument to signal something is wrong.
+
+This preference for quiet resistance also means that formal workplace grievance processes are often bypassed. Many people turn instead to pastors, midwives known as comadronas, older relatives, or respected community figures for advice on whether to tolerate a situation, leave, or escalate. These figures hold real moral authority. In serious disputes, asking whether there is a mutually trusted elder or pastor who could help broker a conversation can open a resolution that a standard HR process would not. Supporting that role, while still enforcing fairness, shows respect for how trust actually works.
+
+Fear of retaliation is real in some sectors and regions. Speaking up against abuse, corruption, or powerful figures can bring consequences from local political bosses, organized groups, or abusive employers. Silence in those contexts is self-protection. If you want people to raise concerns internally, you need to state your position on non-retaliation clearly and demonstrate it with action. Without that assurance, staff will continue to manage conflict through their own safer, less visible channels.

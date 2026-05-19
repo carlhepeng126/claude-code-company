@@ -1,0 +1,11 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Swedish commercial relationships are shaped by decades of strong consumer protection and high institutional trust. Customers expect reliability, clear information, and no-hassle service as baseline conditions. Warranties work without question, returns happen without drama, and product claims are assumed to be accurate. As a supplier, you inherit this expectation of straightforwardness. Hiding limitations in fine print or promising more than you can deliver will erode credibility quickly and leave little room for recovery.
+
+Sustainability and labor standards are not optional extras in Sweden. Public procurements and major corporate contracts often include hard requirements on environmental impact, supply chain ethics, and sometimes indigenous rights. These criteria are baked into tender documents and weighted alongside price. Rhetorical commitments without evidence are treated as greenwashing. If you serve institutional buyers, be ready to document certifications, carbon footprints, and how you manage human rights across your own suppliers.
+
+Swedish customers tend to think in long timelines. Municipalities buying buses, individuals choosing a pension provider, or companies signing software contracts often plan years ahead. Dramatic price swings, unstable service quality, or shifting terms unsettle relationships. Complaints are not seen as failures but as chances to deepen trust. Respond quickly, own the mistake directly, and explain what will change. A partner from a culture where speed and flexibility define competitive advantage may find this level of transparency and consistency slow to build. A Swedish customer in turn may read frequent pivots or promotional urgency as instability rather than agility.
+
+Authority sits lower than many international suppliers expect. The person managing your relationship may not hold a senior title but often has full decision-making power. Objectivity matters more than rank or personal connection when choosing suppliers, so performance and pricing carry more weight than relationship history alone.

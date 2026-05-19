@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+In Mozambique, recognition that celebrates the team rather than the individual tends to generate stronger momentum. This reflects a cultural understanding of achievement as collective rather than solitary. The timbila ensemble, a celebrated musical tradition from the south, exemplifies this: mastery is visible through coordination, discipline, and the ability to carry heritage forward as a group. Pride comes from being part of something skilled and enduring, not from standing out alone. In the workplace, framing accomplishments as shared success and acknowledging how a team's effort moved something forward will resonate more than singling out one person's contribution.
+
+Regional identity can shape what feels meaningful. In northern contexts, where traditions like Mapiko hold strong symbolic and social value, recognition that connects to community roots or cultural heritage can deepen engagement. Similarly, belonging through moral communities such as churches or mosques provides meaning and visibility that extends beyond the office. Being known as a good community member holds real weight, so motivation can come from aligning work with those values and networks, not only professional achievement.
+
+Resilience framing resonates because adaptability under pressure is a culturally respected competence. Mozambique's history of civil war and recurring climate and security shocks has shaped a national realism about survival and problem-solving in uncertain conditions. Managers who frame challenges as opportunities to demonstrate flexibility and practical resourcefulness, rather than as tests of speed or individual performance, will draw on this cultural respect for endurance and collective coping.

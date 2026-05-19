@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hosting in South Korea reflects Confucian responsibility for a guest's comfort and emotional ease. A Korean host will plan details carefully, from venue and seating to transport guidance and dietary needs, because this preparation is how care is shown. Women should not pour drinks in traditional or formal settings, as this role is typically assigned to men. The host will greet guests at the door, offer food and drink immediately, and accompany them out at the end of the visit to say goodbye. For a colleague from a culture where hospitality is more self-directed, this level of attention might feel excessive. For a Korean host, stepping back would feel neglectful.
+
+Being a guest also involves performance. Arrive on time but not early, bring a small gift such as local sweets, quality tea, or a craft from your home country, and express thanks several times during and after the visit. Refuse additional food once or twice before accepting, so a host knows when you genuinely want more. Leave a little on your plate when you are finished. Avoid commenting too enthusiastically on objects in the home, as this may put pressure on the host to offer them as a gift. A home invitation in Seoul or other large cities is intimate and less frequent than meeting in a restaurant, so being invited into someone's home indicates a high level of trust.
+
+Rushing out immediately after the main purpose is complete can feel abrupt. Allow time for polite closure, especially where elders are present. Both roles are moral performances that reflect upbringing, respect, and relational reliability.

@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+In Japan, decisions move through layers of internal alignment before they are finalized, and this process is deliberate. *Nemawashi* (literally, digging around the roots before transplanting) allows people to raise concerns, shape the proposal, and reach agreement privately, reducing the chance that anyone will be publicly put on the spot or later blamed if something goes wrong. The formal approval document, known as the *ringi-sho*, circulates across divisions and levels, gathering stamps from everyone with a stake. But it also functions as a liability record: if things fail, the document shows that proper steps were followed and responsibility is shared, not concentrated. This makes both the content and the wording politically sensitive.
+
+Alignment must happen vertically and horizontally. A local manager may personally agree with a proposal, but they cannot bypass the network of divisions, group companies, key customers, or financial stakeholders who might quietly block it. What looks like delay to a colleague from a culture where decisions are made quickly is often a manager reading a constellation of possible veto points. From the Japanese side, a counterpart who pushes for speed without offering material to support internal consultation may appear unaware of how decisions are made safe.
+
+Once a decision is taken, it is psychologically owned by the organization. The energy invested upfront means abrupt reversals are rare and deeply costly. If you constantly reopen fundamentals after agreement, you undermine the political work your Japanese colleagues did to secure internal peace. Accept that some proposals will die without a clear "no" because they cannot survive the map of obligations. Stay curious rather than offended, and you will learn where the invisible walls are.

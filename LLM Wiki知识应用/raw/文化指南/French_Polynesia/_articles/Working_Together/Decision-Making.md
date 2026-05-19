@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in French Polynesia reflects a culture where relationships, consensus, and respect for social harmony guide how choices are made and carried through. Decisions are rarely made in isolation. Leaders tend to consult informally within trusted networks before finalizing a course of action, even when they hold formal authority. This blending of hierarchy with relational discretion means that a manager may appear to have made a decision, but in practice has already tested the idea with key colleagues, family members, or community figures whose views hold influence. The goal is not to avoid responsibility but to ensure the decision aligns socially and is more likely to be supported once announced.
+
+This process takes time, and managers are unlikely to commit quickly in formal meetings, especially when the stakes involve people or long-term relationships. A colleague from a culture where decisions are made rapidly in one-on-one or written exchanges may interpret this as indecision or avoidance. From a French Polynesian perspective, moving ahead without consultation risks damaging trust and creating friction that could undermine the decision itself. What looks like hesitation is often careful social preparation.
+
+Flexibility is also built into how decisions are implemented. If family obligations, community events, or unforeseen relational factors arise, timelines and priorities may shift. This does not mean commitments are taken lightly. It reflects a view that decisions must remain responsive to lived realities, not just organizational charts. Pressing for rigid adherence to a plan without acknowledging these factors can create distance rather than compliance. Allowing room for adjustment, and framing decisions as evolving rather than fixed, helps maintain both progress and goodwill.

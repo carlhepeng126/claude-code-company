@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in Romania often moves deliberately, shaped by a historical habit of verification and a careful attention to hierarchy and relationships. Under Ceaușescu, public commitments could hide risk and scarcity, and during the transition years that followed, uneven governance reinforced the value of checking information before committing. That caution persists today, especially in formal or government-linked settings where clarity and documentation reduce vulnerability. People want to know who is involved, what the criteria are, and where the decision sits before they move forward.
+
+Hierarchy matters visibly. Senior leaders hold decision authority, and their approval is typically needed before action proceeds. Younger managers may be more willing to act quickly, but they are still building confidence and learning through experience. At the same time, relationships shape how decisions land. In a culture where protecting reputation and avoiding public confrontation are both valued, pressing someone for an immediate yes or no can feel socially expensive. If there is hesitation, offering a dignified pause for internal alignment rather than forcing closure gives people the room they need to consult quietly and commit without risk.
+
+Regional and seasonal realities also shape timing. Romania's internal regional histories mean that some environments lean more formal and process-driven, while others decide through relational alignment. Major religious seasons and cultural anchors like the spring rituals recognized by UNESCO structure the year emotionally and can affect availability and focus. Making the path to a decision explicit, using written summaries to support clarity, and planning around these rhythms all help decisions move with the grain of how people work, rather than against it.

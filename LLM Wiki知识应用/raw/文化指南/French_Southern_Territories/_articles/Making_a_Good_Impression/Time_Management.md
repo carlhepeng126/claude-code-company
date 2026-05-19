@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+The French Southern Territories operate on a unique temporal framework shaped entirely by their status as isolated research stations in the remote sub-Antarctic. Time here follows scientific project cycles, resupply ship schedules, and the extreme environmental conditions that govern all activity. There are no local businesses, no government offices with public hours, and no urban rhythms to negotiate. The small rotating population of researchers, technicians, and support staff work within a structure determined by mission priorities, weather windows, and the logistics of operating thousands of kilometers from the nearest inhabited land.
+
+Schedules are both rigid and elastic. Research programs run to strict international timelines, with data collection, equipment maintenance, and reporting deadlines that cannot shift. But daily routines bend around the environment. A planned fieldwork day may be postponed without notice if a storm closes in, and meetings reconvene when conditions allow. This is understood by everyone on station as practical necessity, not poor planning. A colleague from a culture where meetings are held as scheduled regardless of external factors might initially read this as disorganization, while those based in the Territories would view insisting on a fixed meeting time during a blizzard as both impractical and disconnected from the reality of the setting.
+
+What matters most is aligning with the rhythm of the supply chain and the research calendar. Ships arrive on a fixed but infrequent schedule, and missing a departure or a delivery window has consequences that last months. Work is organized around these anchor points, and individuals coordinate their own tasks within that broader frame.

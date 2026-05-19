@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Bulgarian teams bring a collectivist instinct shaped by education, family values, and a complicated relationship with collective work. Many older workers experienced brigades and group work actions under socialism, where the group succeeded or failed together. That history can fuel genuine solidarity, but it also produces wariness when team-building feels imposed or sloganeering replaces substance. Frame collaboration around real shared goals and practical constraints rather than abstract values, and people engage. Frame it as obligatory unity, and cynicism surfaces quickly.
+
+People bring their *vrazki* (connections) into the team, the cousin in a ministry, the friend in IT, the uncle with a workshop. These relationships can solve problems that formal processes cannot, but they also create perception risks. A manager who uses a connection to secure a delivery or unblock a permit may be quietly valued by the team, but if others feel that decisions or opportunities are flowing through informal networks they are not part of, trust erodes. The practical response is transparency about how decisions are made and who contributed, even when the route was informal.
+
+Teams may contain people whose reference points are Brussels, London, or Berlin, and others whose comparisons are Russia, Serbia, or how things worked before. This split shapes attitudes to rules, risk, and hierarchy. A colleague from a culture where processes are tightly followed may read a Bulgarian team's flexibility as sloppiness, while Bulgarian colleagues may read rigid adherence to procedure as distrust or inflexibility. Both sides are making assumptions about competence when the difference is often about context, not capability. Younger professionals who have grown up in the market economy may show more drive and openness to flat structures, but the instinct for group cohesion runs across generations.

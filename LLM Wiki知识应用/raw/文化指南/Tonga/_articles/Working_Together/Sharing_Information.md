@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information moves more carefully in Tonga than in settings where transparency and open communication are expected across an organization. The emphasis on protecting relationships and maintaining social harmony means people think carefully before speaking, particularly when information involves status, resources, or anything that might cause embarrassment. Sharing too openly or going around formal channels risks disrupting the hierarchy that underpins both respect and stability.
+
+Within organizations, information often flows along kinship or personal lines first. A colleague may hold back details in a group setting but share them more freely one-on-one with someone they trust. This happens because Tongan culture values discretion and because going public with a concern before first discussing it quietly can look disrespectful or careless. If you notice a colleague is reluctant to share widely, asking privately and building personal rapport outside formal meetings will usually bring clearer exchange.
+
+The church and village structures that shape Tongan life also shape how information is shared at work. Seniority and titles influence who speaks first, who is consulted, and whose word is treated as final. A manager from a culture where junior staff are encouraged to speak up directly might interpret silence as disengagement. A Tongan colleague, meanwhile, may see the same directness as bypassing proper respect. Building trust takes time, but once established, people share more openly and the exchange becomes reliable and reciprocal. Demonstrating consistency, honoring confidences, and showing that you understand who needs to know what will gradually open channels that formal requests alone will not.

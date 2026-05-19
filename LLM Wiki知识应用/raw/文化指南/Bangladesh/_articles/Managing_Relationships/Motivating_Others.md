@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+In Bangladesh, people bring energy to their work when they feel it reflects well on their family and strengthens their standing in the broader social network. Professional success is rarely framed as individual achievement. It reaches into the household and the community, and the drive to maintain family honor is a steady source of commitment. Recognizing someone's contribution publicly, especially in front of senior colleagues or clients, reinforces both their reputation and their family's, and that recognition tends to deepen loyalty and effort more than a bonus paid quietly.
+
+Financial incentives do have weight, but they work best when paired with a workplace that feels respectful and supportive. A manager who takes time to acknowledge a team's effort after a demanding project, or who invites someone into a high-visibility assignment, sends a clear message: your work is valued, and you belong here. That sense of inclusion and visible appreciation often drives sustained performance more reliably than a formal incentive structure alone.
+
+Rigid deadlines and pressured timelines, however, tend to drain motivation rather than build it. Time in Bangladesh is more fluid, shaped by family obligations and a worldview that sees the future as ultimately subject to God's will. People outside senior leadership are unlikely to work long hours to meet an arbitrary cutoff, especially if it cuts into family time. Managers who can adapt schedules while maintaining momentum will see stronger engagement than those who insist on clock-driven targets. A colleague from a culture where timelines are fixed might read this flexibility as lack of urgency, while a Bangladeshi professional might see a rigid deadline as unnecessarily rigid and dismissive of life's other priorities.

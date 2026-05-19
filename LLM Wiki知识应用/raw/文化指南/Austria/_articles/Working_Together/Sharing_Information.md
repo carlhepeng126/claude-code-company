@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Written communication holds clear authority in Austrian professional life. Emails are approached with the same attention and formality as business letters, complete with correct titles, proper salutations, and professional closings. A verbal agreement reached during a meeting or over the phone remains provisional until confirmed in writing. This formality reflects a broader cultural expectation of precision and record-keeping. In practice, this means following up conversations with a structured email that documents what was agreed, and treating that written confirmation as the point at which a commitment becomes real.
+
+Information follows defined channels and respects hierarchy. Copying someone's manager without including them first, or sharing updates laterally across departments without clearing it through appropriate levels, breaks protocol. These are formal errors that undermine trust and professional standing. In a culture where roles and reporting lines are taken seriously, going around someone signals disrespect for their position, regardless of how efficient the shortcut may seem.
+
+Austrians are careful about what they share and with whom, particularly in a small, tightly networked professional community. Information given in confidence is expected to stay that way. Indiscretion travels quickly and damages reputation. A colleague from a culture where information is shared more freely across teams or discussed informally outside work may see this reserve as restrictive. An Austrian colleague, meanwhile, may read that openness as a lack of discretion or professionalism. Recognizing this difference in boundary-setting helps explain why some information is offered selectively, and why trust develops slowly around sensitive topics.

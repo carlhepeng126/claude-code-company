@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Timor-Leste rarely move in straight lines. The country's history of occupation, resistance, and relatively recent independence has reinforced caution and the need to build agreement across family, clan, and community lines before committing to a course of action. Leaders know that decisions affect more than operations. They touch relationships, honor, and social cohesion, particularly in a society where family networks and traditional structures remain influential alongside formal institutions.
+
+Senior figures hold the final say, but that authority is used carefully. A manager or leader will often consult informally with trusted individuals before announcing a decision, not to delegate responsibility but to ensure the choice sits well socially and practically. This consultation may happen through personal networks rather than in formal meetings, and it can involve elders, family members, or colleagues whose support will help the decision land well. The process takes time, and what looks like delay to a colleague from a fast-moving decision culture may reflect the care being taken to avoid conflict or unintended consequences.
+
+Flexibility is built into implementation. Once a decision is made, it may still be adapted if family obligations, community expectations, or unforeseen social factors arise. A colleague from Timor-Leste working in a more rigid planning environment may find the lack of room to adjust unsettling, while a colleague from that environment may read the adaptability as inconsistency. In practice, the decision is being refined to fit lived realities, not abandoned.

@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Cambodians use address terms to locate each other in relationships, not just to identify individuals. In daily life, kinship terms like *bong* (older sibling), *oun* (younger sibling), *ming* (aunt), and *pu* (uncle) are more common than names, even among colleagues. These terms establish a hierarchy of age and care instantly, shaping how the conversation will unfold. Age determines choice of pronoun, formality of language, and body posture. A younger foreign manager who speaks bluntly to a much older staff member may be acting within the formal job hierarchy but will look socially unaware to others in the room.
+
+In formal or business settings, *Lok* (Mr./Sir) or *Lok Srey* (Madam) is added before a first name, surname, or both to signal respect. Omitting honorifics with seniors, officials, or clients can feel abrupt or dismissive. Some senior figures also hold the title "Your Excellency," which should be used if confirmed through a local contact. When introducing teams, present people in order of seniority so Cambodians can place everyone correctly. Introductions follow hierarchy: the most senior person is introduced first.
+
+The safest default is to assume the other person is older or senior until they invite informality. Using *bong* when uncertain, or pairing *Lok* or *Lok Srey* with a name, costs little and prevents missteps. Foreign colleagues unfamiliar with these systems should be coached to watch age lines as carefully as job titles when addressing or correcting people, especially in group settings where others are observing.

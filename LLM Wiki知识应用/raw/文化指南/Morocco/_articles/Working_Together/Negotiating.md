@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+Negotiation in Morocco is a socially skilled exchange, shaped by a culture where value, credibility, and agreement emerge through interaction rather than being fixed in advance. This reflects the logic of the souk, where bargaining is a social institution as much as a commercial one. Counterparts expect movement and read each stage for cues about seriousness, flexibility, and relational commitment. Coming in with a final offer early or pushing for closure without allowing space for back-and-forth can be read as either naïve or dismissive. Leave room to adjust your position. The ability to negotiate well is understood as a mark of competence, and the process itself builds trust.
+
+Hierarchy matters deeply in how decisions are reached. Senior figures hold formal authority, but group input is often needed before anything is confirmed. Decisions are rarely made during the meeting itself. What looks like agreement in the room may be provisional, pending internal consultation or approval from layers above. If you are working with middle management, expect that even a well-received proposal will travel upward before it becomes binding. Where possible, engage with the most senior person you can access, and frame your offer in terms of the long-term benefit and credibility it brings to all parties.
+
+How firmness is expressed can make or break the outcome. Pressing too hard in a way that corners someone or threatens their dignity can trigger resistance, even when the substance of your proposal is reasonable. Strength is expected to be shown with composure. A colleague from a culture where direct pushback and rapid concessions signal progress may find the pace slow or circuitous. From the Moroccan side, that same speed can feel transactional and imply that the relationship holds little weight. Protecting face on both sides keeps the conversation open and preserves room for genuine movement.
+
+Regional identity can shift the tone. Northern Rif, Atlas Amazigh, Atlantic urban, and Saharan contexts each bring different expectations around warmth, directness, and formality. What reads as appropriate assertiveness in one setting may feel too blunt or too soft in another. Pay attention to local cues and calibrate accordingly.

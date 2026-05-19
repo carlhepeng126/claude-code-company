@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Egypt often pass through multiple review layers, and the time this takes reflects more than bureaucratic inertia. Individuals try to avoid being the only person responsible for a risky choice. Collective or committee structures spread accountability, particularly when the decision involves reputational exposure or could draw the attention of powerful actors. Even in private-sector contexts, managers frequently ask themselves whether a decision might provoke a regulator, ministry, or security service. The question is less about efficiency than about avoiding unwanted scrutiny or blame.
+
+Senior figures hold final authority, but they rarely move forward without some form of consensus below them. This consensus-building is often quiet and relational. Some managers consult family elders, spouses, or religious advisors before committing to decisions that carry moral or social risk. These conversations happen outside formal channels and reflect the fact that professional choices are understood to affect personal and family reputation, not just organizational outcomes.
+
+When working with Egyptian colleagues, frame proposals in ways that show awareness of legal boundaries and social sensitivities. Ask who else should review the proposal and expect the decision-maker to build coalition support rather than act alone. Staged commitments and pilot phases allow people to test an idea without feeling they are staking their standing on a single call. If approvals seem slow, recognize that layers of review often reflect the need for political and moral cover, not indecision. Supporting that process, rather than pushing against it, makes forward movement more likely.

@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiations in Costa Rica unfold with a calm, polite surface that can mislead counterparts who equate soft tone with soft position. Conversations are typically low-voice and free of theatrics, reflecting the broader *pura vida* ethos of keeping interactions pleasant and respectful. But beneath that courtesy, interests can be very firm, particularly around fairness, community impact, and environmental accountability. Prepare thoroughly and expect positions to hold even when delivery remains gentle. A colleague from a culture where directness and volume signal conviction may read this as lack of engagement; meanwhile, a Costa Rican counterpart may find raised voices or hard-edged rhetoric off-putting and a sign that the relationship is already under strain.
+
+When negotiating with cooperatives or small producers, a different set of expectations comes into play. These groups often operate with a strong sense of collective benefit and long-term partnership. Hard-nosed, short-term bargaining that prioritizes immediate savings over smallholder sustainability will clash with the cooperative ethos. Show how your proposal supports mutual gain over time, not just your own efficiency or cost reduction. This is where credibility is built.
+
+Costa Rican partners will also quietly test how serious you are about environmental and social safeguards. Many are sensitive to deals that appear green on paper but shift risks onto local communities, especially in coastal and rural zones where conservation and development sit in uneasy balance. Be explicit about safeguards, not just pricing and timelines. If those commitments are vague or missing, expect the conversation to stall.

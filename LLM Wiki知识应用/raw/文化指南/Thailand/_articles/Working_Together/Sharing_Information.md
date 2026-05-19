@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+In Thailand, information moves through relational pathways. People share more fully once they sense trust and predictable, considerate conduct from the other person. Early exchanges can be cautious, especially when revealing a problem or difficulty might risk embarrassment or disrupt relational smoothness. This caution reflects the cultural concern with face and the concept of *kreng jai* (consideration that holds back direct action to avoid imposing or causing discomfort). Someone may withhold a complete update if delivering it bluntly could disappoint a colleague or create visible conflict. The goal is to protect harmony, so information may arrive in softer, partial form or through indirect phrasing.
+
+Face also shapes what can be said publicly. Sensitive updates are often shared privately or cushioned with gentle language to avoid putting someone in a vulnerable position in front of others. Public clarity can be socially costly if it forces a colleague to admit difficulty openly. A manager from a culture where problems are flagged immediately in team meetings may read this as evasion, while a Thai colleague may see the blunt approach as socially careless and unnecessarily face-damaging. From the Thai perspective, the indirect route preserves dignity and keeps the relationship intact.
+
+To draw out clearer information, build psychological safety through tone and non-blaming questions. Ask privately and offer options rather than putting someone on the spot. Creating predictable rhythms for updates, such as regular one-on-ones, allows clarity to emerge without feeling like confrontation. Within organizations, information often stays concentrated within teams or senior levels, reflecting hierarchical decision-making and a preference for relational trust over formal channels.

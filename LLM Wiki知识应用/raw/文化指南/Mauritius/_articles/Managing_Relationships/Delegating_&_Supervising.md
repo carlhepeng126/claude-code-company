@@ -1,0 +1,11 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Mauritius brings one of the world's most culturally layered workforces into a single organizational setting. Indo-Mauritians, the largest group, often bring expectations rooted in hierarchy and deference to authority, shaped by Indian cultural values where publicly questioning a superior can feel like a disruption of proper social order. Creole, Sino-Mauritian, and Franco-Mauritian colleagues may carry different expectations around initiative and directness. British colonial structures embedded formal hierarchies that still shape traditional sectors like banking, government, and finance, even as newer tech and service companies adopt flatter models. The cultural instinct toward deference persists across settings, particularly in formal interactions.
+
+This layering means that silence in a team meeting rarely signals agreement. It more often reflects a concern being held back, either because the hierarchy feels too steep to cross or because raising an issue openly risks causing disharmony. If you want input, invite it explicitly and create room for it to surface privately or in smaller settings. A manager from a culture where debate in meetings is standard may read quiet agreement where there is actually unspoken hesitation. A Mauritian colleague working with a manager who invites open disagreement in front of the group may feel the request itself puts them in an uncomfortable position.
+
+All corrective feedback should be given privately. Public criticism damages dignity in ways that are difficult to repair in a community-oriented society where reputation and face extend beyond the workplace. Managers who take genuine interest in their team members as people, and who mentor and share responsibility over time, earn stronger loyalty. Educated workers expect opportunities to progress, and the government's commitment to training means facilitating development is part of the supervisory role.
+
+Be aware that internal assumptions can shape team responses. A Creole manager leading a largely Indo-Mauritian team, or a young woman supervising an all-male group, may encounter quiet resistance rooted in ethnic or gender expectations that are rarely voiced directly but can affect how authority is received.

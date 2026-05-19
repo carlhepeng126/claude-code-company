@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Americans generally move to first names quickly in professional settings. The opening handshake is often accompanied by "Call me Bob" or a similarly direct invitation to informality. This reflects a cultural preference for approachability and a flattened sense of hierarchy, where using first names helps establish rapport and signals that the relationship is collaborative rather than positional. Even in more traditional sectors, formality rarely lasts beyond the first exchange. If you have a name that may be unfamiliar to American colleagues, offering a shortened or simplified version can make introductions easier and is seen as helpful rather than deferential.
+
+Professional titles are used sparingly. "President" or "Professor" may appear in introductions, but beyond a few roles like Reverend or Doctor in certain contexts, titles drop away quickly. A colleague holding the title of Vice President may be one of many in a large organization, and the word "President" can appear on the business card of someone running a one-person operation. Asking directly about someone's role and decision-making authority is both acceptable and practical.
+
+Eye contact during a handshake is expected. It conveys confidence and engagement, and its absence can be read as uncertainty or lack of interest. For professionals from cultures where sustained eye contact with a senior colleague may feel too direct, the American expectation can feel uncomfortably assertive. From the American side, a more reserved greeting may be misread as discomfort or hesitation, rather than respect. Understanding that both responses reflect different norms around hierarchy and directness can help recalibrate first impressions on both sides.

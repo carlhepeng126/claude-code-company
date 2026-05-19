@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In central Baku, particularly around government, oil, banking and international organizations, professional dress tends to be smart, polished and fashion-conscious. Well-cut suits, tasteful dresses and high-quality shoes are expected. This reflects the value placed on status and seriousness in formal business settings. When meeting colleagues from state institutions or established companies, understated elegance makes a stronger impression than conspicuously expensive clothing. Muted or dark colors are the norm; locals rarely wear bright colors to work, and those who do are often assumed to be foreign. For men, a suit with a good shirt and tie is standard. For women, a modest skirt falling below the knee with a long-sleeved top is typical, though tailored trousers are increasingly common in Baku.
+
+Outside the capital, dress remains neat and carefully chosen, though more practical. In smaller towns or agricultural and industrial settings, people dress with pride but conservatively, especially women. Religious conservatism varies by region and family, not simply by urban or rural location. Even in field or site visits, shabby clothing can read as disrespect. Balance practicality with care: choose footwear and fabrics suited to the setting, but avoid anything that looks careless or overly casual.
+
+At formal occasions such as weddings, official receptions or Novruz celebrations, appearance takes on symbolic meaning. Guests dress more formally than many international colleagues might expect, and national motifs like carpet patterns or kelagayi scarves (traditional headscarves) may appear. Arriving in something equally considered, such as a well-fitted jacket or stylish dress, honors your hosts and their culture.

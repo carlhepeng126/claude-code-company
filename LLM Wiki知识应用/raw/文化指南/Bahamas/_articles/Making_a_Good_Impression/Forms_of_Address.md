@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In the Bahamas, initial professional introductions tend to reflect a blend of British colonial heritage and Caribbean informality. You will often hear titles like "Mr.," "Mrs.," or "Miss" used alongside surnames during first meetings, particularly in banking, law, government, and tourism management. Professional titles such as "Doctor" or "Reverend" are used where applicable and respected across settings. This formality establishes appropriate distance and acknowledges the weight of position and experience within hierarchical structures still visible in many Bahamian organizations.
+
+Once a working relationship begins to develop, the shift toward first names can happen quickly. Bahamians generally value warmth and personal connection, and continuing with surnames after rapport has been established can feel unnecessarily stiff. A colleague may introduce themselves formally but invite you to use their first name within the same conversation. For managers working with teams from cultures where formal address persists much longer, this transition can feel unexpectedly fast. From a Bahamian perspective, maintaining formal titles once familiarity has been signaled can suggest distance or discomfort with the relationship itself.
+
+In written communication, email openings often begin formally but relax as the correspondence continues. Initial messages may use full names and courteous greetings, while follow-ups shift to first names and more relaxed tone. When writing to senior figures or external stakeholders you have not yet met, maintain formality until the other party sets a different tone.

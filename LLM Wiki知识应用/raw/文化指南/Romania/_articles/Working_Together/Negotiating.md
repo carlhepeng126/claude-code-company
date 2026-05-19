@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiation in Romania tests whether you see your counterpart as an equal. Dignity runs through the process, and people notice whether you listen, clarify openly, or try to gain advantage through manoeuvre. In a context where institutional reliability has been uneven, the way you negotiate becomes a preview of whether you will keep your word later. A colleague from a culture where decisions are made quickly may read the deliberate pace as hesitation. But from the Romanian side, the same colleague's speed may look like a lack of interest in the relationship or a willingness to sign without understanding what lies beneath the surface.
+
+This means the process carries weight beyond the terms themselves. Romanians prefer a less direct approach, probing gently rather than firing off questions. Asking too many direct questions too soon can feel transactional or even dismissive. The result is a style that feels roundabout to some, but which allows both sides to assess seriousness and build confidence before committing. If you arrive with your best offer upfront, you remove the room for this kind of testing. Leave space for flexibility, and expect the conversation to take longer than it might elsewhere.
+
+Intermediaries can quietly shift the tone. A trusted introduction or credible reference reduces the need for extended testing and signals that you come with social proof. This is especially true in sectors where networks and reputation matter more than formal credentials. Recognize Romania's specific context rather than framing it as generic Eastern Europe. Cultural pride is sensitive to being flattened, and doing your homework on local realities supports the tone of respect that underpins a successful negotiation.

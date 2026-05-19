@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+In Slovakia, sharing a meal is a quiet form of care. Hospitality shows itself through practical abundance rather than elaborate ceremony. Hosts want to make sure guests are well fed, and the meal itself becomes a way of showing goodwill through tangible actions. This cultural reflex runs deep enough that it once found symbolic form in the bread and salt ritual, a traditional welcome gesture that framed eating together as a moral act, a sign of friendship. While the ritual itself is now rare in business settings, the underlying logic endures. A meal is not just background to a deal. It is relationship time, and the pace reflects that.
+
+Lunch is typically the main meal of the day, often substantial and built around soups, roast or smoked meats, and starchy dishes like dumplings. Regional roots show up clearly at the table. Traditional dishes often reflect mountain or rural origins, with sheep's cheese, sauerkraut, and plum-based flavours appearing frequently. These references to place and heritage can shape not just what people eat, but the conversational rhythm and references that accompany the meal. For colleagues from cultures where business meals are brief and agenda-driven, this unhurried approach may feel unexpectedly social. For Slovak colleagues dining with someone who treats the table as a checkbox, the reverse may register as transactional or impersonal.
+
+Following the host's tempo is the clearest practical guide. Accept what is offered, let conversation unfold without rushing, and mirror the understated tone. Warmth here is often expressed through steady presence rather than overt enthusiasm. If you are scheduling a meal, be aware that the calendar shapes availability in ways that may not be obvious. Name days and public holidays create micro-rhythms of family time and social obligation, especially outside Bratislava, and small timing adjustments can prevent awkward clashes.

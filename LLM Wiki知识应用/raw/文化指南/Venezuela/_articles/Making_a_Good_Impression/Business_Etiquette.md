@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Venezuelan professional life begins with warmth. Greetings are personal and often unhurried, and moving straight into business can feel abrupt. A handshake is standard, but expect colleagues to stand closer than many North Americans or Northern Europeans do, sometimes touching your arm mid-conversation to emphasize a point. This closeness reflects confianza, a felt sense that someone is known enough to be relaxed with. Rapport is built through these early signals of openness, and pulling back physically can read as cool or disengaged. For a colleague from a culture where personal space is wider, the proximity might feel intense; for Venezuelans, maintaining distance can suggest formality that hasn't yet softened into trust.
+
+Business cards are expected and carry weight. Everyone carries them, and presenting yours promptly shows you're prepared. Job titles matter here, so state your full role rather than abbreviating. Read each card you receive carefully before putting it away; stuffing it into a pocket signals the gesture didn't land. Cards don't need translating into Spanish unless your title is unusually technical, but the act of exchange itself is a small ritual of recognition.
+
+Gift-giving is acceptable and won't be misread as a bribe if kept modest. A tasteful item with a subtle logo, or a good bottle of wine or spirits, works well. Anything larger risks crossing into uncomfortable territory, so calibrate carefully and stay within both your organization's guidelines and local norms. The gesture shows you value the relationship, but scale and timing are everything.

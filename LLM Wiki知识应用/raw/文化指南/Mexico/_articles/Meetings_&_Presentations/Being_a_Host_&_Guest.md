@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hospitality in Mexico is shaped by Indigenous, Catholic and mestizo traditions that treat welcoming others as a moral duty, not just a social nicety. Guests are honoured, fed generously and made to feel valued. Home invitations typically follow after trust has been established through working together or repeated contact, so being asked to someone's home signals that the relationship has moved beyond the purely transactional. In some households, you may notice religious symbols or brief blessings before a meal, reflecting the role of faith in family life.
+
+As a guest, arriving exactly on time can feel rushed. A delay of 15 minutes is expected and allows the host to finish preparations without pressure. Bring a small gift such as flowers or chocolates for the host, express appreciation both during and after the visit, and accept at least a small refreshment even if you are not hungry. Declining entirely can come across as distant or dismissive. Acknowledge elders or senior figures first when greeting the group. Avoid shifting conversation toward business unless your host raises it, and follow up with a brief note of thanks the next day.
+
+As a host, generosity and attentiveness build lasting goodwill. Confirm attendance close to the event rather than weeks ahead, as people may accept invitations out of politeness even when unsure they can attend. Avoid setting a firm end time for informal gatherings, as this can feel overly controlling. Check whether an event includes partners before assuming they are invited, as practices vary by context and formality.

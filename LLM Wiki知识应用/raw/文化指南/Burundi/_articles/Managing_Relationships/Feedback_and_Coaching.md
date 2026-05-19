@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Burundi is woven into relationships and structured by respect for hierarchy and concern for dignity. Correction is rarely delivered head-on. Instead, senior colleagues may offer guidance through indirect references, third-party channels, or by framing the issue as a shared learning moment. A manager might refer to a general principle or draw on a story that helps the individual reflect without being openly identified as having made a mistake. This reflects a broader social logic in which preserving relational harmony and avoiding public embarrassment are more important than speed of correction. Direct criticism can wound trust and close the door to future dialogue.
+
+Praise is more openly expressed, but still through relational filters. A manager may acknowledge someone in front of others if the contribution reflects well on the team or the organization. Singling someone out too sharply, even positively, can create tension or jealousy, so recognition is often tempered with collective framing. For example, an individual's success might be presented as a team effort or credited to the support of a senior figure, maintaining balance within the group.
+
+Coaching often happens over time and in layers. A trusted colleague or elder may be brought in to deliver advice informally, especially if the topic touches on personal conduct or family obligations. For a colleague from a culture where coaching is framed as a transparent one-on-one process, this multi-step approach may feel unclear or incomplete. From a Burundian perspective, involving others signals care and ensures the guidance is socially endorsed, making it more likely to be taken seriously.

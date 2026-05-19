@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Welcoming guests with food, drink and warmth has long been a moral expectation in Irish households, rooted in rural traditions and parish life where neighbourly support and looking after visitors were central to community survival. This cultural instinct carries through to professional settings today. When hosting a meeting or visit, even a brief one, offering tea, coffee and biscuits is more than politeness. It's a gesture that acknowledges the person in front of you and creates the conditions for connection before business begins.
+
+Hospitality in Ireland tends to be simple and heartfelt rather than formal or elaborate. Overdoing it can feel awkward. What counts is the warmth behind the offer and the time taken to make someone feel welcome. As a guest, accepting at least something, even if it's just a cup of tea, shows respect for the effort. Declining everything without explanation can come across as cold or dismissive. A brief acknowledgment afterward, whether verbal or a short follow-up message, completes the exchange.
+
+Rushing through a meeting or leaving immediately after the agenda is covered can undercut the relationship you've just built. Irish hosts often expect a few minutes of informal chat at the end, a chance to close the encounter on a personal note. For colleagues from cultures where meetings end when the task is done, this can feel inefficient. From an Irish perspective, skipping it can seem transactional or even rude, as though the relationship mattered less than the outcome. Leaving room for that final exchange honors the hospitality extended to you.

@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In Uruguayan business settings, looking correct means looking clean, understated, and context-appropriate. This connects to a broader civic style that values moderation in public presentation and tends to distrust overt displays of dominance. A dark suit with polished shoes for men, and a tailored suit or smart dress for women, remains the norm in most professional environments. Uruguayans will form an impression based on how you present yourself, and that impression rests on composure rather than flash. There is no dress-down Friday culture here. If you arrive dressed more formally than needed, you will not be out of place. If you underdress, it may read as a lack of seriousness about the relationship.
+
+Credibility in many circles can be inferred from not needing to look expensive. Understatement functions as confidence and social tact, especially in institutional or civic-adjacent environments. A colleague from a culture where senior leaders dress to stand out visibly may read this restraint as a lack of ambition or formality. From the Uruguayan side, dressing in a way that draws too much attention to status or wealth can come across as overreach or a disregard for shared norms. What looks polished in one setting may feel performative in another.
+
+Montevideo leans urban-institutional, the interior often rewards practicality and ease, and Punta del Este's summer season brings a more visibly international and style-forward atmosphere. The same outfit can read differently across these spaces. If your work takes you outside the capital, expect dress codes to soften without losing the expectation that you have thought about your appearance. Evening events call for smart attire. If in doubt, dress up.

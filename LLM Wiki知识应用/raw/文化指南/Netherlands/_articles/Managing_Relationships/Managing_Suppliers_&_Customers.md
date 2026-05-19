@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Dutch commercial relationships rest on reliability and clarity, not charm. Trust builds through consistent performance, not entertainment or flattery. Contracts are binding documents, and deadlines are expected to be met. Transparency about what you can deliver, and when, counts for more than optimism. If a complication arises, raising it early and honestly preserves credibility. Overpromising to secure a deal or maintain goodwill will damage the relationship more quickly than a realistic refusal would. This expectation applies equally to both sides of the transaction.
+
+Professionalism does not mean formality. Dutch suppliers expect to be treated with the same directness and respect as colleagues, and both parties are expected to voice concerns plainly. If a supplier misses a deadline or a customer changes requirements without notice, the issue will be named. Avoidance or indirect complaints are read as either unclear or unhelpful. Where you might deal with a team rather than a single contact, treat all members equally and make sure communication reaches the right people, not just the most senior.
+
+Customer service is efficient and solution-focused, but not effusive. Frontline staff are trained to resolve issues themselves rather than escalate constantly, and they will work through problems methodically. A colleague from a culture where enthusiasm and warmth signal good service may find Dutch interactions businesslike to the point of coolness. From the Dutch side, over-the-top friendliness or deference can feel unnecessary or even insincere. The relationship is professional, not personal, and that is understood as respectful on both sides.

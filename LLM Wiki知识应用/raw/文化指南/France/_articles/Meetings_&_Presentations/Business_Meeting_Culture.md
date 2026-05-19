@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in France often begin with theoretical or strategic framing before any practical discussion. Legal context, conceptual clarity, or intellectual logic may be established first, reflecting a preference for understanding the principles that govern a decision before moving to concrete tasks. For a colleague from a culture where meetings focus quickly on action items and deliverables, this can feel abstract or slow. From the French side, jumping straight to execution without establishing shared reasoning can seem superficial or poorly thought through. Preparing structured arguments that address not just what you propose but why it makes sense will serve you better than arriving with a task list alone.
+
+Hierarchy shapes who speaks and when. The most senior person in the room, or the one with recognized expertise on the topic, often sets the tone and direction. Others may hold back until that person has spoken, then engage more openly. Vigorous debate is expected and valued, but it centers on the quality of the argument, not on challenging authority itself. Saying clearly that you disagree with a line of reasoning is acceptable and even respected, as long as the challenge stays focused on logic rather than becoming personal. This earns credibility in a culture that prizes intellectual rigor.
+
+The meeting itself is rarely the whole story. Key positions may be prepared in advance through smaller conversations, and further discussion often happens afterward to clarify or adjust what was agreed. Written follow-up that summarizes decisions and reasoning helps ensure alignment, especially in organizations where authority is concentrated and final decisions are made outside the room. Checking privately with key stakeholders after the meeting confirms that your understanding matches theirs before moving ahead.

@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Luxembourg's food culture reflects its agricultural past and its present as a multilingual financial hub. Traditional dishes are built around sustaining ingredients — pork, beans, potatoes — that speak to rural continuity and modest origins rather than elaborate presentation. Judd mat Gaardebounen, smoked pork collar with broad beans, is widely recognized as a national dish, valued for its substance and local rootedness. In business settings, choosing a restaurant serving Luxembourgish food can quietly affirm your interest in the country beyond its international surface. This gesture registers more strongly when the expatriate population is large and local identity feels less visible.
+
+That said, Luxembourg City offers a wide range of international cuisine, and many professionals — especially those from abroad — are equally comfortable with French, Italian, or Asian options. The choice of restaurant often depends on the audience and the occasion. A meal centered on local wine and traditional food can deepen rapport with Luxembourgish colleagues, while international venues may feel more neutral for mixed teams. Moselle wines, particularly Crémant de Luxembourg, offer a culturally grounded pairing that doesn't require symbolic weight. Mentioning or choosing them shows familiarity without performance.
+
+Street foods like Gromperekichelcher (potato fritters) are tied to markets and public gatherings rather than formal dining, but they represent a shared cultural rhythm that crosses Luxembourg's linguistic and national divides. In less formal settings, referencing or enjoying these foods can serve as a low-pressure entry point into local life, especially with colleagues who value lived experience over polished gestures.

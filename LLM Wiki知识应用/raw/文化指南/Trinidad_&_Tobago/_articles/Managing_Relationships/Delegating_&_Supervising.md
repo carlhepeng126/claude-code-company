@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+In Trinidad and Tobago, effective delegation begins with the relationship, not the task. Professional trust is built through personal connection first. A manager who takes time to engage with team members as people, not just as workers, will see stronger commitment and follow-through. This reflects the broader cultural value that life is not purely instrumental and that the quality of human connection matters alongside the quality of work output. The local concept of "liming," relaxed and informal socializing, captures this mindset. A manager who skips the relational foundation and moves straight to transactional, task-only communication will find performance suffers. Investing early in the personal bond is how you earn goodwill and build the conditions for accountability.
+
+Supervision should be consistent but never confrontational. Deadlines and expectations need to be followed up on regularly, and polite persistence is both culturally expected and effective. Time is managed with flexibility here, shaped by a relational rather than clock-based approach, so what might feel like lateness to a colleague from a culture where schedules are tightly held may simply reflect a different ordering of priorities. From the other side, a Trinidadian professional working with a manager who enforces rigid timelines without regard for context may perceive that style as impersonal or even disrespectful.
+
+Feedback must always be delivered privately and with warmth. Public correction runs against deeply held values of dignity and face, and the damage to trust can be lasting. Praise, by contrast, can be given openly. Trinidad and Tobago is one of the most ethnically and culturally diverse societies in the Caribbean, so there is no single template. What matters most is reading the individual, but relationship and respect remain the constants.

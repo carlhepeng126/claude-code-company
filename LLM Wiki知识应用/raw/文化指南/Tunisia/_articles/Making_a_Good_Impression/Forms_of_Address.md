@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Forms of address in Tunisia operate inside a three-way language system where Tunisian Arabic (Derja), Modern Standard Arabic, and French each bring a different social weight. Derja sounds everyday and warm, Standard Arabic adds moral seriousness, and French often conveys institutional polish, a residue of the protectorate era. The language you choose, or that a Tunisian colleague uses with you, can shift how your respect registers, because each carries a different authority feel. A colleague switching to French mid-conversation may be raising the professional tone, not excluding you.
+
+Respect for age runs deep, and honorifics reflect this. Terms like *Si* (Sir, used before a first name for older men) and *Lalla* (a respectful term for older women) protect elder dignity rather than simply marking rank. These are not family-only forms; they appear in everyday professional life and using them when greeting senior figures can build trust quickly. Professional titles such as *Doctor* or *Engineer* are also commonly used and expected, especially in hierarchical settings. If you move to first names too early or skip titles entirely, a colleague from Tunisia may read it as a lack of awareness rather than friendliness.
+
+The 2010–2011 uprising sharpened public sensitivity to how people are spoken to, framed often as a revolution of dignity. That cultural memory means being addressed dismissively or positioned as socially small can land harder than you might expect. Tone and choice of register become part of how respect is shown. A manager from a culture where informal address signals equality might assume a fast move to first names will flatten hierarchy and build rapport. A Tunisian counterpart may interpret the same move as skipping the relational groundwork that makes closeness safe.
+
+Greetings are typically formal at first, often with light handshakes and individual acknowledgment when entering or leaving a room. Physical warmth is welcomed but expressed through tone and attentiveness, not assertive touch. Overly familiar gestures such as back-slapping or grabbing an arm can feel intrusive, especially in formal settings where dignity is being actively managed. Warmth builds through measured gestures, not volume.

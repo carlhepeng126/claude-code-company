@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Collaboration in Burkina Faso is rooted in communal life and long-standing social structures. Teams work best when relationships come first, and when senior members are seen not just as supervisors but as guides who look after their colleagues personally as well as professionally. This paternal style reflects broader expectations of responsibility and care within Burkinabè society, where hierarchy functions less as distance and more as protective oversight. Managers are expected to know their team members well, understand their circumstances, and act with concern for their well-being. In return, team members show loyalty and deference, and they look to their leader for direction and reassurance, not just task delegation.
+
+Decision-making and feedback both unfold with attention to dignity. Public criticism undermines group harmony and individual standing, so correction happens quietly and indirectly. Praise is typically shared at the team level rather than singled out, which helps maintain balance and prevents jealousy or exposure. For colleagues from cultures where individual recognition drives motivation, this can feel like undervaluing contribution. From a Burkinabè perspective, highlighting one person risks fracturing the group and putting the individual in an uncomfortable spotlight.
+
+Teams rely on informal mentorship more than formal instruction. Younger or less experienced colleagues learn by observing, listening to stories, and picking up cues in side conversations rather than through direct teaching or structured onboarding. This approach allows people to develop without pressure or loss of face, but it means that clarity may take time to emerge and roles may remain loosely defined until relationships solidify.

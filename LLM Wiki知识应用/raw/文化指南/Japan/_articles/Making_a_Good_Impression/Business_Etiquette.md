@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Professional life in Japan runs on ritual and restraint. The sequence of events in a meeting — how business cards are exchanged, where each person sits, when tea is served — communicates respect and seriousness as clearly as any presentation. A senior colleague seated furthest from the door, a card received with both hands and studied briefly before being placed on the table: these are not empty gestures but visible proof that you understand the setting. If you rush through them or skip them entirely, trust becomes harder to build, even if the conversation itself goes smoothly.
+
+Politeness and agreement do not mean the same thing. Japan operates with a distinction between *tatemae* (what is appropriate to say publicly) and *honne* (what someone actually thinks). A colleague might nod and say yes to maintain *wa* (group harmony) and avoid causing *meiwaku* (trouble for others), even when real concerns remain. This means you need to read beyond words. Watch for follow-up questions, the speed of action after the meeting, or careful rephrasing. If someone hesitates, circles back, or asks for clarification in indirect ways, those are often signals that full alignment has not yet been reached.
+
+When something goes wrong, apologizing clearly and outlining how you will prevent it happening again aligns with how responsibility is understood here. A well-judged apology opens the door to problem-solving rather than closing it. At the same time, avoid putting individuals on the spot in front of their group. Structure conversations so that people can voice concerns without losing face, either by raising issues one-on-one beforehand or by framing questions in ways that allow collective rather than personal responses.

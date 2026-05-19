@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Germany serves a clear purpose: to humanize colleagues and clients without blurring the line between work and private life. The concept of *Feierabend* (the clear boundary between work and rest) shapes how Germans approach after-work events. Invitations are genuine, but attendance is optional and respected as such. Saying no to a social event without elaborate explanation is understood as someone protecting their evening, and colleagues rarely take it personally.
+
+The settings themselves tend to favor conversation over performance. Beer gardens, wine taverns, traditional restaurants, or Christmas markets are common choices. These are places where people can talk comfortably without needing to project energy or perform warmth. Loud, high-energy activities like karaoke or team challenges can feel forced or intrusive. A colleague from a culture where bonding happens through shared intensity may read the restraint as coldness, while a German colleague may read the high-energy approach as exhausting or insincere.
+
+Moderation is expected. Germans enjoy food and drink, but visible drunkenness or loss of control reads as unprofessional and a lack of self-discipline. Matching your host's pace and stopping well before your judgment is affected protects the relationship. Social events are meant to deepen goodwill and understanding, but they are not confessionals. People often stay loosely within their existing circles rather than forcing intimacy with everyone present. The goal is familiarity, not emotional disclosure.

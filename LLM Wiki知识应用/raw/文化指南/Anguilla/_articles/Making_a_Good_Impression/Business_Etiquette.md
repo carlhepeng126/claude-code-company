@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Anguilla's business etiquette reflects a small-island culture where relationships run deep and formality sits lightly. Interactions are cordial without being stiff, and people tend to use first names early on, even in professional settings. This informality grows from familiarity, not carelessness. On an island where many people are connected by family, school, or community ties, treating colleagues like strangers feels unnecessary. Warmth and approachability are expected, and a relaxed manner shows confidence rather than a lack of respect. For professionals from cultures where titles and surnames establish credibility, this ease can feel premature. But in Anguilla, holding too tightly to formality may come across as standoffish or overly rigid.
+
+Greetings are unhurried and often include brief personal exchanges. Asking about someone's family or weekend before turning to business is common practice, and skipping this step can make you seem transactional. These moments help establish trust and signal that the person, not just the task, is valued. In professional settings, this means meetings may start a few minutes later than scheduled while people settle in and connect. Colleagues from cultures where time is closely guarded may read this as inefficiency, while Anguillans may find a brisk, agenda-first approach cold or impersonal.
+
+Dress codes are generally smart-casual, with ties and formal suits rare outside of government or banking. Neat, comfortable attire that respects the climate is the norm, and being overdressed can draw quiet attention. Simplicity and presentability signal respect for the setting without unnecessary show.

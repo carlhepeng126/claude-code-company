@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Bonaire, Sint Eustatius and Saba work best when they feel personal rather than polished. These are small island communities where relationships precede transactions, and audiences respond to warmth and directness more than formal performance. A colleague presenting data without acknowledging the people in the room or their connection to the topic may come across as detached. Start by recognizing who's present and what brings you together. This signals respect and builds the trust that underpins decisions here.
+
+Keep your tone conversational and your content grounded. Overly technical language or dense slides can create distance, especially in settings where English may be a second or third language after Dutch and Papiamento. Visual clarity helps, but storytelling helps more. Framing your message around real examples or scenarios that feel relevant to island life makes abstract ideas easier to grasp and discuss. A presenter from a culture where data drives conviction may expect numbers alone to persuade, while colleagues here may wait to see how those numbers connect to lived experience before committing.
+
+Pacing should allow for interaction. Audiences here don't necessarily signal engagement through constant questions or nods. Silence can reflect thoughtfulness, not disinterest. If you rush to fill every pause, you may cut short the moment when someone is deciding whether to speak. Be ready for interruptions or side conversations, these aren't signs of distraction but signs that people are processing aloud or clarifying among themselves. Flexibility reads as respect for how decisions unfold collectively, not individually.
+
+Follow-up often happens after the formal presentation ends. Sensitive questions or dissenting views may surface privately, where there's less risk of public disagreement. Treat these conversations as part of the decision-making process, not afterthoughts. The person asking the most questions may not be the final decision-maker, but they're likely gathering input to share upward or laterally across a small, tightly connected professional network.

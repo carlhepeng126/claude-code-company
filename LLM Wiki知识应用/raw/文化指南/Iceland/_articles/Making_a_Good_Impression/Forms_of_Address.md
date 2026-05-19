@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Iceland moves to first names immediately, and the reason goes deeper than informality. The country uses patronymics and matronymics rather than hereditary surnames, so a last name like Jónsdóttir simply means "Jón's daughter." It tells you who someone's parent is, not which family they belong to or what status they hold. This naming system strips away the social layering that surnames often encode elsewhere, and it removes the scaffolding that formal titles usually rest on. Calling someone "Mr Jónsson" feels stiff and imported because the structure itself doesn't reflect how Icelanders organize identity or recognize achievement.
+
+Status in Iceland is earned through contribution, not inherited through lineage. Politicians, professors, and CEOs are addressed as Katrín, Guðni, or Sigríður from the first exchange. If you open an email with "Dear Ms Guðmundsdóttir" or introduce someone as "Dr Sigurðsson," you risk sounding distant or overly hierarchical. Use first names from the start unless someone explicitly requests otherwise, which is rare in modern professional settings.
+
+Icelandic names include unfamiliar letters like Þ, ð, á, and ö, and pronunciation can be difficult for outsiders. But people notice when you make a genuine effort to say Guðrún or Þorsteinn rather than defaulting to a nickname or anglicized shortcut. The attempt itself shows respect for Icelandic language and identity. Practice the names you'll be using before meetings and emails. Even imperfect pronunciation is read as care, while skipping the effort entirely can come across as dismissive in a culture where language preservation runs deep.

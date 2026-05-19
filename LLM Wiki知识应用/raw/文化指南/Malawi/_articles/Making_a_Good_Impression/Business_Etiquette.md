@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+In Malawi, professional etiquette revolves around protecting dignity and maintaining social harmony. Rooted in storytelling traditions like nthanu, where moral reasoning unfolds through narrative rather than direct statement, Malawian communication favours tact over bluntness. Historical memory also plays a role: decades of one-party rule under Banda created lasting caution around public disagreement, while the peaceful transition to multiparty democracy in 1994 instilled pride in civic process. Together, these influences mean that saying "no" outright or delivering criticism openly can feel socially careless. Responses like "I will try" or "No problem, but..." typically signal hesitation or refusal. A colleague from a culture where direct feedback is expected might read this as evasiveness, while a Malawian counterpart may view frank disagreement in a meeting as disrespectful or unnecessarily confrontational.
+
+Body language communicates what words don't. Brief eye contact signals respect, especially toward someone senior. Prolonged eye contact can feel intense or presumptuous. Tone of voice often substitutes for the word "please," which is associated with begging and rarely used. Standing an arm's length away shows courtesy. Physical contact between opposite-sex colleagues is uncommon beyond handshakes, though same-sex friends may walk hand in hand.
+
+Gift-giving reinforces personal connection but should stay modest to avoid any perception of bribery. Small items from your home country work well, as do thoughtful gestures for a colleague's children. If invited to someone's home, bring something to show appreciation. Business cards in English are standard, though adding Chichewa for rural contexts can be a useful touch. Including academic credentials helps colleagues place you within their frame of reference.

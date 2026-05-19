@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Titles paired with family names do more than show politeness in Bahrain. They quietly acknowledge education, lineage, or religious role in a society where those markers still shape how people read one another. Calling someone "Engineer Fatima" or "Sheikh Salman" recognizes something about their standing that would be lost with a first name alone. This applies whether the person holds a professional qualification, religious position, or belongs to a prominent family. Until someone explicitly invites you to use their first name, stay with the formal construction. Moving too quickly to casual address can suggest you are bypassing respect that Bahrainis extend to each other as a matter of course.
+
+Surnames and speech patterns reveal more than job descriptions. They can hint at Baharna village roots, tribal Sunni families, or Persian-origin Ajam communities. Most professionals will not mention these distinctions openly, but they notice when someone is socially misplaced or when a form of address overlooks their background. Listening to how colleagues introduce each other, and which details they emphasize, offers a clearer map of what gives someone credibility in the room than an organizational chart ever will.
+
+When the register shifts from formal Arabic or English to nicknames and looser speech, you have crossed a threshold. That change signals trust and closer personal connection, and it happens on the other person's timeline. Wait for the invitation. Forcing informality before it is offered reads as impatience or a misunderstanding of how relationships are built.

@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiations in Guernsey tend to be low-key and relationship-focused, shaped by the island's small size and the near-certainty that you will encounter the same people again. Most business interactions take place within a close-knit network where reputations are visible and long-remembered. This means that building trust and demonstrating reliability often take precedence over securing immediate advantage. A colleague from a culture where negotiation is more transactional may find the pace measured or the early discussion overly social, while someone from Guernsey meeting a counterpart who moves quickly to terms may wonder whether the relationship has been given enough foundation.
+
+Directness is used sparingly. Points of disagreement are more likely to be introduced through understatement or by raising a concern indirectly, allowing both sides to adjust without confrontation. This reflects a broader preference for harmony in a setting where maintaining goodwill has practical value beyond any single deal. If you press too hard or frame the discussion as win-lose, you risk being seen as unaware of how the island works. Allow time for informal conversation and be prepared for decisions to involve consultation with others, even if that is not made explicit at the table.
+
+Guernsey's legal and financial sectors bring a more structured approach, particularly in cross-border work, but even here the instinct is to keep things cordial and avoid unnecessary friction. Contracts are taken seriously, but so is the understanding that underpins them. If terms need revisiting later, expect the conversation to happen quietly and with attention to preserving the relationship.

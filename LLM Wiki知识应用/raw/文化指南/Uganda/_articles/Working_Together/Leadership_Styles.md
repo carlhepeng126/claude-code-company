@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Authority in Uganda draws on layered historical sources. In much of central and western Uganda, the legacy of kingdoms, especially Buganda, has shaped expectations that leaders embody duty, care, and public legitimacy. A leader represents a community, and that representation requires visible responsibility, dignity, and fairness. This is not ceremonial. How a leader conducts themselves personally affects their standing, and people notice whether authority is exercised with respect or with dominance. The colonial reshaping of leadership through agreements like the 1900 Buganda Agreement, and the moral memory of Idi Amin's coercive rule between 1971 and 1979, mean that Ugandans read power through a lens that distinguishes legitimate authority from arbitrary control.
+
+The most senior person in a professional setting will typically lead, and decisions, while often collective in process, are usually directed by that figure. Age and education both confer status. Institutions like Makerere University, founded in 1922, reinforced a lasting prestige around education as not just technical competence but moral standing. Leaders are expected to be articulate, disciplined, and socially invested. If you are the most senior person in the room, you will be looked to for direction. If you are not, align your proposals with that person's authority and avoid bypassing them, even informally.
+
+A colleague from a culture where decisions are distributed and authority questioned openly may find this deference uncomfortable or slow. From Uganda, the same colleague's directness with senior figures may read as disrespectful or unaware of social structure. Leaders here are expected to take an active interest in employees' personal circumstances, attending to bereavement, family obligations, and welfare. This is not paternalism. It reflects a relational accountability that underpins trust and legitimacy in the role.

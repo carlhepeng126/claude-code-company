@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information in Bolivia often moves through personal networks rather than formal channels. In a country shaped by political instability and frequent policy shifts, people have learned to rely on relationships they can trust. What looks like withholding may actually be discretion. Colleagues want to be sure of your intentions before sharing openly, especially if the information involves sensitive internal matters or could be used in ways that affect others. Building that trust takes time and consistent follow-through. Once established, information flows more readily, but it rarely skips the relational step.
+
+Within organizations, information often stays within close-knit groups rather than circulating widely. This tendency reflects both practical realities and cultural preference. In settings where hierarchy runs deep and loyalty to immediate colleagues outweighs loyalty to the broader institution, sharing across silos can feel risky or unnecessary. Someone from a culture where transparency and cross-functional collaboration are expected might interpret this as inefficiency or secrecy. A Bolivian colleague, in turn, might view broad information-sharing as naive or even reckless, particularly if trust has not been built first.
+
+Informal conversations unlock more than formal requests. A coffee after a meeting, a walk between offices, or a shared meal can reveal context and detail that would never surface in an email or presentation. These moments allow people to assess character and build the rapport that makes candid exchange possible. If you want fuller answers, invest in the relationship before expecting the information.

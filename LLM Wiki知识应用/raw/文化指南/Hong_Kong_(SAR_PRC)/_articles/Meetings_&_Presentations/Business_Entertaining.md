@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business meals and drinks in Hong Kong do build relationships, but the emphasis is on efficiency and focus. Entertaining happens, often over dim sum lunches or evening drinks, but the city's pace means people stay oriented to results. Late-night bonding sessions are far less central here than in Japan or Korea. Everyone is expected to be back at their desk the next morning, alert and delivering.
+
+Venue choice reveals more than you might expect. A hotel Chinese restaurant in Central, a speakeasy in SoHo, a private kitchen in Sai Ying Pun, or a noisy *dai pai dong* (open-air food stall) in Tai Po each communicate something different about formality, status, and how local your network is. Lan Kwai Fong, the well-known bar district, is familiar to expats but many Hong Kongers outgrow it or avoid it altogether. Crowded, tourist-heavy venues don't always match the business tone people are trying to set. Let your counterpart steer the choice. They know their own budget, commute, and comfort with alcohol better than you do, and following their lead shows respect for all three.
+
+Evenings in Hong Kong tend to wrap earlier than visitors expect. Long commutes to the New Territories, early morning calls with London, New York, or Beijing, and family commitments mean most people leave by 10 or 11 p.m. on weekdays. Staying out until 2 a.m. happens, but it's the exception. Schedule start times that allow people to get home at a reasonable hour, especially midweek. That timing increases acceptance and goodwill more than an expensive venue ever will.

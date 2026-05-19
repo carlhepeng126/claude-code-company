@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Business etiquette in Curaçao reflects the island's blend of Caribbean warmth and Dutch-influenced professionalism. Greetings tend to be friendly and personal. A handshake is common in formal settings, but close colleagues or returning visitors may be greeted with a kiss on the cheek or a warm embrace. These gestures express genuine connection rather than mere formality. Taking time for small talk before getting down to business helps establish trust and signals that you value the relationship, not just the transaction. Skipping this step and diving straight into agenda items can come across as cold or transactional.
+
+Dress code varies by sector and setting. In banking, legal services, and government offices, business attire leans formal: suits or tailored clothing are expected. In tourism, retail, and creative industries, the tone is more relaxed, with smart casual often appropriate. When in doubt, err on the side of formality for first meetings and adjust based on what you observe. Air conditioning in offices can be strong, so layering is practical.
+
+Punctuality is valued differently depending on context. Formal business meetings, especially with international partners or in corporate settings, tend to start on time. Social or internal gatherings may begin more flexibly, with a fifteen-minute margin understood as normal. A colleague accustomed to strict timekeeping may read this as disorganized, while a Curaçaoan counterpart may view rigid adherence to the clock as overly stiff or impersonal. If you are running late, a quick message is appreciated and maintains respect without causing offense.

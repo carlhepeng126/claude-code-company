@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Gambia move at a relational rather than transactional pace. The opening stages are rarely brief. Greetings are extended, health and family are discussed, and trust is quietly tested before any agenda item is raised. This groundwork reflects a broader cultural logic: the quality of the relationship determines the quality of the outcome. A colleague from a culture where meetings follow tight schedules may find this slow, while Gambians meeting abroad may feel unsettled by what seems like impatience or indifference to rapport. Neither side intends offense, but recognizing the difference helps. If you arrive with printed agendas and time-blocked discussion points, hold them lightly. You may still cover what you came to discuss, but the route will likely be less linear than you planned.
+
+Decision-making rarely happens in the room. Senior figures may attend, listen carefully, and say little. Consensus is often built outside the formal meeting through quieter conversations, and final calls rest with the person at the top. Pushing for a conclusion on the spot can be read as disrespectful or naive. Instead, frame the meeting as one step in a longer conversation. Follow up afterward with patience, and allow time for internal consultation before expecting clarity.
+
+Formality is shaped more by respect than by rigid protocol. Dress well, use titles where appropriate, and show deference to age and position. But once rapport is established, the tone may shift toward warmth, humor, and storytelling. This flexibility is itself a signal: you are no longer a stranger.

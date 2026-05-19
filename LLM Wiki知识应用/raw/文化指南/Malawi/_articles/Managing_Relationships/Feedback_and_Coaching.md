@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Malawian workplaces, feedback is shaped by the close-knit nature of community life. Social ties run deep, reputations are shared, and what happens in one conversation can ripple quickly through networks of family, church, and neighborhood. Public correction risks more than professional discomfort. It can compromise someone's standing in circles far beyond the office. For this reason, feedback is given privately, carefully, and with real concern for dignity. A manager who raises a performance issue in front of colleagues may find trust harder to rebuild than the issue was to fix.
+
+The setting and permission matter as much as the words. Malawian culture has long-standing traditions that reserve certain conversations for particular contexts, and that instinct shows up in coaching too. A conversation about personal struggle, missed targets, or shifting roles may need more than a scheduled meeting. It may need the right tone, timing, and sometimes an introduction through a trusted intermediary. Launching straight into critique without first establishing relational ground can feel intrusive, even if the intent is constructive.
+
+When difficulty involves stress, personal challenge, or capacity concerns, a care-first approach often opens more space for change than direct critique. Malawi has cultural models for recognizing when someone is struggling and responding with support rather than correction. In the workplace, this might mean asking what help is needed before naming what went wrong, or framing coaching around building capacity rather than exposing gaps. Colleagues from cultures where feedback is expected to be fast and frank may read this as avoidance. From a Malawian perspective, it reflects the understanding that people perform better when they feel supported, not shamed.

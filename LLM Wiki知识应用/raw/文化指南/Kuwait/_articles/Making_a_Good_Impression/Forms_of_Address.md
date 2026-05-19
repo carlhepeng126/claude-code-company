@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Kuwait's workplace runs on layered respect codes, and how you address someone reveals how well you understand them. Titles, family lineage, and formal markers do real work: they set the tone of a relationship, acknowledge a person's standing, and establish the boundaries of what can be asked and how quickly. Professional and academic qualifications are taken seriously—Doctor, Engineer, and other credentials are not just decorative. Using them correctly shows you recognize what someone has earned and where they sit in the room.
+
+The traditional greeting form *kunya* adds another layer. Referring to someone as Abu [son's name] or Um [daughter's name] acknowledges their family role and roots, and in some diwaniyas—the regular social gatherings that underpin civic and business life—people are addressed almost entirely this way. Listening to what locals call one another and mirroring that form is safer than defaulting to first names, especially early on. For members of Parliament, ministers, or those from the Al Sabah ruling family, the stakes rise further. Knowing when to say "Your Excellency" or "Sheikh" versus a professional title like "Doctor" can shape how your presence in the meeting is received.
+
+Informality that comes too fast can read as presumptuous or tone-deaf. Start with the more formal option and adjust once you sense someone's preference or are invited to relax. In written communication, combining a professional title with the family name—such as "Eng. Al-Ahmad"—is a reliable starting point until the relationship deepens. A colleague from a culture where first names are used immediately may find this slow or stiff, while a Kuwaiti counterpart working in a less hierarchical setting might read rapid informality as a lack of awareness or respect for context.

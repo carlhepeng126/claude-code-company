@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Djibouti succeed when they build trust, not just deliver information. Your audience will be assessing credibility through how you communicate, not only what you say. This reflects both the clan-based social structure, where trust must be earned through personal connection, and the multilingual environment where tone and intent often speak louder than technical detail. Whether presenting in French, Arabic, or through an interpreter, keep your approach people-focused. Data and analysis have their place, but relationships drive outcomes.
+
+Avoid hard-sell tactics or aggressive persuasion. Direct pressure may be read as disrespectful or too transactional, particularly in a context where business and social ties overlap. Instead, emphasize your commitment to long-term collaboration. Share stories or case studies that anchor your message in lived experience. Djiboutian culture values oral tradition and narrative, so structuring your content around relatable scenarios makes your message more memorable. If you're working through an interpreter, allow extra time for each point to be conveyed clearly and resist the urge to fill every pause. Silence often reflects respect or careful thought, not disengagement.
+
+Stay flexible if people take calls, step out, or join partway through. This reflects the fluid boundaries between professional and personal life, not a lack of focus. Welcome latecomers as opportunities to widen your network of contacts. Prepare supporting materials in French or Arabic depending on your audience, and keep slides visual rather than text-heavy. Dense content can create confusion, especially when language mediation is involved. If using technical terms, brief your interpreter beforehand to ensure accuracy.
+
+The most candid feedback often comes after the formal session ends. Colleagues may prefer to ask sensitive questions privately to avoid appearing uncertain in front of others. Treat these follow-up conversations as extensions of the presentation itself, where real understanding is built.

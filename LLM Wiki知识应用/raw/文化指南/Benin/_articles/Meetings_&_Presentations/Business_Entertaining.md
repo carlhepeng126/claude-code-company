@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Benin plays a meaningful role in building trust and opening professional relationships. Meals offer a way to move beyond the formality of meeting rooms and observe how people carry themselves outside structured settings. Invitations to lunch or dinner usually come once initial contact has been made and early rapport is forming. The act of sharing food is relational, not simply social. It demonstrates that the relationship is worth time and attention.
+
+Restaurants in larger cities like Cotonou are the typical setting, ranging from local spots serving traditional Beninese dishes to more international options depending on the guest. Alcohol is available in many settings but is not always part of the occasion. Some Beninese drink socially while others abstain, often for religious or personal reasons. It's wise to wait and follow the host's lead rather than ordering independently or offering a drink without gauging the tone first. Misjudging this can create unnecessary discomfort.
+
+Conversation during meals tends to be broad and unhurried. Business may come up lightly, or not at all, and it's the host who typically decides when and whether to raise it. Introducing work topics too early can come across as transactional, signaling more interest in the outcome than in the person. The meal itself is often the point: a way to deepen understanding and see how someone engages when the setting is less scripted. Reciprocating the invitation, either during the visit or on a return trip, is appreciated and helps balance the exchange.

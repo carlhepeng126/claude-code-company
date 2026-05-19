@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Meals in Kuwait unfold slowly and are built around sharing. Dishes like machbous (spiced rice with meat or seafood), grills, and mezze arrive on communal platters placed at the center of the table. Eating together from the same dish reflects the value placed on collective experience and reinforces connection. Business topics surface naturally but are rarely the sole focus. Conversations shift between family, travel, and regional politics, giving space for people to understand one another beyond a transaction. If you have dietary restrictions, mention them simply and early. Kuwaiti hosts are generous and will usually accommodate, but communal dining leaves little room for last-minute adjustments.
+
+The pace of the meal matters. Multiple courses are served in succession, and each is meant to be enjoyed without hurry. A colleague accustomed to tightly scheduled meals may find the rhythm loose or inefficient. From a Kuwaiti perspective, rushing through food or steering conversation back to business too quickly can read as impatient or instrumental, undermining the trust the meal is meant to build. Listening during these conversations offers insight into unfiltered opinions about policy, Parliament, and generational expectations that rarely surface in formal settings.
+
+Being invited to an iftar during Ramadan holds particular weight. These meals, breaking the fast at sunset, combine spiritual observance with professional hospitality. Charity, community, and status intersect visibly at iftar gatherings, whether corporate or family-hosted. Arrive on time, dress modestly, and plan to stay for tea and conversation afterward. Leaving immediately after eating suggests the relationship holds little meaning beyond obligation.

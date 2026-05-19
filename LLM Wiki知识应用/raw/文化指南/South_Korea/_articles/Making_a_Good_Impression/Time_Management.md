@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+South Korea's approach to time reflects two competing pressures: a Confucian heritage that prioritizes hierarchy and careful deliberation, and the compressed modernization that followed the Korean War, which produced one of the world's most deadline-driven economies. Rapid industrialization in export-oriented sectors demanded punctuality and discipline, especially in manufacturing and technology, where global supply chains require precise coordination. Arriving late to a meeting or missing an agreed deadline damages credibility in ways that are difficult to recover. External commitments are treated seriously, and teams will often work long hours to meet them.
+
+Internal timelines operate differently. Decisions typically move up formal approval chains, and consensus-seeking across multiple levels can extend planning phases even when the final execution happens quickly. A colleague from a culture where decisions are made independently may read this as slow or bureaucratic, while Korean counterparts may view fast, individual sign-off as risky or insufficiently considered. Relationship-building also takes time, particularly when trust has not yet been established, and this groundwork is seen as essential rather than optional.
+
+Senior stakeholders may introduce changes late in a process, reflecting their authority to redirect priorities. This is understood internally as part of the hierarchy, but it can create tension in joint projects where timelines have been locked. Building in contingency plans and clarifying milestone expectations early helps both sides navigate the gap between visible speed and the approval structures that shape it. Clear, shared deadlines work best when they account for the layers through which decisions actually travel.

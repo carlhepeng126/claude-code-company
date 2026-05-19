@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Burundi's professional settings reflect a culture shaped by decades of international development presence and a society where dignity and formality go hand in hand. Business dress is consistently formal. Men wear suits with ties, women wear tailored skirts or dresses, and the expectation is that you show up looking polished. This formality extends beyond government offices and traditional sectors into NGOs and private business. The care you take with your appearance shows the seriousness you bring to the relationship, and arriving underdressed can undermine credibility before a word is spoken.
+
+The international development sector, which employs many Burundians and shapes professional norms, brings its own dress codes. Foreign professionals working in Burundi sometimes dress more casually than their Burundian counterparts, a contrast that can create quiet tension. A colleague from a culture where business casual or technical field wear is the norm in development work might interpret a suit as unnecessarily formal or out of step with the sector. From a Burundian perspective, the same informality can read as a lack of respect for the setting or the people you are meeting. Dressing formally in Burundi, especially in meetings with government officials or community leaders, signals that you recognize the weight of the occasion.
+
+In Bujumbura, younger professionals in startups or creative industries may lean toward smart casual, but even here, the baseline is deliberate. Outside the capital, formality remains the standard. If you are attending a social or cultural event, dress as you would for a formal business meeting unless told otherwise.

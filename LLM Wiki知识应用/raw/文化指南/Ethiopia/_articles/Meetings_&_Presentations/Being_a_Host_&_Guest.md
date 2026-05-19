@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Ethiopian hospitality involves genuine sacrifice, and colleagues will go to real lengths to make a guest feel welcomed and honored. Hosting may stretch a household's budget or time, and recognizing this effort quietly, without making your hosts feel exposed, shows respect. That means accepting what is offered rather than highlighting your own routines or dietary restrictions at length. If you are hosted at someone's home, take part in the coffee ceremony if invited. Staying for at least one or two rounds of *buna* (coffee) rather than leaving quickly shows you value the connection behind the gesture, not just the efficiency of the meeting.
+
+Religious observance shapes what is served and how. Before organizing an event or ordering drinks, check the group's religious makeup and level of comfort with alcohol. Offer strong non-alcoholic options visibly and without comment. If a traditional evening is suggested, treat it as a chance to learn about Ethiopia's internal diversity. Colleagues may use music, food, and dress from different regions to show pride in their own background. Joining in a little, whether clapping or dancing, is welcomed, but keep an eye on composure, especially if you hold a senior role. Dignity and self-control are valued, and losing either in public can affect how people view your judgment.
+
+When you are a guest, follow seating guidance rather than insisting on modesty. Accepting a place of honor acknowledges the effort your hosts have made, and refusing it can feel like a rejection. Similarly, the person who extends the invitation is expected to pay. If you host, bring cash, as card payments are uncommon in many settings.

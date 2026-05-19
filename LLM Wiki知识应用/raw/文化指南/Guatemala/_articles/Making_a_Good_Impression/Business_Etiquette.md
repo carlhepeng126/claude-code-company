@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+In Guatemala, how you greet reveals more about your professionalism than your credentials. Saying buenos días to every person in a room, pausing to acknowledge the cleaner, letting others finish speaking before you begin — these are the markers of being bien educado (well-raised). The concept of respeto threads through every professional encounter, and it is earned through small, consistent courtesies rather than quick displays of expertise. A foreign colleague who walks straight past reception to the manager's office without greeting anyone will be remembered for that lapse long before anyone opens their presentation.
+
+Disagreement is rarely voiced openly, especially where status or ethnicity creates distance. In a meeting where a ladino manager presents to Maya field staff, you may hear "sí, está bien" and see nodding, followed by very slow implementation or quiet non-compliance. People who have lived through war, structural racism, or gang intimidation do not tell powerful outsiders they are wrong. For a colleague from a culture where debate is expected, this can feel frustrating or opaque. From a Guatemalan perspective, the directness of that colleague may read as disrespectful or naïve about power. To surface real concerns, ask open questions and build in small trial steps where people can respond without risk.
+
+Physical closeness and eye contact vary. Urban ladinos may hold steady eye contact and offer warm handshakes or cheek kisses. In contrast, some Maya communities use softer eye contact and maintain more physical distance, especially across gender or status lines. Forcing your own comfort level onto others — whether prolonged eye contact or immediate physical warmth — reads as insensitivity, not confidence. Let people set the tone, and match their level of closeness rather than imposing your own.

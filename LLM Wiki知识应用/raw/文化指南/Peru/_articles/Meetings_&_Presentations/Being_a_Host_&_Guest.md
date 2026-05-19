@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+In Peru, hosting is often a deliberate act of inclusion and respect. Making someone feel socially received, offering food, ensuring they are comfortable—these are small gestures that can take on deeper meaning in a society shaped by long-standing inequalities. Hospitality becomes a way of affirming someone's presence and worth, which is why a visitor who accepts care graciously and acknowledges effort clearly helps the host maintain dignity. Repeatedly declining what is offered can leave a host feeling their welcome was inadequate. If you do need to refuse food or drink, do it briefly and with warmth, so the gesture itself is still recognized.
+
+How this plays out varies across Peru's regions and settings. What counts as appropriate formality, how long you should stay, how quickly first names are used—these all shift depending on whether you are on the coast, in the sierra, or in the selva, and whether the household is urban or rural. When in doubt, mirror the household's tone. If elders are present, begin with a respectful register and wait for informality to be offered rather than assumed.
+
+If you are hosting Peruvians, focus on making people feel included and unjudged. Clear directions, comfortable seating, and visible care go further than elaborate arrangements. Do not expect confirmations to invitations or punctual arrival—people may arrive well after the stated start time, and in some contexts will not confirm attendance at all. A local contact can help you judge likely numbers. Gatherings tend to be warm and crowded, often involving extended family, and drinking is typically accompanied by food rather than done for its own sake.

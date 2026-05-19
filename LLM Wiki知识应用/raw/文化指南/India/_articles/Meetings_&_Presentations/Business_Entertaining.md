@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in India often extends well beyond dinner and drinks. Colleagues may invite you to weddings, Diwali celebrations, children's naming ceremonies, or other family milestones. These invitations reflect a blurring of social and professional worlds, where building a strong working relationship means developing a personal one too. Festival-based entertaining is particularly significant. Diwali, Eid, Holi, Navratri and regional festivals become prime moments for client visits, gift exchanges, and open-house events at offices or homes. Accepting these invitations and showing up, even briefly, demonstrates that you value the relationship beyond the transaction.
+
+Dietary and drinking contexts vary widely. Some circles center social gatherings around alcohol, while in others it's entirely absent for religious or personal reasons. Vegetarian-only settings are common, and assumptions about what people eat or drink can cause quiet discomfort. Ask discreetly before planning an event. When bringing a gift, avoid alcohol, beef, or leather in many contexts, and present it with both hands as a mark of respect.
+
+Being invited to certain events is itself a signal of closeness and status. Not everyone on a team will be included in every dinner or celebration, and selection can reflect seniority, relationship depth, or the nature of the occasion. If you decline an invitation, communicate appreciation clearly and find another way to connect. What may feel like a polite refusal in one context can be read in India as disinterest in the relationship itself. Entertaining here is less about the meal and more about reinforcing the tie that makes working together possible.

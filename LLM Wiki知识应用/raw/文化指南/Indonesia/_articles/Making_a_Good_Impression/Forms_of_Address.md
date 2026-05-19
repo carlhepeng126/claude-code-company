@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Address in Indonesia is built on a kinship logic that extends family roles into professional life. Calling a senior colleague Bapak (father) or Ibu (mother) followed by their name reflects a cultural expectation that leaders protect, guide, and care for those beneath them, much as parents do. The term embeds hierarchy and relationship at the same time, shaping the tone of every interaction that follows. A colleague who begins with first names alone risks sounding inappropriately familiar, especially when speaking to someone older or more senior.
+
+Regional variation adds another layer. In Javanese areas, Mas (for men) or Mbak (for women) functions as a respectful but less formal marker, while in other parts of the country Kak or Abang serve a similar role. These terms sit between deference and warmth, useful with peers or service staff but less so with senior managers or clients. A foreign manager who adopts Bapak or Ibu early, and mirrors the terms local colleagues use, signals that they understand the relational frame. One who assumes informality too quickly may find people polite but distant, their deference masking discomfort.
+
+In some regions and sectors, religious and customary titles hold real relational weight. A Muslim man who has completed the pilgrimage to Mecca is addressed as Haji, a woman as Hajjah. Traditional leaders may hold adat titles such as Datuk or Raja, depending on the area. Getting these right, or asking which title to use, builds trust with local partners and community figures. Ignoring them can quietly undermine credibility, even when the work itself is strong.
+
+Listen to how people refer to their own leaders. If staff call someone Ibu with consistent formality, the relationship is more parental and the expectations around directness will shift accordingly. If they use first names, the culture may be more collegial, though still shaped by respect for seniority. Address is diagnostic, revealing not just rank but the kind of authority someone holds and how open the space around them is.

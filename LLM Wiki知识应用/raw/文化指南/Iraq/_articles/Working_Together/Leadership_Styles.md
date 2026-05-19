@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Iraq has been shaped by decades of authoritarian rule, militia influence, and party politics. What has persisted is a model of leadership that combines command with protection. Leaders are expected to be strong and decisive, often feared to some degree, but they are also expected to shield their people from external threats. This duality is not seen as contradictory. Staff look for leaders who can hold ground under pressure and defend their interests when conditions are hostile.
+
+A leader in Iraq often answers to more than one constituency. The same person may be accountable to a religious authority in Najaf, a political party, a tribal network, and in some cases a militia or security actor. Employees watch which loyalty takes precedence, and decisions that appear irrational to an outsider may make sense within this web of obligations. What looks like hesitation or inconsistency is often a leader managing competing pressures that are largely invisible to those outside the system.
+
+Leadership cultures vary between the Kurdistan Region and federal Iraq. In the Kurdistan Region, especially in sectors that work with international partners, leaders often blend tribal and party-based authority with more familiar managerial language. In federal areas, ministerial and security hierarchies are more dominant. Across both contexts, leaders are judged by how well they protect and pay their staff under pressure, not just by deliverables. If you lead an Iraqi team, your credibility will depend on how you advocate for them when things become difficult. Address difficult issues privately or through trusted intermediaries, and frame collaboration in terms that reduce risk and preserve honor in front of a leader's multiple audiences.

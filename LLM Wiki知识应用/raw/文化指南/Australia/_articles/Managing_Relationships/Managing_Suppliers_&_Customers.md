@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Australian customers and procurement teams tend to favor suppliers who deliver reliably and communicate honestly over those who promise innovation but overpromise. This reflects a broader cultural preference for practical results and straightforward dealings. A pitch that emphasizes steady service, transparent pricing, and simple processes will often land better than one built on hype or complexity. Suppliers who follow through consistently and respond quickly when issues arise build the kind of trust that sustains long-term relationships.
+
+Compliance with consumer protection, workplace safety, and environmental regulations is expected as a baseline, not a point of differentiation. Strong legal protections mean customers will challenge suppliers directly if they feel standards have not been met, and government and critical infrastructure procurement processes assume full regulatory alignment. For international suppliers, investing in local presence—Australian-based staff, service centers, and accessible phone support—addresses this expectation and reassures buyers that issues can be resolved in real time, not through distant offshore channels.
+
+In regional and Indigenous contexts, suppliers are judged on how they engage with local communities, not just how they perform on contract. Hiring locally, respecting Indigenous knowledge and connection to Country, and responding during crises all contribute to what is often called social license to operate. Projects that treat community consultation as a compliance exercise rather than genuine partnership risk reputational damage and practical resistance. Working with Australian partners to design meaningful community benefit and engagement strategies demonstrates understanding of this expectation.

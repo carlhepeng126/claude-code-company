@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Cyprus, professional relationships often begin through personal networks. The island's small size means that people are frequently connected through family, shared university experiences, or mutual acquaintances. A warm introduction from someone already known and trusted makes the path smoother. Cold outreach can work, particularly in larger companies or international sectors, but a referral from a colleague or business contact will usually accelerate the conversation and lend immediate credibility. If you're trying to reach someone without a shared connection, expect to invest more time building familiarity before the relationship moves forward.
+
+Scheduling is generally straightforward. Email is widely used, and appointments can be arranged a week or two in advance without difficulty. Confirming the day before is considered courteous and practical. Cypriots tend to be accommodating with timing, though meetings may start a little later than scheduled or extend beyond the allotted time if the discussion is productive. Allow some flexibility in your calendar rather than booking back-to-back commitments.
+
+There are differences across sectors and generations. Younger professionals and those in multinational firms often move quickly to business topics and prefer structured scheduling. In smaller, family-run businesses or more traditional sectors, the pace may be slower, and the initial meeting might focus more on getting to know each other than on immediate outcomes. These conversations lay the groundwork for trust, which underpins longer-term collaboration.

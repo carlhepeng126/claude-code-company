@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Portugal are shaped by a cultural preference for order made visible. Decades under the Estado Novo bureaucracy embedded a public expectation that legitimacy comes from proper form, not just personal conviction. This means that decisions often need to be documented, structured, and traceable to feel final. A verbal agreement may be genuine, but until it is written down and formalised, it may still be negotiable in practice. If you want a decision to hold, summarise it clearly, confirm who approved it, and follow up in writing.
+
+Portuguese decision-making also values harmony on the surface and alignment underneath. Blunt disagreement or forcing a choice in a large meeting can create discomfort. Instead, decisions often form through quieter one-on-one conversations, careful checking of comfort levels, and gradual building of consensus. A colleague from a culture where decisions are reached through open debate may read this as indecisiveness or avoidance. From a Portuguese perspective, that same colleague's directness may feel unnecessarily confrontational, risking damage to working relationships before trust has been properly built. The goal is to keep dignity intact and the path forward open, not to avoid the decision itself.
+
+This is paired with a culturally admired capacity for improvisation. *Desenrascanço* (the ability to unstick a problem with a workable fix) sits comfortably alongside the desire for decisions to eventually become stable and tidy. When obstacles arise, calmly exploring options and then restoring order is both expected and respected. What matters is that informal flexibility eventually returns to formal clarity, not that everything runs to plan from the start.

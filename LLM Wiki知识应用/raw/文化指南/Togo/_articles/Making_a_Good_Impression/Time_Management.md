@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Togo, time follows social and relational logic more than fixed schedules. This reflects long-standing communal traditions where collective obligation and interpersonal connection shape how people organize their day. A meeting may start later than announced if someone senior has not yet arrived, or if an exchange of greetings and relationship-building comes first. The delay reflects respect for hierarchy and the belief that relationships enable everything that follows. Arriving exactly on time to a gathering can sometimes position you awkwardly as the first person there, waiting alone while others are still making their way.
+
+This flexibility shows up unevenly across contexts. In private-sector companies with international ties or export-dependent industries, punctuality is taken seriously and deadlines are managed closely. In government offices, family-run enterprises, or among long-term collaborators, schedules may shift without advance notice and timelines stretch to accommodate other priorities. These are not signs of inefficiency but of a system where trust and social cohesion enable work to happen, sometimes more reliably than rigid process alone.
+
+A colleague from a culture where meetings begin at the stated time may read late starts as unprofessional or disorganized. From a Togolese perspective, the colleague who moves straight to business without acknowledging those present may seem transactional or even dismissive. If you are coordinating across these styles, confirm not just the meeting time but also when substantive discussion is expected to begin, and allow time for greetings and informal exchange before formal agenda items.

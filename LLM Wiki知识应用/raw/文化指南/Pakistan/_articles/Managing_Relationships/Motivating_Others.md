@@ -1,0 +1,11 @@
+# Motivating Others
+
+## Managing Relationships
+
+Motivation in Pakistan connects closely to honour, family duty, and social standing. Izzat, the sense of personal and collective dignity, shapes how people experience recognition. Someone can be energised by praise that strengthens their standing, but recognition that feels theatrical, infantilising, or over-public can undermine respect rather than build it. A manager who thanks a colleague privately or acknowledges their reliability in front of trusted peers affirms their competence without turning them into a spectacle. Where izzat is at stake, how you recognise someone can mean more than the fact of recognition itself.
+
+For many people, work is inseparable from the duty to provide for family and uphold family respectability. In settings where biradari networks shape social life, a person's sense of purpose often comes from being dependable, maintaining dignity, and fulfilling obligations across extended kin. Stability, trust, and being seen as reliable can motivate more powerfully than abstract inspiration or individual achievement framed in purely personal terms. Where a colleague from a culture that emphasises autonomy and personal goals might respond to opportunities for ownership and visibility, a colleague in Pakistan may respond more to being treated as someone whose contribution protects and honours those they provide for.
+
+Belonging is proven through inclusion, not slogans. People are motivated when they are consulted, brought into informal conversations, and given responsibilities that signal confidence. Exclusion can feel like a mark of low standing, so access and trust often energise more than generic rewards or distant targets.
+
+Pakistan's social diversity means motivation looks different across settings. English-medium professionals may respond to credential recognition and development opportunities. Small-town mercantile environments may respond more to long-term relationship and loyalty. Kin-anchored or rural settings may respond strongly to duty, honour, and dependability. What energises an urban professional team may not energise a team shaped by family obligation or religious service.

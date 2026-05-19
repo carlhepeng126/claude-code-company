@@ -1,0 +1,11 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Mauritania draw legitimacy from more than one source. Institutional authority, family lineage, and religious-scholarly standing can all shape how a choice is judged. These frameworks are not competing; they often stack. A manager in a state institution may still need to consult elders from their lineage network or seek informal backing from a respected religious figure before a decision is considered sound. For international teams, this means that formal approval may not be the only step. Identify early which voices beyond the organizational chart hold influence, and allow time for that wider endorsement to form.
+
+Time itself signals seriousness. Mauritania's hospitality traditions, encoded in rituals like the three rounds of tea, reinforce the idea that important matters deserve proper pacing. Rushing a decision can be read as shallow or disrespectful. A colleague from a culture where decisions are made quickly may see this as inefficiency or evasion, while a Mauritanian counterpart may view rapid closure as a sign that the issue was not weighed carefully. If you need to move faster, explain the external pressure clearly and propose interim steps that preserve the sense of deliberation.
+
+Inclusion is not just procedural. It can be politically and emotionally charged, shaped by Mauritania's legacy of social stratification and discrimination, particularly affecting Haratin communities. Who is consulted, and whose voice is recognized in a decision, sends a message about respect and fairness. Even in technical contexts, check that participation does not reproduce old hierarchies. Make space for contributions from people whose formal rank may not reflect their knowledge or stake in the outcome.
+
+Environmental vulnerability adds another layer. In heritage-linked sectors, where threats like desertification and the encroachment of dunes around towns such as Chinguetti are lived realities, decisions are often weighed against long-term stewardship. Framing a proposal in terms of preservation or irreversible loss can carry real force.

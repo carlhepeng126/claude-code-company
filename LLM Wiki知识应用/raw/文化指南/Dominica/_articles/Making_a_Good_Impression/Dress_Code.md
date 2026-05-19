@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional dress in Dominica is shaped by Caribbean informality and a formal British administrative tradition. The result is a workplace culture where standards are clear but not rigid, and where overdressing feels out of step with the environment. In government offices, banks, and law firms, men wear long trousers with a collared shirt, often paired with a tie. Women typically choose modest dresses, skirts, or tailored trousers with blouses. Lightweight fabrics matter in a tropical climate, and darker colors tend to dominate despite the heat. A suit jacket is rarely required outside of formal meetings or legal settings, but the overall impression should be neat and respectful.
+
+Outside formal institutions, expectations soften. In tourism, agriculture, or small business settings, smart casual is acceptable. A clean polo shirt or pressed trousers will serve you well. Still, even in less formal contexts, appearance reflects effort, and showing up in beachwear or overly casual clothes can read as disrespectful. If you're meeting someone for the first time or attending a community event, err on the side of formality until the tone is clear.
+
+Generational differences are noticeable. Older professionals and those in senior roles tend to maintain more conservative standards, while younger colleagues in creative or tech-oriented roles may dress more casually. That said, the shift is gradual, and in public-facing or client-based roles, the expectation to present yourself well remains strong across age groups. If you're uncertain, watch what your counterpart wears and adjust accordingly for your next meeting.

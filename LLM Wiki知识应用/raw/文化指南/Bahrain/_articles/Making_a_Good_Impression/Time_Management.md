@@ -1,0 +1,11 @@
+# Time Management
+
+## Making a Good Impression
+
+Bahrain runs on two clocks. For meetings with international banks, aviation partners, or oil clients, schedules are tight and 9:00 means 9:00. But the same person who starts a London call on time may think nothing of a 21:00 meeting that begins at 21:40, because evenings run on Gulf time: slower, relational, shaped by late visits, diwaniyas, and family obligations. This isn't inconsistency. It reflects the dual rhythms many Bahrainis navigate daily, switching between global precision and local flexibility depending on the setting and the relationship.
+
+Geography reinforces this fluidity. Manama and Muharraq sit on a small island where most destinations are less than an hour apart, so it's easy to stack office work, family visits, and social gatherings in one day. That proximity makes last-minute reshuffling normal. A colleague may call to say, "I'm nearby, can we move it?" because the distance doesn't justify locking things down weeks in advance. Similarly, professionals who commute across the causeway to Saudi Arabia or entertain clients there factor in Thursday night traffic jams and holiday border delays that have nothing to do with the office calendar but quietly shift what's realistic.
+
+Religious and village calendars also override digital diaries. During Ashura processions, Ramadan evenings, or large mawlids, a calendar may look free but someone has already mentally committed that time elsewhere. People rarely decline in writing, but the evening is for the village, and that takes quiet precedence. For colleagues used to calendars as binding agreements, this can feel opaque. For Bahrainis, it reflects a social logic where certain obligations don't need to be announced to be real.
+
+To work effectively, build flex into evening meetings and assume people are balancing multiple worlds. Ask directly about religious seasons, village events, and causeway traffic when planning workshops or deadlines. Anchoring time-sensitive decisions in the global-clock part of the day, typically early or mid-morning, keeps momentum clear, while evenings work better for relational follow-up than tight turnarounds.

@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time management on Cocos (Keeling) Islands reflects the dual identity of the territory: Home Island's Cocos Malay community and West Island's smaller administrative and service population operate on different rhythms. Home Island's approach is shaped by Islamic practice and the close-knit social fabric of a small, historically isolated community. Daily prayers structure the day, and meetings or work arrangements often accommodate religious observance without question. Relationships take precedence over rigid scheduling, and it would be unusual to prioritize a deadline over a family obligation or community event.
+
+On West Island, where government offices and contractors follow Australian administrative norms, punctuality and formal scheduling are more consistently observed. Meetings begin on time, and written deadlines are generally respected. However, even here, the small size of the workforce means that personal circumstances are widely known and accommodated. A colleague's absence for a family matter or travel delay due to infrequent flights is understood, and timelines adjust accordingly without the formality typical of larger organizations.
+
+Colleagues accustomed to time as a non-negotiable resource may read Home Island's flexibility as disorganization. From the Cocos Malay perspective, inflexible adherence to a schedule at the expense of relational care can seem impersonal or disconnected from what sustains a community over time. When working across both islands, confirm expectations early and in writing, especially around deadlines tied to external stakeholders. Allow buffer time for coordination, and recognize that responsiveness may vary depending on the day, the person's island, and the nature of the request.

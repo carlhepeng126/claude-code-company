@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Botswana's professional culture is shaped by the principle of *botho* (respect, dignity, and shared humanity), which influences how greetings, conversations, and gestures unfold in the workplace. Interactions are polite, measured, and relationship-focused. Greetings take time and follow a recognizable rhythm: a handshake, often accompanied by eye contact and inquiries about health, family, or the day ahead. Skipping this ritual or rushing through it can suggest indifference. Even in formal settings, people address each other by title and surname until invited to do otherwise, reflecting the value placed on respect and social order.
+
+Communication tends to be indirect, especially when delivering unwelcome news or disagreement. Criticism is softened to preserve harmony, and refusals may come wrapped in politeness or silence rather than stated outright. A colleague who says "we will see" or "let me think about it" may be signaling hesitation or a gentle no. Pushing for a direct answer can backfire, as it places the other person in an uncomfortable position. In practice, this means following up privately, rephrasing your request, or allowing more time for a response to emerge naturally.
+
+Physical gestures follow conventions rooted in respect. The right hand is used for greetings, offering items, and eating. Using the left hand, especially when passing something to someone senior, can be read as careless or disrespectful. Personal space is generally maintained in professional settings, and physical contact beyond a handshake is uncommon unless a strong relationship has been established.
+
+Business card exchanges are straightforward but not formulaic. Cards are typically exchanged after introductions, presented with the right hand or both hands, and received with a brief glance to acknowledge the gesture. English is widely used, though a card in Setswana can be a thoughtful touch in government or traditional authority contexts.

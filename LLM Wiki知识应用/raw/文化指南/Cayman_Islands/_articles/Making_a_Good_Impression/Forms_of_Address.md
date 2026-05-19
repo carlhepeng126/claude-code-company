@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Formality shapes first impressions in the Cayman Islands workplace, especially in settings where British institutional influence remains visible. Titles followed by surnames are standard until a colleague offers first names directly. "Mr.," "Mrs.," or "Ms." paired with the family name sets the respectful tone expected in banking, law, and government sectors. Professional credentials such as "Dr." or formal roles like "Director" appear often and matter in correspondence and introductions. Dropping into casual address too quickly can read as presumptuous, particularly with senior colleagues or clients from the long-established Caymanian community.
+
+The shift to first names happens more readily in newer industries like tech or hospitality, and among younger professionals who have studied or worked abroad. Even so, wait for the invitation rather than initiating it yourself. In written communication, openings like "Dear Mr. Smith" remain the norm for formal emails and letters, with closings such as "Yours sincerely" or "Kind regards." Digital channels follow the same pattern until a relationship is clearly established.
+
+Greetings tend to be courteous but understated. A firm handshake, direct eye contact, and a brief exchange of pleasantries are typical in business meetings. Physical warmth is reserved for social settings or longstanding working relationships. Colleagues from cultures where informality builds rapport quickly may find the measured style harder to read at first, while Caymanians meeting counterparts who use first names immediately may wonder whether the relationship has been properly anchored. Let the pace of familiarity develop naturally rather than forcing it forward.

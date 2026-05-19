@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Bosnia and Herzegovina usually takes place over coffee or meals, and the setting reflects both hospitality and practicality. Restaurants or kafanas (traditional local eateries) are common choices, particularly in cities like Sarajevo or Banja Luka. Coffee meetings can last an hour or more and often precede or follow formal discussions. These gatherings are less about closing a deal than about building the personal connection that makes doing business possible. Trust in Bosnia and Herzegovina develops through repeated, informal contact, and meals offer a natural setting for that.
+
+Alcohol may be present depending on the individuals involved and the region. Bosnia and Herzegovina is ethnically and religiously diverse, and whether alcohol is ordered or offered depends largely on the makeup of the group. In some circles, particularly among Bosniak Muslims, alcohol may not be consumed. In others, especially in more secular or ethnically Croat or Serb settings, rakija (fruit brandy) or beer may be offered as a gesture of warmth. The safest approach is to wait and follow the host's lead rather than ordering independently.
+
+Conversation during meals tends to be personal, ranging across family, sports, and current events. Business topics may emerge lightly, but usually only after rapport has been established. Raising work matters too quickly can feel transactional. The meal itself serves as an informal assessment of character and compatibility, and the relationship being built over food often determines how smoothly formal negotiations proceed later. Reciprocating an invitation, either during the same visit or on a return trip, is noticed and appreciated.

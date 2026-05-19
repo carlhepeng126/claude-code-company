@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Thailand functions as a way of demonstrating character through warmth and generosity, qualities known as *nam jai* (literally "water from the heart," referring to kindness and goodwill). Hosting well shows you understand the value of relational care. Meals and social gatherings are less about advancing specific outcomes and more about building trust through repeated, low-pressure interactions where people can observe whether you're respectful and steady over time. Pushing for decisions or commitments during these occasions will usually result in harmony-preserving responses that defer real answers, because the social goal is ease, not resolution.
+
+Restaurant meals are the most common format, often involving groups rather than one-to-one meetings. Even if you have a single contact, they may bring several colleagues. Thai cuisine is frequently chosen, and meals are treated seriously—eating should not be rushed. The person who invites or the most senior person present typically pays. If you want to reciprocate, arranging payment discreetly with the restaurant beforehand allows your Thai counterparts to avoid any awkwardness around the bill.
+
+Conversation during entertaining tends to stay light and non-confrontational. *Kreng jai* (the reluctance to impose or create discomfort) shapes what people will say socially, so disagreements or refusals are softened or avoided entirely. Certain topics—especially anything that could be perceived as disrespectful toward major institutions—are considered inappropriate. Keep humor careful and avoid testing boundaries with provocative commentary, which can create discomfort that lingers well beyond the meal itself.

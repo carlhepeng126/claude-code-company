@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Greetings in Namibia do social and relational work before they do transactional work. In many communities, greeting is a ritual of recognition that confirms relational presence and social order. This is especially true in settings where elders, community leaders, or church figures hold moral standing. Taking greetings seriously, rather than treating them as a quick preface, supports trust because recognition rituals are part of respect. If you move straight to business without investing time in a greeting sequence, the exchange may feel abrupt or dismissive. 
+
+Older people often embody legitimacy through lived experience, family continuity, and moral guardianship. This means respect toward elders reflects not just courtesy but a commitment to sustaining social order. When meeting a tribal chief, for example, you should take someone with you who serves as a mutual contact, wait for the chief to speak first, and let them lead the conversation. Address government ministers as Mr or Ms Minister and ambassadors as Your Excellency. More broadly, do not use first names until invited. Namibia is a relatively formal country, and younger people typically defer to older people in conversation, sometimes limiting eye contact as a sign of respect.
+
+Language and title choices can shift the emotional register of address. English-language address often feels institutional, while local-language address can feel relational and belonging-based. In some settings, titles associated with customary leadership or church leadership hold dignity weight that professional titles cannot replace. Afrikaans and German may carry different historical and class associations, especially in older urban settings, and can affect whether address feels warm, distant, or politically loaded.
+
+Regional variation also shapes what respectful address sounds like. Northern Oshiwambo-speaking settings, central Otjiherero-linked settings, and southern Nama/Damara worlds can differ in greeting cadence, the role of elders, and the preferred balance between warmth and restraint.

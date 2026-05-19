@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional dress in Kuwait reflects both personal piety and social standing, often within the same office. It's common to see Kuwaiti men in dishdasha (a floor-length robe worn with a white headdress) working alongside colleagues in Western suits, or women in abaya and hijab beside those in smart business dresses. These choices reflect family conservatism and religious observance, and both are read as equally professional. For international colleagues, smart business attire is the baseline: covered shoulders, skirts or trousers that sit at or below the knee, and nothing tight or overly bright. Darker colors tend to be favored, though lighter linen suits are acceptable given the heat. Quality matters more than flash. A good watch will be noticed; a loud pattern or conspicuous jewelry may read as misjudged.
+
+The formality of the setting shifts the expectation. Ministries and banks lean toward polished, formal dress. A diwaniya, the semi-private salon where much business relationship-building happens, may feel more relaxed, with men in dishdasha and sandals, but it remains status-conscious. You're entering someone's social space, so it's worth asking a local colleague what's appropriate before you go.
+
+Women should be aware that grooming and presentation are closely observed. Kuwaiti women are often highly polished, and in a male-dominated professional environment, appearance becomes part of how credibility is assessed. In mixed expat and Kuwaiti settings, let your Kuwaiti colleagues set the tone for informality. Keeping your baseline modest gives you room to adapt without overstepping.

@@ -1,0 +1,11 @@
+# Decision-Making
+
+## Working Together
+
+In Chile, formal authority sits at the top, but decisions often require quiet clearance from several directions before they move forward. Senior leaders make the final call, but they consult widely first — not to share power, but to avoid becoming the person who backed a proposal that failed. After a series of national crises, from the 1980s crash to more recent social and economic shocks, many decision-makers have absorbed a wariness of bold moves. The question they often ask is not whether an idea is good, but whether they can survive it if it goes wrong.
+
+This caution is especially visible in companies controlled by large family-owned business groups, where reputational risk is personal. Strategy may be discussed in professional terms across management teams, but major decisions often require informal approval from the controlling family. Their concerns — about public perception, long-term stability, and avoiding exposure — shape what gets the green light, even when the business case is clear.
+
+At the same time, certain actors inside and outside the organization function as veto players. Legal, risk, union representatives, environmental units, or key clients may not be the formal decision-maker, but if they are not on board, the process stalls without explanation. These actors are often engaged informally, and their influence may not be visible on an organizational chart. If you are proposing a change, ask early who holds these roles and plan direct engagement with them, not just the named owner of the decision.
+
+For colleagues used to faster decision cycles, this can feel slow or overly cautious. From a Chilean perspective, a colleague who pushes for speed without addressing downside scenarios may seem reckless or unaware of the social and organizational cost of a visible mistake. Presenting risk mitigation and damage-control plans alongside the upside makes commitment easier, because it shows you understand what failure would mean — not just for the business, but for the people attached to it.

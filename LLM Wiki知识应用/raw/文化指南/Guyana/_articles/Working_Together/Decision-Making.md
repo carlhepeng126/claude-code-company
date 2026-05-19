@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in Guyana often unfolds through quiet consultation rather than quick pronouncement. Leaders may hold formal authority, but they rarely exercise it in isolation. Before reaching a conclusion, many Guyanese managers will sound out trusted colleagues, peers, or senior figures within their network. This is not hesitation or avoidance of responsibility. It reflects a cultural preference for decisions that work socially as well as operationally. The goal is to reduce friction, build alignment, and ensure that the decision sits well within the team and the wider organization.
+
+This approach can create confusion for colleagues from cultures where decisions are made quickly and communicated top-down. A manager from such a setting may see the consultation phase as delay or lack of clarity. From the Guyanese side, a decision made without input can feel abrupt or disconnected, as though relationships and group cohesion were not considered. The practical implication is to allow time for informal check-ins before expecting a final answer, and to recognize that a decision announced without visible consultation may be received with quiet skepticism.
+
+Senior figures hold real influence, and their approval is often needed before action can proceed. This does not mean decisions are dictatorial. It means hierarchy is acknowledged, but used alongside relational insight. If you are working with a Guyanese team, involve senior leaders early and frame proposals in ways that acknowledge their experience. Be prepared for decisions to shift if family, regional, or social factors come into play later. Flexibility in implementation is common, and adapting timelines or priorities based on these realities is not seen as inconsistency but as responsiveness to context.

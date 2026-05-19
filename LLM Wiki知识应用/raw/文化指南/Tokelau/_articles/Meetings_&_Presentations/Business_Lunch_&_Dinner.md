@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Tokelau has no restaurants, no commercial food service, and no tradition of business dining as a separate category of professional life. The three atolls are small, dispersed communities where meals happen in family homes or communal settings organized by the village. If a visiting colleague or development partner is on the atoll for work, they will be hosted in someone's home or invited to eat at a community gathering. The meal reflects hospitality rooted in kinship and collective responsibility, not transactional protocol.
+
+Food is shared from communal dishes, and the host typically serves guests before others eat. Refusing food can feel like refusing the relationship itself, so visitors are expected to accept what is offered, even if portions are modest or unfamiliar. Meals often include fish, breadfruit, coconut, taro, and pulaka, prepared simply and shaped by what the atoll provides. Dietary restrictions should be mentioned quietly and early, ideally through a local contact, so the host can adjust without public attention.
+
+Conversation during meals tends to be informal and relational. Topics may range widely, touching on family, the atoll, the weather, or shared concerns, but the tone remains grounded in connection rather than agenda. A visitor who shifts quickly into work talk or tries to close a decision over food may come across as impatient or disconnected from the social fabric that underpins collaboration. Allow the host to guide the rhythm, and expect that agreements, if they come, will emerge after trust has been quietly built across several encounters.

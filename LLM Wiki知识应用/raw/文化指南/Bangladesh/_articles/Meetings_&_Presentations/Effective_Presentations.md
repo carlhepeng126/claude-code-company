@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Bangladesh work best when they balance formality with warmth. Your audience will be assessing not just your content, but your intent and your respect for relationships. A polished deck full of data can fall flat if it feels impersonal or transactional. Open with acknowledgment of senior figures in the room and establish rapport before moving into detail. This sets the tone and shows you understand the relational foundation that underpins professional trust in Bangladesh.
+
+Keep your language accessible and your explanations contextual. Many Bangladeshi professionals are highly educated and multilingual, but presentations that assume too much technical jargon or move too quickly can create distance. Walk through your reasoning, not just your conclusions. If you're proposing change or recommending a new approach, frame it in terms of collective benefit and continuity rather than disruption. A colleague from a culture where bold, independent ideas are rewarded in meetings may find this indirect, but in Bangladesh, proposals that feel abrupt or self-serving can stall. Conversely, someone from Bangladesh presenting in a more direct environment may worry their careful framing is being read as evasive when it's actually designed to preserve dignity and build consensus.
+
+Be ready for questions that explore your commitment and long-term thinking, not just the immediate plan. Decision-makers may not speak up in the room, preferring to reflect or consult privately afterward. If senior figures remain quiet, it doesn't mean disengagement. Follow up individually where appropriate, and treat post-presentation conversations as part of the real work, not a sidebar.

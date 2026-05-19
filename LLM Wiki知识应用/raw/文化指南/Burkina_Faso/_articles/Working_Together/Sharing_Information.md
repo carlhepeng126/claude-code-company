@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information flows through personal networks in Burkina Faso, and access depends on the strength of your relationships. In a society where trust is built slowly through repeated interactions and often reinforced by family or community ties, sharing knowledge with someone you don't know well can feel risky. People want to understand who you are connected to and what you will do with the information before opening up. A colleague in Ouagadougou might hold back key details in early meetings, not because the information is sensitive, but because the relationship hasn't yet earned the depth that makes sharing feel safe. Once trust is established, the same colleague will share openly and may even offer insights you didn't ask for.
+
+Hierarchies also shape who knows what and when. Senior figures often control the flow of information within teams, and bypassing them to ask someone more junior directly can cause discomfort. Information may not move freely across departments or levels, especially if sharing it might expose a mistake or create conflict. In a culture where preserving dignity and group harmony runs deep, the instinct is to manage problems quietly rather than broadcast them.
+
+Building the kind of trust that loosens information sharing takes time and visibility. Showing up regularly, following through on small commitments, and demonstrating respect for local authority all help. Informal settings like shared meals or time outside formal meetings create space for conversations that wouldn't happen in a conference room. If you treat every exchange as transactional, you'll find yourself working with incomplete information for much longer.

@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Chad tend to be arranged with less advance notice than international partners may be used to, though confirmed appointments should still be respected. Timing can shift, and delays are common, especially when senior figures are involved. This reflects Chad's relationship-centered approach, where personal obligations and hierarchy often take precedence over fixed schedules. A colleague from a culture where punctuality anchors credibility might read a late arrival as disrespect, while a Chadian counterpart may see rigid adherence to start times as inflexible when more urgent relational or hierarchical demands arise. Building buffer time into your schedule and confirming details the day before will help manage expectations on both sides.
+
+Senior decision-makers are expected to attend, and their presence shapes the meeting's tone. Junior staff rarely speak unless invited to do so, and authority flows clearly from the top. Opening conversations often begin with extended greetings and personal inquiries, which establish rapport and signal respect. Moving too quickly to business can come across as transactional or dismissive. Once the agenda begins, discussion may be formal and cautious, particularly in first meetings. Asking open questions and allowing time for considered responses will encourage fuller participation.
+
+Decisions are seldom made in the room. Consensus-building happens outside the formal meeting, often through informal consultation with trusted advisors or senior figures. Pressing for immediate commitments or outcomes can backfire, as it ignores the relational and hierarchical review that underpins trust. Follow-up conversations and patience will yield more than pushing for closure on the spot.

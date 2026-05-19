@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiations unfold through conversation that circles back, jumps ahead, and tests possibilities rather than following a single track. Two phrases reveal which direction you're heading. "Δεν βγαίνει" (den vgainei, "it doesn't come out" or "it doesn't add up") signals a genuine constraint, usually around numbers or feasibility. When you hear this, the obstacle is real. "Θα το βρούμε" (tha to vroume, "we'll find it") shows willingness to keep adjusting variables until something works. Recognizing the difference between these tells you whether you've hit a red line or whether there's still room to move.
+
+What sounds like exaggerated humor often carries coded information. A colleague might say, half-joking, "If we sign that, we'll be in prison tomorrow," or "No union will let us sleep." This light tone is how people flag serious constraints without forcing a confrontation. The joke gives you a way to ask what would make the deal workable without escalating tension. A colleague from a culture where objections are stated plainly may find this indirect, or read it as pure banter. From a Greek perspective, blunt refusal can close off the conversation too early, while humor keeps dialogue open and preserves the relationship even when interests clash.
+
+Long memories of past bankruptcies, broken political promises, and partners who disappeared mid-deal shape what people will accept now. Sectors burned during the crisis remain wary of clauses that once looked reasonable on paper but created real liability later. Asking what went wrong last time, and designing proposals that avoid repeating those patterns, shows you understand the context. Negotiations move faster when people feel the deal won't replay old traumas.

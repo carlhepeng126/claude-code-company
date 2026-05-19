@@ -1,0 +1,11 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Relationship strength underpins every commercial exchange in Malaysia. Trust and personal connection shape whether a supplier delivers on time, whether a customer returns, and how flexibly both sides respond when plans shift. Business lunches, regular visits, and even after-hours time at a mamak stall (a 24-hour Indian Muslim eatery that functions as a social meeting place) are where much of this trust is built and tested. Reputations move quickly through these informal networks, so how you handle a small problem or show up consistently can have a reach far beyond the immediate transaction.
+
+Deadlines and contracts function differently here than in cultures where agreements are treated as fixed commitments. A delivery date often reflects intent rather than a binding point in time, and a signed contract may be understood as the start of a working relationship rather than a final document. Suppliers may adjust terms as circumstances evolve, expecting the relationship to absorb the change. A colleague accustomed to rigid timelines and legal enforceability may read this as unreliability, while a Malaysian counterpart may view insistence on the original terms as inflexible or distrustful. Building in room to adapt and keeping communication open and collaborative reduces friction on both sides.
+
+Where halal certification applies, it functions as institutional credibility, overseen by JAKIM, Malaysia's official halal authority. Choosing a venue or supplier without recognized certification can quietly signal unfamiliarity or disregard for what many customers and partners treat as a public trust standard, especially in Muslim-majority contexts.
+
+How you correct an error or decline a request also shapes perception. Directness without courtesy can be read as incompetence, even if the fix is fast. Tone, privacy, and tact protect dignity and preserve the relationship, which in Malaysia often determines whether the commercial tie continues.

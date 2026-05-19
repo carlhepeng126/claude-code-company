@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hospitality in Azerbaijan is close to a national identity. Azerbaijanis often describe themselves as a hospitable people, and the concept of *qonaqpərvərlik* (hospitality) shapes how guests are received. When you are invited into someone's home, expect generosity that may feel disproportionate to the occasion. The table will be abundant, sometimes straining the host's budget, because how well guests eat and drink reflects directly on the host's worth. Your role as a guest is to accept this care gracefully, eat at least a little of everything offered, and show specific appreciation rather than general praise. Saying something like "this *plov* reminds me of home cooking" will mean more than a polite compliment about the meal.
+
+An invitation home shifts you from the outer circle of formal contact into the *daxili dairə*, the inner circle. This is where you meet extended family, see religious or regional symbols that stay out of the office, and understand how children are raised. The visit is not purely social. It signals trust and opens the relationship in ways that no meeting room can. Arrive with a small, thoughtful gift such as good chocolate, a book, or something from your own region. Conspicuous luxury can feel uncomfortable, especially where there is visible inequality. Remove your shoes at the door and greet the most senior person first before acknowledging others.
+
+Meals follow a relatively formal rhythm. Wait to be seated, and if there are older guests, let them sit first. The host, often a woman, may not sit with you but will ensure the table stays full. If you decline a second helping, expect to be asked again. Toasts and speeches punctuate the meal, and making a short toast of your own as a guest is both expected and valued. Follow up afterward with thanks and perhaps a photo or a small gesture in return. This shows you understood the emotional weight of the invitation.

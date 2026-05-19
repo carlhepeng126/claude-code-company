@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiations in South Korea draw on a blended heritage. Confucian values encourage harmony and politeness, while modern corporate life demands assertiveness and efficiency. The result is a style that can feel formal and relationship-focused in early stages, then shift to frank, sometimes emotional exchanges once trust is established. Expect a long process of relationship-building before substantive talks begin. Demonstrating long-term commitment and showing respect for your counterpart's position and constraints matter more than presenting perfect terms upfront.
+
+Hierarchy shapes who negotiates and how decisions unfold. Talks need to happen between people of similar seniority, or the meeting may lack authority to deliver results. Senior decision-makers may set the tone and steer direction, while junior colleagues handle technical detail. Internal alignment often requires multiple rounds of consultation, so pressing for immediate answers can backfire. Leave room in your proposal for adjustments. Balanced outcomes perceived as fair and honorable sustain partnerships better than aggressively one-sided deals.
+
+Resistance is rarely voiced directly. Silence, non-committal phrases, or a sharp intake of breath through the teeth signal discomfort or disagreement without the word "no." A smile can express embarrassment or distress as easily as satisfaction. Yes may mean understanding, conditional agreement, or simply a wish to keep the conversation moving. Reading these signals becomes easier when rapport has been built beforehand. A skilled interpreter can help decode ambiguity, but the foundation is trust, not translation alone.

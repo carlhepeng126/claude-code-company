@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Taiwan centres on shared meals and is understood as a way to deepen familiarity and build trust outside the structure of the meeting room. Invitations to dinner, hotpot or night market outings reflect hospitality rooted in food-centred social life, where eating together creates opportunity for lighter conversation, personal exchange and a more relaxed sense of connection. The aim is usually relational rather than transactional. Business may come up briefly or not at all, and pushing the agenda too early can feel rushed or out of tune with the occasion.
+
+Dinners are often held at banquet restaurants or smaller local eateries and may feature multiple courses served family-style from shared dishes. Using chopsticks is expected, though serving spoons or communal chopsticks should be used when taking food from shared plates rather than your own. Complimenting the food and sampling different dishes, within your comfort level, shows appreciation and engagement. Meals can run several hours, with conversation moving between work topics, family life, travel and local interests. Humor and personal stories often feature more prominently than they would in the office.
+
+Alcohol, typically beer or rice wine, may be offered, though pressure to drink heavily is less common than in some other East Asian settings, especially among younger professionals or in less formal gatherings. Toasts may still occur, and participating where comfortable is appreciated. If you are invited, accept warmly and plan to reciprocate on a future visit or later in the relationship. Attempting to pay the bill when you are the guest will likely be politely refused. Let your host lead, and return the gesture when you are in a position to do so.

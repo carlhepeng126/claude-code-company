@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional appearance in Belarus carries social weight. In business settings, particularly in state institutions, banking, and traditional sectors, presentation is formal: dark suits and conservative tailoring for both men and women. This reflects a broader expectation that respect for the occasion and the people you are meeting is expressed, in part, through visible effort in how you present yourself. Arriving well-dressed to a meeting or official engagement is understood as a form of professional seriousness. 
+
+Expectations shift by sector and generation. In technology, design, and younger entrepreneurial environments, business casual is more common, though even here the approach is intentional rather than relaxed. Colleagues may dress more freely, but rarely carelessly. What remains consistent across contexts is that dress is seen as a choice that communicates something about you. A counterpart from a culture where informality is the norm in professional settings may find Belarusian colleagues more formal than expected. From the Belarusian side, someone arriving in casual clothing to a first meeting may be read as less committed or less aware of the setting.
+
+At evening events, dinners, or cultural occasions, formality tends to increase. A well-fitted jacket or dress is the baseline, and your host will likely arrive dressed accordingly. In religious or cultural spaces, modesty is expected: shoulders covered, skirts below the knee, no shorts for men. Adjusting your clothing to match the setting shows that you understand the context and take it seriously.

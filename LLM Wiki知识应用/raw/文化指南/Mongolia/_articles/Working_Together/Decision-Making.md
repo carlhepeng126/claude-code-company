@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Mongolia are rarely the outcome of a single meeting. Authority is concentrated at senior levels, and even minor matters often need formal approval from the top. This reflects both hierarchical logic and the moral weight of seniority: the person with the most experience is expected to take responsibility, not just exert control. Rushing a decision or pressing for speed can be read as failing to respect that responsibility, and it may weaken your standing. If you need an answer quickly, make that timing clear early in the process, with context for why it's needed, rather than applying pressure at the end.
+
+Consultation happens, but it is selective and often informal. Senior leaders may seek input from trusted advisors, technical specialists, or outside consultants before finalising a decision, but this does not mean the decision becomes collective. The final call still rests with the senior person, and once made, it is usually treated as settled. Middle managers may have limited room to take initiative, especially on matters that touch budgets, strategy, or external relationships. If you are working with a middle manager, confirm who holds sign-off authority and build that into your timeline.
+
+Decisions gain legitimacy when they are seen to serve the group and when they are socially visible. This is especially true in sectors tied to natural resources, where fairness and transparency matter deeply. A decision that looks purely technical may still be judged on symbolic or relational grounds, especially if it connects to identity or collective benefit. Be ready to explain not just the logic of a decision, but how it supports the people affected by it.

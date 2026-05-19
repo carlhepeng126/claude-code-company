@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Canadian meetings blend efficiency with consultation. The underlying preference for listening and inclusion, rooted in both Indigenous governance traditions and modern civic norms, means that structured agendas make room for equal input. Meetings are typically orderly and professional, but the tone remains calm rather than formal. Hierarchy exists, yet it is soft. Even senior figures expect others to contribute, and junior team members may ask questions or challenge points without anyone seeing this as overstepping. For a manager from a culture where status shapes who speaks, this can feel unexpectedly flat. From a Canadian perspective, deference that silences input can suggest a lack of engagement.
+
+Small talk is brief and polite before the agenda begins. Canadians shift quickly to task focus and expect others to arrive prepared with relevant data. Interruptions and loud disagreements are typically avoided. Turn-taking is respected, and the conversational style tends toward restraint, especially in English-speaking regions. In Francophone settings, expression may be more rhetorical, but the expectation of orderly exchange remains. Meetings are not the venue for pressure or immediate decisions. If consensus isn't reached, follow-up consultation and internal alignment will happen outside the room.
+
+For a colleague from a culture where decisions are made quickly, this can feel drawn out or indirect. Canadians, in turn, may see a push for on-the-spot commitment as premature or poorly aligned with how their teams function. Circulating an action plan after the meeting, with next steps clearly outlined, keeps momentum without forcing closure before the group is ready.

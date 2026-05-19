@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals in Canada are typically polite and relaxed, blending light personal conversation with broader professional themes. The approach reflects a broader cultural preference for building rapport without veering into overly formal or transactional territory. These meals offer a chance to strengthen working relationships rather than to push through detailed negotiations or close deals. A colleague used to combining meals with hard bargaining may find the tone unexpectedly soft, while a Canadian counterpart might read pressure over dinner as uncomfortably aggressive.
+
+Canada's multicultural makeup shows up clearly in restaurant choice. Cities and towns offer a wide range of cuisines, from regional specialties like seafood on the coasts or Prairie beef to French-Canadian dishes and Indigenous food traditions. Before arranging a meal, it's worth confirming dietary needs, whether related to religious observance, allergies, or personal preference. This small step reflects the inclusive approach many Canadians expect in professional settings.
+
+Alcohol is common but optional. Many colleagues will choose moderate consumption or none at all, and it's standard practice to ask guests whether they'd like to drink rather than assume. Heavy drinking or overly animated behavior tends to be viewed unfavorably, though some regional variation exists, particularly in parts of Quebec. Lunches are often brief, with set menus offered between late morning and early afternoon, and alcohol rarely features. Dinners typically begin around 7pm, though they may start later in Quebec, and follow a more leisurely pace without losing their professional character.

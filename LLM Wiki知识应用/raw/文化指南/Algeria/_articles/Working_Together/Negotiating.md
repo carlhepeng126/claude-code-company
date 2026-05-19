@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+In many Algerian negotiations, how an outcome is reached can determine whether it is accepted. Dignity protection shapes the exchange. Overt pressure or language that implies disrespect can harden positions even when compromise is within reach, because the worst result is being made to look small. The cultural root lies in honour and respectability codes where status preservation becomes a condition for agreement. This means offering your counterpart a way to settle without losing face often matters more than the precision of your opening terms. Protect dignity at the table, and you reduce resistance that has little to do with the substance of the deal.
+
+The preference is for settlement over victory. Tajmaat or jemaa assemblies and azref traditions historically favored restoration—negotiation, compensation, and reintegration rather than punitive outcomes. That leaves a cultural sense that a good result repairs balance and allows people to continue together. A negotiation that humiliates the other side is a failed one, even if you win the point. This restorative logic explains why discussions may revisit earlier agreements or circle back to refine terms. The pacing allows both sides to test fairness and adjust until the outcome feels balanced, not imposed.
+
+Trust often grows in stages, and proof tends to persuade more than promises. Where leadership credibility has been historically contested, people watch for consistency and follow-through. Negotiations may advance slowly as your reliability becomes clear, rather than closing cleanly in one exchange. Bringing evidence of past delivery or offering small demonstrations early can move discussions forward more effectively than verbal assurances alone.
+
+Directness tolerance varies across Algeria. Internationalised urban settings may accept more explicit exchanges, while elder-weighted or traditional contexts often prefer softer language that preserves harmony. Younger professionals may be more direct while still respecting dignity boundaries. Calibrating your tone to the setting reduces the risk of unintended offense and keeps the negotiation aligned to local norms of propriety.

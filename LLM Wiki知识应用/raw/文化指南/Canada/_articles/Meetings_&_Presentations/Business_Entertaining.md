@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Canada tends to be low-key and inclusive. Meals are used to build rapport, but rarely to conduct heavy business discussion. The tone is warm rather than formal, and the hospitality reflects Canada's multicultural makeup. Coffee meetings, casual lunches, and modest dinners are more common than lavish events. A colleague from a culture where entertaining involves elaborate multi-course dinners or symbolic gestures of generosity may find this restrained, even impersonal. From a Canadian perspective, keeping things simple shows respect for people's time and comfort, and avoids displays that might feel showy or exclusionary.
+
+Alcohol is optional and its presence varies widely depending on sector, region, and individual preference. Canadians will not expect others to drink, and pressuring someone to join in is considered uncomfortable. Check food preferences respectfully before organizing a meal. Vegetarian, halal, kosher, and allergy accommodations are standard practice in most urban centers, where global cuisines are widely available and dietary diversity is the norm.
+
+The role of the meal is social connection, not negotiation. Business topics may come up lightly, but the host usually decides when, if at all. Pushing for substantive discussion too early can come across as transactional. A colleague accustomed to finalizing agreements over dinner may see this as vague or inefficient. Canadians tend to see the meal as a way to observe how people interact and build trust before returning to formal settings where decisions are made. Reciprocating an invitation is appreciated and helps sustain the relationship.

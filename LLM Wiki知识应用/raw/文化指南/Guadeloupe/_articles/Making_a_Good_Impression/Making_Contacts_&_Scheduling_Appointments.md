@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Guadeloupe, professional relationships are built through personal connection first. The local preference for warmth and familiarity reflects both the island's French Caribbean culture and the reality of a small, interconnected community where reputations travel quickly. Before committing to a formal business arrangement, people want to know who you are and how you approach relationships. A brief phone call or email can open the door, but the real relationship develops in person, often over coffee or lunch. Rushing straight to business can feel impersonal or even transactional to someone who values the human dimension of collaboration.
+
+A personal introduction makes a significant difference. If you can arrange for a mutual contact to introduce you, you'll find doors open more easily. That introduction acts as an informal reference, shortening the time it takes to build credibility. In practice, this might mean asking a colleague to arrange an informal meeting or inviting your prospective contact to join a small gathering where conversation can flow naturally before any formal agenda is set.
+
+When scheduling appointments, give yourself time. Book meetings at least a week or two ahead and confirm the day before. Avoid tightly packed schedules. Meetings may start a little later than planned or extend beyond the allotted time, especially if the conversation is going well. Flexibility here shows respect for the relationship and for the rhythm of professional life on the island. Colleagues from cultures where punctuality and tight scheduling are the norm may read this fluidity as casual, while someone from Guadeloupe might view a rigidly controlled agenda as distant or overly formal.

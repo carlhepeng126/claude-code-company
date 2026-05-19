@@ -1,0 +1,11 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Jamaica serve a double function. They address the agenda, but they also establish whether you are trustworthy, socially consistent, and safe to work with over time. People read the room quickly, looking for confidence rather than bluff, warmth rather than performance. This social reading happens early and quietly. The emotional tone can shape how your ideas land later, and whether commitment made in the meeting translates into action outside it.
+
+The opening conversation matters. Humour, storytelling, and informal exchanges are not distractions from the agenda. They build the conditions that allow directness to be received well. Someone from a culture where meetings follow a tight script from the start may see this as inefficient. A Jamaican counterpart may see a rushed opening as unearned formality, a sign that the relationship hasn't been made real yet. Once rapport is established, the conversation can become more focused, but skipping this stage risks creating distance that lingers through the entire meeting.
+
+Respect, especially around seniority and status, shapes who speaks first and how disagreement is expressed. In a society where reputation moves quickly through networks, protecting dignity is practical, not ceremonial. Being overly blunt or contradicting someone directly in a group setting can shift the atmosphere in ways that follow you beyond the meeting. If you need to challenge a point, soften it with care, or raise it one-to-one afterward.
+
+Kingston meetings often move faster and feel more institutionally framed. In smaller towns or parish settings, who knows who and community reputation may hold more weight, and the pace may be gentler. Code-switching between Jamaican Creole and Standard English also signals what kind of moment this is. Staying too formal throughout can create unnecessary distance. Forcing casualness before trust is built can feel artificial. Let the room set the register.

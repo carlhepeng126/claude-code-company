@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+A guest in an Omani home or majlis (reception room) is treated as an amanah, a trust from God, and this means your host feels personally responsible for your comfort, safety, and impression of the country. An invitation is a high-trust step in the relationship, so confirm your attendance, arrive close to the agreed time, and avoid last-minute cancellations. If you do need to withdraw, offer a clear reason and acknowledge the trouble caused.
+
+The ritual of qahwa (coffee) and dates is a mini-ceremony that begins most visits. Even if you don't drink coffee, accepting a small cup and sipping is part of participating in the moment. Asking about a khanjar (ceremonial dagger) on the wall or a falaj (irrigation channel) nearby shows you recognize the cultural meaning behind the hospitality, rather than treating it as simply refreshments. In many homes, the majlis is semi-public space while the rest of the house remains private. Do not wander or ask to see other rooms unless your host offers.
+
+As a host, anticipate Omani needs without requiring your guest to ask: prayer space, halal food, separate seating for mixed-gender groups if needed, and transport. Let your guest know clearly that they can bring a colleague or relative if that makes them more comfortable. A colleague from a culture where one-to-one meetings are the norm may find this request unusual, but for many Omanis it reflects a preference for shared witness and ease in unfamiliar settings. Follow up with thanks after being hosted, a message or small reciprocal gesture that shows you understand the value of what was extended.

@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+In Åland, teamwork is quiet, collective, and shaped by Swedish-speaking Nordic values in a distinct island context. Hierarchies exist but are understated. Senior colleagues guide newer team members through example and indirect suggestion rather than formal instruction. This reflects a broader cultural preference for modesty and equality, where drawing too much attention to individual expertise or stepping forward as a visible expert can feel uncomfortable. Input is offered carefully, in a way that preserves group cohesion and allows others to maintain autonomy. For a colleague from a culture where mentorship involves direct advice or visible intervention, this can seem passive or disengaged. From an Åland perspective, the reverse can feel intrusive or domineering.
+
+Teams function well when roles are clear and decisions emerge through consensus rather than directive leadership. Silence in meetings often reflects consideration rather than agreement, and pushing for a quick resolution can create tension. Colleagues expect to be consulted and to have their views genuinely weighed, even if final authority rests with a manager. This process can feel slow to someone used to faster decision cycles, but skipping it undermines trust and collective ownership.
+
+Praise is typically directed toward the group rather than individuals. Singling out one person, even positively, can create awkwardness and disrupt the egalitarian tone that Åland teams rely on. Feedback is given privately and framed constructively. Public correction, no matter how well intended, risks damaging both the individual's standing and the team's equilibrium.

@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in French Guiana is shaped by French administrative influence and a strong preference for preserving dignity in professional relationships. Direct criticism, especially delivered publicly, risks damaging trust and morale. Managers tend to soften negative feedback through careful phrasing, often prefacing comments with acknowledgment of effort or context before raising concerns. A supervisor might say, "I see you've been working hard on this, and there are just a few adjustments we should consider together," rather than pointing out errors bluntly. This approach maintains respect while still guiding improvement. Colleagues from cultures where feedback is delivered more directly may find this style unclear or frustratingly vague, while someone from French Guiana working in a more direct environment may experience blunt feedback as unnecessarily harsh or disrespectful.
+
+Coaching conversations are typically handled one-on-one, in private settings where the person receiving feedback can respond without audience pressure. Group settings are reserved for positive reinforcement or general guidance, not individual correction. If you need to address a performance issue, schedule a private conversation and frame the discussion as collaborative problem-solving rather than top-down judgment. This helps the person engage without feeling publicly diminished.
+
+Formal performance reviews, when used, often follow French bureaucratic structures but are most effective when they include personal, conversational elements. A written evaluation that reads as impersonal or purely procedural may feel disconnected from the relational foundation that shapes daily work life. Balance structure with warmth, and allow space for dialogue, not just documentation.

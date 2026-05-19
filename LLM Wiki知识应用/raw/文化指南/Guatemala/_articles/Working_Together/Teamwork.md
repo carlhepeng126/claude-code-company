@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+A project team in Guatemala may bring together Spanish-speaking coordinators working from laptops in the capital and Maya-speaking fieldworkers who navigate rural communities on foot. The latter often hold more local trust and community knowledge, but receive less pay and less visibility. This split reflects deeper inequalities rooted in Guatemala's colonial history and civil conflict, and it shapes who speaks, who listens, and whose expertise is recognized. Effective collaboration means treating field staff as experts with decision-making authority, not simply data collectors. Let them set parts of the agenda, present findings in their own language with translation provided, and determine what timelines and approaches are realistic on the ground.
+
+Quietness in meetings does not mean lack of contribution. Some colleagues, particularly older indigenous staff, may be survivors or children of survivors of massacres and displacement during the civil war. Their reserve can be a survival habit from years when speaking too much led to violence. A colleague from a setting where verbal participation signals engagement may read this silence as disinterest or passivity. From the other direction, a Guatemalan team member may interpret rapid, direct debate as aggressive or disrespectful. Ask for feedback in smaller groups or one-on-one conversations, and protect those who do speak up.
+
+Teams often function as mutual protection networks. Colleagues pool money after a robbery, rearrange travel routes so someone avoids night buses, or walk each other to transport stops. The person quietly coordinating this care work may hold more influence than their title suggests. Recognizing and valuing this invisible labor is part of what keeps projects functioning in a fragile environment.

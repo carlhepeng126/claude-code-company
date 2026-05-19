@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information in many Algerian professional settings moves through trust networks rather than formal channels alone. In environments shaped by historical disruption and caution toward institutions, knowledge can be treated as something with risk attached. People often share outward in rings, first within safe circles where discretion is understood, then more widely once intentions and reputations are clear. This is less about secrecy and more about managing risk. A colleague may hold back detail in a mixed meeting but offer it freely afterward in a one-to-one setting where the stakes feel lower.
+
+Discretion is valued because reputation in Algeria is often family-linked and community-linked, not just individual. Knowing what not to say publicly, how to avoid exposing others, and how to phrase things so repair remains possible reflects good upbringing. This mirrors older customary practices like azref, where the goal was to restore balance without humiliation. A manager framing feedback privately or softening language to leave someone a path out of a difficulty is applying that logic. For a colleague from a context where candor is expected to be immediate and direct, this can read as evasion. From the Algerian side, bluntness without relationship or context can read as careless or even aggressive.
+
+Language choice also affects what feels safe to share. Arabic can carry moral seriousness, French can carry institutional authority, and Amazigh languages in many regions can shift who feels included and what level of openness becomes possible. Urban peer groups may communicate more candidly and quickly, while elder-weighted or formal settings may favor caution and indirectness. Trust-building practices like informal check-ins, one-to-one conversations, and allowing time for relationships to form make information flow more reliably than structure alone.

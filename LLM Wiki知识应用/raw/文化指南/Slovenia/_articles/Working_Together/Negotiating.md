@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Slovenians respond well to proposals that feel realistic and anchored to local realities. High-pressure tactics or dramatic promises tend to fall flat. People expect negotiation to feel honest and workable, grounded in what can actually be delivered. This preference reflects a broader cultural comfort with proportion over performance. When presenting terms, make them clear, transparent, and bounded. Overpromising to create momentum can backfire, reading as either naive or manipulative. If you show how an agreement fits the specific context — what makes sense here, given local constraints and conditions — you align with a cultural logic that values integration over abstraction.
+
+The memory of independence shapes how Slovenians experience negotiation dynamics. Heavy-handed pressure or a tone that assumes dominance can trigger sensitivity around agency and equal standing. Counterparts expect to be treated as partners with full voice in the process, not as recipients of a predetermined outcome. This means inviting input, making space for questioning, and avoiding coercive framing. Even when a decision will ultimately come from the top, people at every level expect to be heard. Dismissing that expectation, or moving too quickly past consultation, can erode trust.
+
+Generational differences show up in style. Older colleagues with experience from the previous system may approach negotiation more cautiously, while younger professionals trained in Western business schools may move faster and speak more directly. Either way, the negotiation table may include people with different communication rhythms and dignity cues, especially in contexts shaped by post-Yugoslav diversity and minority representation. Check that your language and assumptions work for everyone present, and that inclusivity is built into how the conversation unfolds, not just what is being discussed.

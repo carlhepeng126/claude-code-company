@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Fiji is most effective when it protects dignity and strengthens connection. Direct criticism, especially in front of others, can damage relationships and create lasting discomfort. This comes from the central role of *vanua*, the web of communal obligations and respect that shapes Fijian life. Within this framework, open correction risks isolating someone from the group and undermining the harmony the group depends on. Managers who give feedback privately, gently, and with care for the person's standing within the team are far more likely to see real change.
+
+Indigenous Fijian and Indo-Fijian colleagues may respond differently. Indo-Fijian professionals, particularly in urban or corporate settings, may be more direct and comfortable with structured feedback processes, though respect and tone still matter greatly. Indigenous Fijians often prefer indirect language and rely on trusted intermediaries or senior figures to convey concerns. A manager working across both communities should adjust accordingly, checking in quietly with individuals and watching for non-verbal cues that suggest discomfort or disagreement.
+
+Praise works best when it recognizes collective effort rather than singling out individuals. Public recognition of a team's success affirms the group and avoids the awkwardness of standing apart. When feedback must address a problem, frame it as support rather than correction. Asking how you can help or what's getting in the way opens the conversation without assigning blame and keeps the relationship intact.

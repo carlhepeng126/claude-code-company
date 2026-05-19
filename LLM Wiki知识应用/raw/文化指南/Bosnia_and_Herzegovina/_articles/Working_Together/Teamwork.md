@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Bosnia and Herzegovina is built on trust that forms slowly and relies heavily on personal relationships. Colleagues tend to work more comfortably with people they know well, and that familiarity often takes time to establish. This reflects a broader cultural pattern where professional cooperation depends on social closeness, and where collaboration outside a trusted circle can feel strained or cautious. In practice, this means teams may take longer to reach full productivity when members are new to one another, but once trust is in place, cooperation becomes fluid and mutually supportive.
+
+Hierarchy plays a role, though it tends to be softer than formal structures suggest. Senior colleagues often guide others through indirect influence rather than explicit instruction, and decisions that appear consensual may still be shaped quietly by those with seniority or personal authority. Openly challenging a senior colleague, especially in front of others, risks damaging relationships and disrupting group cohesion. A colleague from a culture where decisions are debated directly in meetings may read this as indirectness or avoidance, while someone from Bosnia and Herzegovina may view that directness as needlessly confrontational or disrespectful of experience.
+
+Feedback is handled with care. Criticism delivered publicly can be damaging, not only to the individual but to the atmosphere of the team. Raising concerns privately, and framing them with attention to the person's dignity, preserves both the relationship and the possibility of change. What might look like avoidance of difficult conversations is often a way of protecting the conditions under which teamwork functions.

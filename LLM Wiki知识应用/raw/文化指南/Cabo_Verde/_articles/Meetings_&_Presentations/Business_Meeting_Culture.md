@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Cabo Verde are generally scheduled with flexibility, and short-notice invitations are common, especially outside the capital, Praia. While professionals working with international partners increasingly plan further ahead, a more relaxed approach to timing often reflects a broader cultural rhythm where relationships take precedence over rigid schedules. Confirming details in advance is always appreciated and helps ensure that the right people are present. Expect senior decision-makers to attend, as hierarchy in Cabo Verdean organizations tends to be respected and important decisions typically require their involvement.
+
+Once the meeting begins, expect a period of informal conversation. This opening time is used to establish rapport and a sense of personal connection before shifting to formal topics. Rushing this phase can feel abrupt. When the agenda does begin, discussions may be more consultative than directive. Ideas are often shared to gather input rather than to push toward an immediate conclusion. A colleague from a culture where decisions are made quickly in meetings might read this as indecisiveness, while a Cabo Verdean counterpart might interpret pressure for fast outcomes as dismissive of the group's need to think things through together.
+
+Formality in address and tone is expected in early meetings, particularly when hierarchy is involved. As trust builds, the atmosphere may become warmer, with humor and personal references woven in. Decisions often extend beyond the meeting itself, so follow-up and confirmation of next steps in writing can help maintain clarity across different working styles.

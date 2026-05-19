@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Georgian time management reflects the tension between inherited social rhythms and the expectations of a market-oriented professional class. Historically, time in Georgia was shaped by agricultural seasons, extended family obligations, and Orthodox feast cycles, where relational commitments often took precedence over schedules. Soviet structures imposed rigid work hours and bureaucratic punctuality, but local practice retained flexibility when personal networks or social standing were involved. That combination remains visible today.
+
+In professional settings, punctuality expectations vary noticeably by sector and generation. Multinational firms, IT companies, and export-facing industries in Tbilisi operate with firm adherence to scheduled meeting times and project deadlines. Colleagues in these environments expect punctuality and treat lateness as unprofessional. In contrast, state institutions, family-owned businesses, and regional offices may still follow a more flexible approach, where meetings begin after social exchange and decision timelines shift to accommodate relationships or hierarchical approval. Younger professionals, especially those educated abroad or working in Western-style environments, tend to align closely with clock-based scheduling, while older generations and those in traditional sectors may view time as more negotiable when trust or context warrant it.
+
+A colleague from a culture where schedules are tightly managed may find this variability frustrating, interpreting it as disorganization. From the Georgian side, rigid adherence to the clock without regard for context or relationship can come across as transactional or socially disconnected. To work effectively, confirm expectations explicitly at the outset of a project, particularly around deliverables and meeting start times, and follow up in writing to avoid ambiguity.

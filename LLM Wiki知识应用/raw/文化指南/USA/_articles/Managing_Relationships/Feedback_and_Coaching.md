@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in the United States tends to be direct, frequent, and centered on observable outcomes. American managers often frame feedback in real time, addressing issues soon after they arise rather than waiting for scheduled reviews. This immediacy reflects a broader cultural preference for efficiency and individual accountability. The assumption is that clear, specific input helps people improve faster and keeps projects moving. Many American professionals expect regular updates on their performance and may interpret silence as either approval or disengagement.
+
+Positive feedback is given openly and often publicly, particularly when it reinforces team goals or individual achievement. Recognition in meetings or group emails is common and generally welcomed. Negative feedback, however, is usually delivered in private and often cushioned with what's known as the "feedback sandwich," where critique is bookmarked by positive comments. This approach aims to soften the message while still being direct about what needs to change. For colleagues from cultures where indirect communication protects dignity, this style can still feel blunt. From the American side, more oblique delivery may seem evasive or unhelpfully vague.
+
+Written performance systems are standard in most organizations, with structured reviews, ratings, and development plans. These tools are seen as fair and transparent, providing documentation and consistency. Informality coexists with this structure, though. Coaching conversations may happen over coffee or during a walk, and tone is usually collaborative rather than hierarchical. The goal is actionable next steps, not judgment.

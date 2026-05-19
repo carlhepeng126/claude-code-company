@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In El Salvador, time management is relational before it is mechanical. Deadlines and schedules are acknowledged, but they often bend when personal commitments, family needs, or trusted relationships call for attention. This flexibility reflects a deep cultural current: people come first, and the quality of the relationship often determines how strictly time is observed. A meeting may start late not because punctuality is disregarded, but because the colleague stopped to help a family member or fulfill a social obligation that could not be postponed without causing offense or weakening a bond.
+
+The degree of flexibility varies by setting. In multinational firms, call centers, and export-oriented industries, punctuality is taken seriously and deadlines are treated as firm. These environments mirror global expectations, and arriving late or missing a commitment can damage professional credibility. In smaller family businesses, public institutions, or community-based organizations, time tends to be more elastic. Decisions may slow when family considerations overlap with business priorities, or when maintaining harmony within a team requires more discussion than the clock allows.
+
+A colleague from a culture where schedules are fixed may read this flexibility as disorganization or lack of commitment. From the Salvadoran perspective, the reverse can also feel jarring: a rigid adherence to the clock, especially when it overrides a personal need or interrupts a conversation still in progress, may come across as cold or transactional. Naming the expectation early, and building in buffer time where possible, helps both sides work without friction. When time does stretch, it is rarely wasted. It is being used to strengthen the trust that makes future collaboration smoother.

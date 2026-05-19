@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+The honorific *Khun* appears before first names regardless of gender and works across formal and informal business settings. You might be Khun Sarah to both the CEO and the intern, a consistent marker of respectful acknowledgment. Titles matter more for role than personal distinction, and most Thai colleagues will introduce themselves by first name with *Khun* attached. Many also use a nickname, often unrelated to their formal name, which they'll share early in the relationship. Using it once invited helps shift the tone from courtesy to warmth without abandoning respect.
+
+The *wai*, a gesture with palms together at chin height and a slight bow, responds to hierarchy in real time. The junior person initiates. The depth of the bow and the height of the hands adjust to seniority, age, and context. You don't *wai* children or service staff, and a senior Thai colleague may acknowledge your *wai* with a nod rather than a full return. In business meetings with international visitors, handshakes are common, but a *wai* offered back when one is extended to you recognizes the relational effort being made. A colleague from a culture where greetings are brief and uniform might read the *wai* as ceremonial rather than functional, while a Thai colleague might experience a handshake-only greeting as incomplete, missing the alignment of status that smooths interaction.
+
+Address becomes more formal in writing. Emails and letters still use titles and structured openings. The restraint in tone and the care given to hierarchy in text mirror what the *wai* does in person: they clarify position without confrontation and reduce the risk of face being inadvertently bruised.

@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Most corporate and public-sector settings in Chile favor a sober, classic aesthetic rooted in the central valley's professional norms. Navy, grey, and black are the standard palette. Shoes are polished, logos kept small, and neatness prized over flair. This preference reflects a wider cultural tendency toward understatement in hierarchical and formal contexts, where standing out for the wrong reasons can undermine credibility. Overly bright colors or casual clothing in a first meeting can read as a lack of seriousness, particularly when dealing with government offices, banking regulators, or established firms in Las Condes or Vitacura.
+
+That baseline shifts depending on sector and location. A tech start-up in Providencia or Ñuñoa may operate in smart jeans and quality sneakers, while a meeting at a regional government office or ministry still expects a full business suit. The geography itself also shapes what people wear. Chilean winters bring real cold and rain, especially in the south, and summers can bring intense sun. Arriving underdressed in July or overdressed in February can make you look out of step with daily realities, which colleagues notice. Matching the practicality of a good coat, scarf, or proper shoes shows you understand the environment, not just the role.
+
+For international professionals, the safest approach is to start formal and observe the room. You can relax your dress once you've read the sector and the specific office culture. A banking regulator in downtown Santiago, a creative agency in Bellavista, and a mine site in Antofagasta each set different expectations, and adjusting to the setting will always serve you better than insisting on a single global standard.

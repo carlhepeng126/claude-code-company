@@ -1,0 +1,11 @@
+# Sharing Information
+
+## Working Together
+
+Luxembourg's institutional depth—spanning public administration, European bodies, and finance—cultivates a professional culture where documented clarity reads as courtesy rather than formality. Precision in written summaries and correctly handled information reflects respect for the system and for colleagues navigating it. A manager preparing a decision memo for cross-functional review will often ensure language is exact and the supporting detail complete, knowing this makes the work usable for others and builds credibility over time. This approach can feel measured to a colleague from a setting where speed and brevity signal efficiency, while a Luxembourger working elsewhere may read rapid, abbreviated updates as incomplete or difficult to act on.
+
+Language choice shapes the emotional register of what gets shared. French, structurally tied to legislation and formal settings, sets a different tone than Luxembourgish, which carries relational and identity weight. An email written in French to confirm project milestones feels appropriately official; the same information shared in Luxembourgish over coffee signals trust and inclusion. Choosing the right language for the context is itself a form of judgment about who is being addressed and what kind of exchange is taking place.
+
+Discretion runs through professional life in a country where networks overlap and paths cross repeatedly. What you share in one meeting can travel through intersecting circles—professional, social, cross-border. People calibrate what they say and to whom, aware that the same faces reappear in different settings. This becomes more layered still in a workplace where nearly half the staff commute from neighboring jurisdictions, each bringing different legal, administrative, and daily-life contexts into the same shared professional space.
+
+In practice, this means establishing who needs to know what often takes longer than outsiders expect. Information may stay concentrated within specific areas of the hierarchy, and escalating a question upward may be necessary to get a clear answer. Once trust is established and roles are understood, though, exchange between peers in comparable positions becomes easier and more direct.

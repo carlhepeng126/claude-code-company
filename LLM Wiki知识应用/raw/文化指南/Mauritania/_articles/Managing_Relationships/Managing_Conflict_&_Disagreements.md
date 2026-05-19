@@ -1,0 +1,11 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Disagreements in Mauritanian professional settings risk more than outcomes. In a society where reputation is built through family networks and social narrative, open conflict can bring lasting damage to a person's standing and reflect poorly on their entire family. This explains why many colleagues will choose silence or indirection over confrontation, even when the issue feels pressing. If someone seems to withdraw or deflect rather than engage with a problem, they may be protecting not just themselves but a web of relationships that extends well beyond the workplace.
+
+Hierarchy deepens this caution. Disagreeing openly with someone of higher status can be read as a challenge to social order, especially in environments shaped by contested histories of exclusion. A manager from a setting where feedback flows freely in both directions may interpret this as passivity, while a Mauritanian colleague may see the same directness as disrespectful or tone-deaf to power differences. Understanding this dynamic means finding ways to raise issues privately and through channels that honor rank.
+
+When tension does surface, hospitality rituals offer a culturally grounded way to de-escalate. Sharing tea creates a slower, more dignified rhythm where reconciliation becomes possible without forcing someone into a corner. This is why resolution often happens outside formal meetings, in settings where presence and pacing signal respect. If a dispute cannot be settled directly, bringing in a trusted third party—a senior colleague, family elder, or religious figure—gives the issue legitimacy and allows both sides to step back without losing face.
+
+Resolution pathways vary depending on which authority people recognize. Some disputes are routed through family networks, others through tribal or religious structures, and still others through formal company channels. Recognizing this plurality means understanding that a single HR procedure may not always be the most effective or trusted route.

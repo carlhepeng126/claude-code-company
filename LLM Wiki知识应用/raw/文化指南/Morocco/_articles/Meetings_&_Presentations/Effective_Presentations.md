@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Oral skill commands real respect in Morocco. The country has a living heritage of storytellers and performers, recognised globally as intangible cultural practice, where persuasive speech is treated as trained craft. A presenter who speaks with embodied presence and responds to the room is often read as credible before the content itself is assessed. This means delivery style is not simply a wrapper around information. It is part of the evidence. When preparing your presentation, rehearse not just what you will say but how you will say it, and be ready to adjust your pace or emphasis based on who is listening and how they are responding.
+
+Repetition, rhythm, and emotional resonance can be culturally legible as seriousness. Morocco's Gnawa tradition, for example, is a respected meaning system where trance, repetition, and intensity are legitimate ways to convey knowledge. A colleague from a culture where emotional restraint is associated with professionalism may read a passionate delivery or layered storytelling as too indirect. From the other direction, Moroccan audiences may find flat, data-only presentations emotionally thin, no matter how efficient. Grounding your message in real achievements, case studies, or a narrative arc that shows how a project came to life will often land more securely than abstract future projections.
+
+Visual form also carries weight. Morocco's calligraphic and scholarly traditions create high expectations for how written material looks. Slides should be clean, visually thoughtful, and in the language that matches the setting, whether French or Modern Standard Arabic. Dense text or improvised formatting can unintentionally undercut the credibility you are trying to build. If you are presenting through an interpreter, brief them in advance on technical terms and allow extra time for each point to be absorbed.
+
+Expect the session to feel responsive rather than controlled. Attendees may take calls, step out, or ask questions mid-flow. This reflects engagement, not distraction. Be ready to pause, welcome new arrivals, and allow silence where needed. The most revealing conversations often happen one-to-one after the formal presentation, when people feel freer to ask sensitive questions without risking anyone's public standing.

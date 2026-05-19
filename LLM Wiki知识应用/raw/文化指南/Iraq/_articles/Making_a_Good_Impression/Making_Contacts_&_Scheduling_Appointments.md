@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Access in Iraq runs through trusted networks more than formal channels. Decades of conflict have deepened reliance on kin, tribe, sect, and long-standing local ties. A formal title may be less useful than knowing which sheikh, clan elder, or influential family can open the right door. For foreign partners, this means working with a respected Iraqi intermediary who can vouch for you. That might be a tribal figure, a well-regarded NGO leader, or a businessperson with credibility in the sector or region where you want to operate. A direct approach without introduction can stall before it begins.
+
+Geography shapes who you need to reach and how you reach them. Government and national decisions sit in Baghdad, oil and port business in Basra, reconstruction and Sunni political networks in Mosul and Anbar, and a semi-autonomous structure in the Kurdistan Region, particularly Erbil and Sulaymaniyah. Each has different political actors, security realities, and preferred routes in. What works in Baghdad may not work in Basra, and the Kurdistan Region operates with its own gatekeepers. Ask locally who the real actors are before you plan your approach.
+
+Scheduling means factoring in more than diary availability. After decades of war, kidnapping, and sectarian violence, people calculate risk before they confirm. Checkpoints, routes, militia presence, and recent incidents all shape whether a meeting happens and where. In some mixed or recently liberated areas, logistics determine timing as much as schedules do. Confirm transport, location, and security arrangements, not just the hour. Diaspora Iraqis or long-term expats can act as reputational bridges, and their endorsement may shorten the path to trust considerably.

@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Portugal, feedback works best when it protects dignity without diluting honesty. The cultural preference for *boa educação*, good manners treated as a form of care, shapes how critique is delivered and received. People value directness when it comes with tact. Public exposure or blunt judgement can feel like a breach of respect, particularly in hierarchical settings. Give feedback privately by default, framing it around quality or shared standards rather than personal shortcomings. A manager might say, "Let's look at how we can strengthen this section," rather than, "You got this wrong." The substance stays clear, but the entry is softened.
+
+Formality matters, especially early in a relationship or across seniority gaps. The widespread use of titles like *senhor doutor* (a respectful form combining "sir" with an academic or professional title) reflects a real social grammar that signals deference and seriousness. A younger colleague receiving feedback from a senior figure may expect a more measured tone and careful phrasing. As trust builds, the style can relax, but starting with respect creates room for honest conversation. If you skip this step, the feedback may land as dismissive rather than constructive.
+
+The legacy of *brandos costumes*, mild customs promoted during the Estado Novo era as a national self-image, still echoes in how some professionals prefer conflict to remain composed on the surface. This doesn't mean difficult conversations are avoided, but many people expect them to stay contained and civil. A manager from a culture where candid, high-energy debate signals engagement might read this reserve as evasion. A Portuguese colleague, in turn, might view that same energy as unnecessarily combative or disrespectful. Frame critique as a shared effort to improve outcomes, and keep emotion measured without flattening the message.

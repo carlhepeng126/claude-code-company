@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiating in Chad tends to move slowly, shaped by the need to confirm the relationship before finalising terms. Whether you are working with government officials, private sector partners, or community representatives, people want to see that you will be present and dependable over time. The first few conversations may circle around your intentions, your organisation's background, and your understanding of local realities rather than jump straight to price or scope. This reflects a context where formal systems are often fragile and people rely on personal networks to get things done. Rushing to close without building that confidence can stall progress rather than speed it up.
+
+The process itself can feel indirect. Points you thought were agreed may be revisited. Conversations may loop back to earlier topics or shift to matters that seem off-topic. This is how people test your flexibility and ensure all angles have been considered. It also gives space for those not present in the room, such as elders or senior decision-makers, to weigh in informally. A colleague from a culture where decisions are made quickly and agreements are locked in writing may find this frustrating. From a Chadian perspective, locking in terms too early can feel rigid and may suggest the relationship has not been properly built.
+
+Leaving room for concessions is expected. Presenting your final offer at the start can be read as inflexible or dismissive of the collaborative process. Bargaining is part of how fairness is established, and conceding on smaller points can strengthen goodwill without weakening your position. Where possible, meet with those who hold real decision-making authority or have direct influence over it, as rapport at that level allows discussions to move toward action.

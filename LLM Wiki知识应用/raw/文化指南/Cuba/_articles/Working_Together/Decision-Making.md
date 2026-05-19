@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Cuba move through a dense network of state structures and political realities. Formal authority rests with senior leaders and designated decision-makers within institutions, but the path to that point often involves navigating overlapping approvals, internal consultations, and ideological alignment. A manager may need sign-off from higher levels or party representatives even on operational matters, particularly if the decision involves resources, external engagement, or anything politically sensitive. This reflects decades of centralized governance and the weight of collective accountability in a system where individual risk-taking is neither rewarded nor encouraged.
+
+State employees, who make up most of the professional workforce, face constraints that private-sector or joint-venture colleagues may not. Plans are subject to change based on policy directives, resource shortages, or shifting institutional priorities. Colleagues who seem reluctant to commit to a timeline or finalize a course of action may be responding to uncertainty they cannot control, not hesitating for personal reasons. In settings where colleagues from cultures with more decentralized authority expect quicker decisions, this can read as bureaucratic delay. From a Cuban colleague's perspective, a foreign partner pushing for immediate confirmation may seem unaware of the layers of approval required, or impatient with a process designed to ensure collective support.
+
+Decisions are more fluid in entrepreneurial or family-run businesses, where approval chains are shorter and responsiveness to opportunity is easier. Even there, caution persists. Building consensus informally, checking alignment with trusted contacts, and ensuring decisions will be understood and accepted by the group all remain central to how choices are made.

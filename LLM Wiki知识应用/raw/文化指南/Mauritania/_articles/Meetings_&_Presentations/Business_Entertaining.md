@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Entertaining in Mauritania is relationship-centered and deeply embedded in social logic that links hospitality to dignity and trust. Sharing tea, especially the repeated rounds of *atay* (green tea with mint and sugar), creates a shared tempo that shows regard and willingness to be present. This ritual is not decorative. It functions as a culturally recognized pathway for building trust, and rushing through it or treating it as a formality can signal disinterest. In Saharan societies, generosity toward guests reflects an older survival logic rooted in harsh ecology, where hosting was morally required because conditions were unforgiving. That history still shapes how hospitality is read today.
+
+Meals tend to happen at lunch or dinner, often in restaurants, and the setting can reflect prestige and social position. Hosting can signal who is being honored and whose presence is publicly recognized, especially in stratified contexts. Business is rarely discussed during the meal itself. The host steers the conversation, and senior people are deferred to. For someone from a culture where meals are efficient venues for decision-making, this can feel slow or indirect. From a Mauritanian perspective, a guest who pushes toward business content too early may seem transactional or dismissive of the relationship work the meal is doing.
+
+Alcohol is forbidden and not served legally. Regional variation matters. Coastal areas near the Atlantic, interior towns tied to caravan heritage, and the Senegal River Valley each bring different social textures and rhythms to how people gather and entertain. Reciprocating an invitation, either during the visit or on a return trip, is appreciated and reinforces the relationship.

@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Sri Lanka, a greeting carries more than courtesy. Traditional phrases like *ayubowan* (Sinhala, meaning "I wish you long life") and *vanakkam* (Tamil) are spoken wishes of wellbeing, often accompanied by palms pressed together in a gesture that acknowledges the dignity of the other person. This frames the opening of professional exchange as something careful and meaningful, especially where age, seniority, or unfamiliarity are present. Start with formality until the other person softens it. Use titles when they are known, including professional ones such as "Doctor" or academic distinctions, which are widely respected as markers of achievement and status. If no title applies, "Mr" or "Ms" with the surname is a safe choice.
+
+Language choice itself communicates respect or distance. Because Sinhala, Tamil, and English each hold social and political meaning in Sri Lanka, greeting someone in their first language can be warmly received if done naturally. English often functions as neutral ground in mixed settings. Attempting a traditional greeting is generally appreciated, but avoid performing it theatrically. The gesture should feel genuine, not ceremonial.
+
+Formality reflects both hierarchy and caution across lines of status, age, or ethnicity. In younger, urban circles, especially in Colombo, first-name address may be offered quickly. Elsewhere, or where seniority is involved, switching too soon can feel presumptive. If in doubt, ask directly how someone prefers to be addressed. That question is typically read as considerate. Names themselves deserve care. Ask once about pronunciation, repeat it back, and remember the form the person uses for themselves. This avoids the quiet friction of a name repeatedly mishandled or shortened without permission.

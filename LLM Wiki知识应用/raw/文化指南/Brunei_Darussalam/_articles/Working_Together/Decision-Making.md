@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Brunei Darussalam move through channels shaped by respect for seniority, Islamic values, and the social cost of being wrong. The country's constitutional monarchy reinforces a hierarchical worldview in which authority is both respected and expected to act with care. Leaders are conscious that hasty decisions can disrupt relationships or undermine their standing, so they proceed with deliberation. What a manager from a culture where speed and individual accountability are prized might read as slowness or avoidance, a Bruneian colleague may see as diligence. Conversely, a Bruneian professional working with someone who decides quickly and independently may wonder whether consultation was sacrificed for efficiency.
+
+Senior figures hold final say, but input is gathered quietly and relationally before anything is announced. Managers consult trusted colleagues, often outside formal meetings, to test ideas and build alignment. This is less about democratic process and more about social coherence. A decision that bypasses this relational groundwork, even if technically sound, risks being undermined later. If you need a decision finalized, factor in time for these informal loops rather than pressing for immediate closure.
+
+Flexibility follows approval. Once a decision is made, its implementation may shift in response to family obligations, regional ties, or unforeseen circumstances. This reflects a broader cultural preference for relational continuity over rigid adherence to plan. Treating adaptation as inconsistency misses the point. What adjusts is the method, not the intent.

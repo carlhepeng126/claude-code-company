@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional presentation in Kazakhstan reflects a legacy of Soviet-era formality, where appearance in public settings conveyed competence and self-respect. That baseline of neatness and polish still holds, especially in state-linked organizations, ministries, and traditional industries. Arriving well put-together reads as seriousness about the meeting itself. Men wear suits and ties in formal contexts, women wear tailored business suits or dresses, and the overall standard leans more formal than casual. A polished baseline is nearly always safer than assuming informality.
+
+The city you're in shapes what that polish looks like. Almaty tends toward more cosmopolitan, fashion-forward style, while Astana often reads more institutional and state-shaped. Western oil regions can carry their own mix of practicality and status coding. The same outfit may send different signals depending on the setting. Similarly, sector matters. Government offices and traditional industries still expect dark suits and formal tailoring, while younger tech or creative firms allow business casual. Even there, people dress deliberately rather than carelessly.
+
+Modesty is less about a single rule and more about reading the context. Kazakhstan is religiously mixed and institutionally secular, but family and regional norms vary. When visiting outside major cities, meeting older stakeholders, or attending culturally rooted occasions, erring slightly more conservative avoids misreading the room. That might mean keeping shoulders covered or choosing longer hemlines. The key is recognizing whether the setting is formal, conservative, celebratory, or international, and calibrating accordingly.

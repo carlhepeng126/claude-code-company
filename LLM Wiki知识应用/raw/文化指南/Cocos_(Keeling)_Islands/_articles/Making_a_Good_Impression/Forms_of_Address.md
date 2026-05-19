@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+The Cocos (Keeling) Islands bring together two distinct cultural groups with different norms around respect and address. On Home Island, where the Cocos Malay community lives, forms of address reflect Islamic traditions and close-knit community structures. Elders and religious figures are shown deference through respectful titles, and first names are used once rapport is established. On West Island, where the European Australian population is centered, a more informal style prevails, with first names introduced early in professional settings. These differences stem from each community's social fabric: one shaped by multigenerational ties and religious practice, the other by Australian egalitarian norms and a smaller expatriate feel.
+
+In cross-cultural professional encounters, it helps to take cues from the person you are meeting. If working with someone from the Malay community, wait to be invited to use a first name, and address older colleagues with visible respect. If your counterpart is from the Australian-aligned community, expect informality but do not mistake it for a lack of professionalism. Someone accustomed to hierarchy-conscious settings may read the quick shift to first names as overly familiar, while someone from West Island may find extended formality unnecessarily distant.
+
+Because the islands are small and interactions often overlap personal and professional life, a respectful tone in initial meetings builds goodwill that lasts. Observing how others introduce themselves, and mirroring that level of formality, will position you well across both communities.

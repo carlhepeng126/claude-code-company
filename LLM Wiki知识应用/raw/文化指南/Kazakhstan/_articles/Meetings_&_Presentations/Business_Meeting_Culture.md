@@ -1,0 +1,11 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Business meetings in Kazakhstan often move between two modes. The first tends to be structured and document-led, shaped by Soviet-era institutional habits where roles and procedures matter. The second is more relational, emerging once trust has been established and people feel you're inside the circle. The tone softens, pacing slows, and more can be left unsaid. Reading which mode you're in helps you calibrate how explicitly to frame proposals and how much flexibility to expect in the flow of the agenda.
+
+Seating reveals influence. In traditional hospitality, the place of honor is called *tör* (the most respected seat), often offered to elders or senior guests. Even in boardrooms, seniority may be signaled through where someone sits, who is served tea first, and who opens or closes the discussion. If you're hosting or planning a meeting, paying attention to these spatial cues shows respect and helps you identify who holds decision-making authority.
+
+Meetings typically begin with tea and light conversation. This isn't a delay. It's how people assess seriousness and build the foundation for commitments made later. Rushing this phase can undermine trust. If a decision doesn't come quickly, it may be entering what locals describe as "cooling time," where the relationship continues offline and difficult topics are allowed to settle. For a colleague from a culture where decisions are made quickly and formally within the meeting itself, this can feel unclear or stalled. From the Kazakh side, insisting on immediate resolution may feel transactional and premature.
+
+Long, detailed presentations are expected and listened to carefully, though side conversations or phone interruptions are common and should not be read as disinterest. Expect follow-up meetings to continue discussions that weren't closed, and be prepared to formalize outcomes through a *protokol*, a summary document that signals mutual intent even if it's not legally binding.

@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Israeli directness is rooted in both practical history and intellectual tradition. The early Zionist pioneers had to build quickly in difficult conditions, and there was little time for social niceties. This created a culture where being blunt with someone means you take them seriously enough to tell the truth. At the same time, the Talmudic tradition of learning through argument, where questioning is how you arrive at truth, runs deep in Israeli intellectual culture, whether secular or religious. Together, these influences shape a communication style that can feel startlingly frank to those unfamiliar with it.
+
+This directness is often described as dugri, or straight talk. Israelis say what they think, challenge ideas openly, and skip the relational groundwork that other cultures consider essential. Excessive diplomacy or hedging can feel insincere. A colleague from a culture where disagreement is softened or deferred to protect harmony may read this as hostility or poor manners. From an Israeli perspective, the same colleague's indirect feedback may come across as evasive or even dishonest. The debate is about the idea, not the relationship. Two people can disagree fiercely and move immediately to warmth and humor.
+
+If an Israeli pushes back on your proposal immediately and forcefully, read it as engagement. Silence or politeness often signals disinterest. Respond in kind: be clear, be willing to argue back, and don't take the heat personally. Defensiveness or over-diplomacy will lose you credibility. At the same time, expect informality. Once a working relationship is established, you may find yourself called by a nickname, hugged, or included in conversations that feel distinctly familial. This shift reflects the early culture of strong, close-knit bonds formed quickly under pressure.

@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+The French Southern Territories are research outposts, not settled societies. Sharing information here happens within small scientific teams isolated by thousands of kilometers of ocean, bound by protocols and expedition timelines. Most personnel are French researchers, logisticians, or military staff on rotation, present for a few months or a single austral summer. Everyone depends on accurate data, safety updates, and coordination across disciplines to keep operations running in one of the most remote environments on earth.
+
+Information flows through tight channels. Scientific findings are shared within research teams and logged for institutional use back in France, but collaboration often follows formal lines. Each mission has clear objectives and reporting structures. Communication tends to be direct and task-focused, shaped by the practical constraints of satellite links, weather windows, and the rhythm of resupply ships. There is little room for ambiguity when a delayed weather report or miscommunicated equipment need can stall fieldwork for weeks.
+
+Trust builds quickly in these conditions but within narrow circles. You work closely with the same handful of people in confined quarters, often under difficult conditions, and that shared experience creates strong bonds. Information shared informally over meals or during long field days becomes as valuable as what appears in official logs. Newcomers to a station should expect to prove their competence early. Once colleagues see you handle your responsibilities reliably and contribute to the team's safety and success, communication becomes more open and collaborative.

@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Austrian leaders are expected to be expert above all else. Authority derives from demonstrable technical knowledge and institutional position, not from charisma or inspirational vision. Employees expect their manager to know more than they do and to provide clear direction. A leader who appears uncertain or lacks depth in their area quickly loses credibility. This means that managers newly appointed to Austrian teams should be prepared to demonstrate their expertise early and substantively, not through broad vision statements but through command of the detail.
+
+Decision-making authority is concentrated at senior levels, but Austrian organizations also practice consultation. The Sozialpartnerschaft model of negotiated consensus, rooted in Austria's postwar labor relations, shapes how many companies operate internally. Multiple stakeholders may be involved before a decision is finalized, which means that decisions can take time. Leaders who move quickly and unilaterally may appear reckless or disrespectful of established process. Once a decision is made, it should be communicated clearly and in writing.
+
+Austrian leaders are not expected to be warm or informal. They are expected to be reliable, fair, and expert. A manager from a culture where leadership is more relational or emotionally expressive may find Austrian teams reserved or distant. From the Austrian side, a leader who prioritizes personal connection over technical competence may seem insubstantial or unprofessional. The credibility gap works both ways, but in Austria the foundation is always expertise.

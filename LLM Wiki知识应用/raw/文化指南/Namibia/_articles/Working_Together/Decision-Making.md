@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Namibia often gain legitimacy through being socially witnessed and accepted, not just formally announced. This shapes workplace timelines and expectations. In communal and land-linked settings especially, where conservancies and local governance structures operate, people are used to decisions made through committees, benefit-sharing debates, and community meetings. The process itself becomes part of what makes a decision stick. A manager pushing for speed without consultation may find implementation quietly slowed or acceptance withheld, even if formal sign-off has occurred.
+
+Historical divisions mean that inclusion remains a visible criterion. Because Namibia is still negotiating the legacies of apartheid and colonial separation, decisions are often judged by whether they appear fair across identity lines, not only by efficiency or outcome. This can mean wider consultation circles and more attention to who is present when decisions are finalized. A colleague from a culture where decisions are made quickly by a senior individual may read this as hesitation or avoidance of accountability. From a Namibian perspective, the same rapid decision-making may look careless or socially risky, skipping steps that build trust and reduce later friction.
+
+In some contexts, particularly around land or family-linked matters, elders and customary leaders provide final moral authority even when formal institutions are in place. Engaging these figures early can determine whether a decision is accepted in practice, regardless of what the org chart suggests.

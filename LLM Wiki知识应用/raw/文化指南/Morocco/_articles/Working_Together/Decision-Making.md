@@ -1,0 +1,11 @@
+# Decision-Making
+
+## Working Together
+
+In Morocco, decisions tend to be made at the top of formal hierarchies, but who holds real influence is often shaped by informal networks as well. The cultural concept of *makhzen* (historically, the power apparatus surrounding the monarchy, now used more broadly to describe opaque influence structures) frames how legitimacy works. A decision may follow the organizational chart on paper, but its acceptance often depends on whether it aligns with perceived power realities that extend beyond the chart. If you are working on a decision that requires broad buy-in, it helps to understand both the formal approval chain and the less visible relationships that shape whether a decision will actually stick.
+
+Decisions are rarely just technical. Because religious legitimacy is woven into Moroccan national identity and governance, many choices can be read as statements about moral order and social cohesion. A policy that looks procedural to an outside colleague may be interpreted by Moroccan counterparts as a question of respectability or ethical alignment. This means that framing a proposal only in terms of efficiency or cost may miss what actually persuades. If you want a decision to be seen as sound, consider how it reflects on the people involved and the values it upholds, alongside the operational case.
+
+Family and kinship networks often function as real decision units, especially outside large multinationals. Choices about timing, resources, or commitment may be influenced by household obligations and extended family expectations. This varies by class and urbanization, but the underlying pattern holds. A colleague may consult family members before confirming next steps, and that consultation is a form of distributed decision-making, not delay.
+
+Morocco's internal diversity also matters. What legitimizes a decision for one group may not convince another. Some colleagues respond to official language and protocol. Others may be more persuaded by local reputation, Amazigh cultural cues, or the endorsement of trusted community figures. In mixed teams, expect that different people will weigh different signals when deciding whether to support or follow through on a decision.

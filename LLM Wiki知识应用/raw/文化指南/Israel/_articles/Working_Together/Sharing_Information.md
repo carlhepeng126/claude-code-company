@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information flows freely in Israeli workplaces, driven by a culture that values open discussion over guarding knowledge. The norm is to share, iterate, and challenge ideas collectively rather than treat information as a source of personal power. This openness reflects both practical necessity in a small, innovation-driven economy and the influence of dense personal networks formed through shared military service and education. People often know each other across organizational boundaries, and information moves through these informal channels as readily as through formal ones.
+
+Communication happens quickly and directly. A WhatsApp message or phone call often reaches the right person faster than a formal email chain, and going outside official channels to get an answer is standard practice, not irregular. Israelis flag problems openly rather than manage upwards carefully, which means bad news surfaces early. For colleagues from cultures where information follows hierarchical routes or where raising concerns requires careful framing, this directness can feel abrupt or even chaotic. From the Israeli perspective, delaying a decision to follow protocol when a quick call could resolve the issue looks inefficient.
+
+The same directness that shapes everyday communication applies to challenging ideas. Israelis will question a proposal in real time, often publicly, as part of working through it together. This is collaborative energy, not personal criticism. Expecting information to flow only through formal channels or waiting for scheduled updates will create bottlenecks in an Israeli team. Building informal connections and joining the conversation as it happens will keep you in the loop.

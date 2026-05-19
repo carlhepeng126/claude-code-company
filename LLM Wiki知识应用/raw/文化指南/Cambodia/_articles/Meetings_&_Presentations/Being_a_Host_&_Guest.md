@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Entering a home in Cambodia means removing your shoes, lowering your voice, and waiting to be shown where to sit. These gestures reflect a deep respect for domestic space and recognition of the host's authority within it. Many homes and village settings still center around sitting on mats on the floor, particularly for meals or gatherings. Even younger urban Cambodians who own couches and dining tables often bring out floor mats for larger events. If you are visiting, expect to sit at floor level comfortably and dress modestly. Loud or informal behavior upon entering, common in cultures where homes are treated as casual social zones, can feel jarring to a host raised with these expectations.
+
+Hosts offer food and drink several times, and a single refusal is rarely taken as final. This back-and-forth allows both sides to preserve courtesy: the guest appears polite rather than greedy, and the host fulfills their duty to provide. Accepting at least a small amount is the clearest way to honor the effort. Conversely, if you are hosting Cambodian colleagues, do not take the first refusal literally. Gentle insistence is expected, and withdrawing the offer too quickly can create awkwardness. Leaving room for a guest to decline gracefully after a second or third offer shows you understand the rhythm.
+
+Seating follows hierarchy. The most senior person sits at the head of the table, and eating begins only after the eldest has started. These are visible markers of respect woven into the structure of the meal itself. Finishing everything on your plate signals you have not had enough, prompting the host to refill it. Leaving a small amount signals satisfaction without causing offense.

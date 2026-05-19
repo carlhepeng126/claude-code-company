@@ -1,0 +1,11 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Belgium's economy runs on a mix of global logistics infrastructure and deep local roots. Ports like Antwerp-Bruges and Zeebrugge make the country a European crossroads for supply chains, but beyond the multinationals, much of Belgian commerce depends on SMEs (known as *kmo* in Dutch or *PME* in French) with long-standing ties to specific towns and regions. Trust and local reputation often outweigh small price differences, and relationships built over time shape supplier decisions in ways that a purely transactional pitch may miss. If you are entering as a new supplier, showing how you combine international capacity with respect for local partnerships will be more persuasive than competing on price alone.
+
+Working with public or semi-public customers means navigating EU procurement and state aid rules. The process itself is part of how they judge you. Tendering, transparency, and auditability are not bureaucratic hurdles but expressions of fairness and accountability. A supplier unfamiliar with these requirements may lose a contract not because their offer was weak, but because their process did not fit the framework. Understanding what compliance looks like in practice, and building it into your timeline and documentation, keeps you credible.
+
+Language shapes customer relationships in practical ways. A Belgian customer may be a Dutch-speaking municipality, a French-speaking hospital, a bilingual Brussels institution, or an EU body expecting English. Offering support in the customer's working language, whether Dutch, French, or both, builds trust and signals that you understand how the country actually works. A single-language approach, even in English, can create friction where none was intended.
+
+Personal contact still anchors supplier relationships. While Belgians are pragmatic and focused on outcomes, trust is built through presence, not just performance. Visiting occasionally, rather than relying only on email or calls, reinforces that the relationship extends beyond the contract.

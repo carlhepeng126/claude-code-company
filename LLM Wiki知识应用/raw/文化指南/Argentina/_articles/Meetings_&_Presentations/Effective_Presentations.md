@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Argentines expect a performance, not just information. Growing up in a culture of café debates, political speeches and football commentary, people appreciate oratory skill, sharp phrasing and intellectual play. A minimalist approach built around bullet points can feel bloodless. Vary your pace, tone and volume. Use pauses, build a little narrative tension, and speak with visible conviction. This kind of controlled theatricality reads as authentic engagement; flat delivery suggests you don't believe what you're saying. Charisma holds attention in a culture where audiences can become easily distracted or start exploring new ideas mid-presentation.
+
+Structure your pitch like a good Argentine story: set the scene, introduce a conflict or constraint, then show the clever adjustment that turned things around. The narrative arc feels intuitive in a culture shaped by football tactics and tango's changes of rhythm. And don't shy away from acknowledging possible problems. Fatalism runs deep after decades of crashes and capital controls. An overly positive projection raises suspicion. Explicitly address how your proposal survives Argentine reality: what happens if inflation spikes, the peso collapses, or policy shifts overnight. Build those scenarios into your slides rather than waiting for the Q&A ambush.
+
+Leave room for argument. Argentines often prefer to test ideas live, interrupting to explore tangents or challenge assumptions. Pose a question back to the room, asking how a model would have worked during the 2001 crisis or the latest currency freeze, then weave their examples into your narrative. Provide materials detailed enough that people can defend your proposal in the next internal debate, not just a handful of slogans.

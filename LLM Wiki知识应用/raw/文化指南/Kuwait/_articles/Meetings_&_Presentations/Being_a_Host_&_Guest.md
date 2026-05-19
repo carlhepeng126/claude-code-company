@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Being invited into a Kuwaiti home or a private diwaniya (traditional male gathering space) marks a meaningful step in a professional relationship. Hospitality is woven deeply into Kuwaiti identity, shaped by desert traditions and memories of collective hardship. The diwaniya follows its own rhythm of coffee, tea and conversation, and seating reflects hierarchy. Older men, key figures and honored guests sit in visible positions, and following your host's lead on where to sit, when to speak, and how long to stay shows respect for the structure. Leaving too quickly reads as dismissive, but overstaying can feel awkward once the host signals the gathering is winding down.
+
+Behind many home gatherings is considerable work done by female relatives who cook, arrange details, and host women guests in separate spaces. You may never see this effort, but acknowledging the care behind what you experience honors both the visible hosts and those working out of sight. When you express gratitude, be specific about what struck you: the food, the decor, a story someone shared about pearling or the Iraqi invasion. Generalized thanks feel hollow. Elders especially value when guests listen well to their accounts of pre-oil life and resilience.
+
+When you host in return, mirror that level of care rather than defaulting to convenience. Think about comfort, modesty needs, and thoughtful touches, not just the choice of restaurant or menu. For a colleague from a culture where informal, casual hosting is the norm, this attention to detail can feel elaborate or even formal. For Kuwaiti colleagues, it reflects whether the relationship is genuinely valued. Invitations often go unanswered, so prepare for more guests than confirmed. Greet the most senior person first when they arrive, and expect that any event you host will likely be fuller than you planned.

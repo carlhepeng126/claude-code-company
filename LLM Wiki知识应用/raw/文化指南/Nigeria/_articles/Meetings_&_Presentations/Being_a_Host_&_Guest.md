@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+When you are hosted in a Nigerian professional context, the relationship goes beyond logistics. Hosting includes protection: a good host anticipates discomfort, offers food and drink repeatedly, checks in actively, and makes sure the guest is visibly welcomed by others in the room. The aim is to guard the guest from awkwardness or social oversight. This means a first refusal of hospitality is rarely taken at face value. Accepting graciously, even if only symbolically, respects the labor and intention behind the offer.
+
+As a guest, your behavior reflects directly on your host. Greeting elders first, showing visible gratitude, and avoiding public criticism or friction are seen as markers of good upbringing. The way you acknowledge senior figures, whether with a handshake, a nod, or a more formal greeting, can be read as respect for the person who brought you into the setting. In some Yoruba contexts, greeting rituals can be especially elaborate; in many northern settings, restrained formality and proper acknowledgment of hierarchy take precedence. A colleague from a culture where greetings are brief and informal may misread this attentiveness as time-consuming, while a Nigerian counterpart may interpret casual or rushed greetings as carelessness or arrogance.
+
+Bringing a small, thoughtful gift or gesture of appreciation when hosted signals seriousness and regard. The form varies by region, religion, and class, but the underlying logic is the same: you are recognizing the host's effort and honor. In religiously observant Muslim households, especially in the north, avoid alcohol entirely. Status-conscious gifts are often appreciated, but the thought and timing count more than expense. Learn the local greeting norms and elder protocols for the region you are in, and protect your host socially by avoiding confrontation or potentially embarrassing topics in hosted settings.

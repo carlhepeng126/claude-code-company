@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in the Falkland Islands are typically low on formality and shaped by the practicalities of a small, dispersed population. With fewer than 3,500 people spread across isolated settlements, many meetings happen face-to-face in Stanley, the capital, but phone calls and informal catch-ups are just as common for routine coordination. People are used to working with limited resources and tight-knit networks, so the focus is on getting things done rather than following rigid protocols. If you're planning a meeting, a simple email or phone call is usually enough, and confirming the time a day or two in advance is appreciated without needing weeks of lead time.
+
+The tone during meetings tends to be direct and practical. Islanders value straightforwardness and are less likely to engage in extended small talk before turning to the agenda. This reflects a culture where everyone knows everyone, and trust is built through consistency and reliability over time rather than performative rapport. Decisions are often made by a small group of senior figures, particularly in government or the Falkland Islands Company, so ensure the right people are in the room if you want movement on a proposal.
+
+After a meeting, follow-up is typically informal but expected. A brief email summarizing what was agreed and next steps will be well received. Islanders are cautious about outsiders overpromising, especially given the territory's political sensitivity and history of broken assurances. Delivering on what you say, even in small ways, builds the credibility needed for longer-term collaboration.

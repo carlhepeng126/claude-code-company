@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Years of mixed messages from politicians and media have taught most Greeks that official information is only part of the story. People routinely ask friends in unions, ministries, or political circles "ti paizei?" (what's really going on?) to uncover what lies beneath the public version. This reflex runs deep, and it shapes how colleagues receive formal announcements at work. If your internal memo contradicts what people have already heard in café conversations, Facebook groups, or evening TV panel shows, the café version will win until you directly address it. These informal networks function as a parallel information system, and ignoring them means your message arrives already doubted.
+
+Greeks also expect narrative, not just conclusions. A short email listing a decision without explaining how the team arrived there, who pushed for what, or where the trade-offs lie can feel dismissive or deliberately vague. People want to understand the full arc: what led to this point, whose interests are at stake, and what constraints shaped the outcome. Providing that context, and being frank about both winners and constraints, builds credibility in a way that polished bullet points alone cannot.
+
+Live sessions where people can question you directly often carry more weight than written updates. Greeks trust what they have had a chance to debate and test. A townhall or small-group meeting where someone can push back and hear your reasoning in real time reassures people far more than a PDF ever will. When communicating change, assume your audience already has a rumour version of events and address the most common myths explicitly. That directness, paired with narrative depth, turns skepticism into trust.

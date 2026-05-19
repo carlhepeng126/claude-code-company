@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Senior leaders in Mexico typically hold final authority, though the path to a decision is rarely direct. Behind the scenes, they consult people they trust: long-standing mentors, family advisors, key colleagues inside or outside the formal structure. These informal networks influence outcomes as much as any formal analysis. A pitch that looks strong on paper may succeed or stall depending on who has been consulted and whether the relational ground has been prepared. Public contradiction is avoided, so dissent is raised quietly, often after a meeting, and the final call emerges later once alignment has been built.
+
+This means decisions usually crystallize after formal discussions, not during them. Meetings are used to present information and gauge sentiment, but the real deliberation happens in subsequent one-on-one conversations. For a colleague from a culture where decisions are made quickly through group debate, this can feel unclear or unnecessarily drawn out. From a Mexican perspective, the same colleague's expectation of on-the-spot resolution can feel pressured and socially tone-deaf, bypassing the relational work that gives a decision legitimacy.
+
+Timing also shapes outcomes. The same proposal can land very differently depending on when it's raised, who is present, and what else is unfolding in the organization or the broader environment. Framing options in terms of relational and organizational benefit, rather than efficiency or speed alone, increases support. Well-structured recommendations help senior leaders weigh options, but expect final decisions to rest with one or two people, and for those decisions to reflect both analytical and relational considerations.

@@ -1,0 +1,11 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Costa Rica's small professional circles in the Central Valley mean that personal introductions open doors more reliably than cold outreach. Ministries, public universities, business chambers, cooperatives and NGOs form overlapping networks where warm connections travel quickly. This reflects a legacy sometimes called "coffee democracy," a myth of relative equality that nonetheless shaped real expectations around approachability and shared background. Ask local partners to introduce you through their existing networks rather than relying on formal channels alone. A colleague who can vouch for your integrity and seriousness will shorten the distance considerably.
+
+The tone in Costa Rica is often relaxed and warm from first contact, the famous *Pura Vida* (pure life, a phrase used as a greeting and general expression of ease) greeting offered with genuine friendliness. Behind that ease, though, sits a clear expectation of professionalism and follow-through. Ticos respond poorly to pushiness or high drama. Match the warmth with calm seriousness. Be clear about what you're proposing and why, but keep your tone unhurried and respectful. This combination of friendliness and integrity is how credibility is built.
+
+Email remains the official record, but WhatsApp confirms logistics, shares location pins, and clarifies last details. Voice notes are common when tone or nuance needs to come through. Send the formal meeting request by email, then follow up with a polite WhatsApp message on the day.
+
+Outside the Central Valley, especially in Limón, Guanacaste or indigenous territories, a history of neglect by San José-based actors has left skepticism. Relationships there often run through local leaders, community representatives or cooperative structures, not just formal titles. Identify and approach these intermediaries first. Their endorsement signals respect for local realities and smooths entry where outsider status might otherwise create distance.

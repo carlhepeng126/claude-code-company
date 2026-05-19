@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiations in Burundi are built on personal trust and mutual assurance, and reaching an agreement can take considerably longer than you might be used to if you come from a culture where deals are closed quickly. People want to be certain they are entering into a partnership with someone reliable, not simply signing a contract. This means early discussions often focus on establishing the relationship itself, and what can feel like slow progress to an outsider is actually the careful groundwork that makes the final agreement possible. If your counterpart revisits points you thought were settled, it reflects this same caution. Decisions are rarely made in isolation, and senior figures or trusted advisors may need to be consulted before anything is finalized. Expect to allow time for this process and resist the urge to press for closure before the necessary conversations have happened.
+
+The style of conversation may also shift or circle back in ways that seem unstructured. A discussion about pricing might suddenly turn to logistics, or an earlier topic might be reopened for clarification. This is how people test understanding and make sure all angles have been considered. It is not a sign of confusion or disorganization. Rolling with these shifts rather than trying to redirect the conversation back to a fixed agenda will help you stay in step with how decisions are actually being shaped.
+
+Bargaining is expected, and leaving room for concessions is a practical necessity. Offering your best terms at the outset can backfire, as your counterpart may assume there is still flexibility you have not disclosed. Building in space to adjust shows you understand the give and take that underpins a fair outcome, and it allows both sides to feel the agreement was reached through collaboration rather than pressure.

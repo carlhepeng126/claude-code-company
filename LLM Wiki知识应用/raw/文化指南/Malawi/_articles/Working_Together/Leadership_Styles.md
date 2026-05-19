@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leaders in Malawi gain credibility through steadiness, moral seriousness, and a visible commitment to preserving dignity. The country's mission-school legacy fused literacy and public leadership with moral formation, and that inheritance still shapes expectations today. A leader's perceived character — reliability, uprightness, a calm demeanor under pressure — can be just as decisive as technical competence or charisma. This means that abrupt decision-making or directive communication without relational grounding may register as disrespectful, even if outcomes are sound. Credibility builds when leaders demonstrate restraint, consult before deciding, and frame change through process rather than assertion.
+
+The shadow of the Banda era also lingers. Decades of one-party rule created a lasting memory of authority as controlling and sometimes punitive. That history makes people alert to heavy-handed leadership, even while they still respect firmness when it protects stability. Leaders who bypass consultation or rely on visible command risk activating that wariness. Conversely, a leader who combines clear direction with inclusive process can reassure teams that structure does not mean surveillance.
+
+Hierarchy is real, but influence is often relationally placed. Age, kinship, and community standing shape who is listened to, especially outside the capital. In matrilineal Chewa contexts, authority may run through the mother's line, and a maternal uncle can hold guardian-like status. A project manager from a context where formal titles alone confer authority may find that decisions move more slowly than expected, not because of delay but because informal legitimacy is being quietly secured. Similarly, a Malawian colleague placed in a role abroad may be read as hesitant when, in fact, they are assessing relational legitimacy before acting decisively.

@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Togo blend courtesy with caution, especially in early encounters. Relationships form the foundation for professional trust, so first meetings often begin with extended greetings and informal conversation before any agenda takes shape. This is more than politeness. In a context where personal networks often determine access and opportunity, people use these opening moments to assess character and build the relational ground needed to conduct business safely. Rushing to the formal agenda can suggest you see the meeting as transactional rather than the start of something mutual.
+
+Hierarchy runs quietly through the room. While discussion may appear open, final decisions rest with senior figures, and their presence signals that the meeting holds real weight. If the most senior person from your side does not attend, it may suggest to your Togolese counterparts that you are not yet serious about the partnership. Likewise, expect that commitments made in the meeting will need endorsement from above before they take effect, even if the conversation felt collaborative.
+
+Colleagues from cultures where decisions are made quickly in the room may find Togo's pace frustrating, interpreting delay as indecision or lack of interest. From a Togolese perspective, that same rush can look reckless, as though the other party has not thought through risk or consulted those who matter. Moving forward without clear internal alignment or visible senior backing undermines credibility rather than building it. Allow time between meetings for consultation, and follow up in writing to confirm what was discussed. This reinforces respect for process and reduces the chance of misunderstanding later.

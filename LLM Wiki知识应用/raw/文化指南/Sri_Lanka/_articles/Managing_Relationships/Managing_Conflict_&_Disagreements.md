@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+In Sri Lankan workplaces, disagreement is often managed through indirect phrasing, tact, and quiet realignment rather than direct challenge. This reflects a broader cultural preference for preserving harmony and protecting face, especially in early or cross-status relationships. Open confrontation risks damaging not just the working relationship but the social trust that underpins it. If you raise a concern bluntly in a meeting or contradict a colleague in front of others, you may find the issue goes underground rather than getting resolved. The other person may withdraw, agree outwardly but resist privately, or bring the matter to a senior figure rather than continue the exchange with you. Moving the conversation into private space, softening your tone, and focusing on the specific behaviour rather than the person can help the issue stay workable.
+
+Trusted intermediaries play a practical role when tension has already surfaced. A senior colleague, a mutual contact, or a respected team member can help both sides reach resolution without either losing face publicly. This is especially useful when the disagreement touches on hierarchy, gender, or identity-linked sensitivities. Even task-focused conflict can quickly become personal if someone feels categorized or disrespected along lines of region, community, or language. Keep identity off the table by avoiding references to where someone is from or what group they belong to when discussing the problem at hand.
+
+If something you said or did lands badly, repair it quickly with a plain apology. Long justifications or explanations can make things worse. Humour can lighten tension, but it can also sting when it touches on class, ethnicity, or background, so use it with care in unresolved situations.

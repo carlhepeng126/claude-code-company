@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Making contact in Lebanon is rarely a cold process. The country's confessional structure has shaped a society where community institutions, schools, and family networks form a practical infrastructure for connection. People often locate each other through shared reference points before settling into business. Early conversations may include gentle questions about where you're from, where you studied, or who you know. This isn't intrusive curiosity. In a dense, layered society where belonging is networked and trust is built through familiarity, these questions establish context and signal social legibility. A warm introduction from a mutual contact can shift your standing immediately, moving you from unknown to vouched-for in a single conversation.
+
+Schedule appointments a few weeks ahead and reconfirm when you arrive. Lebanese professionals expect punctuality, a remnant of French influence that sits alongside a more flexible Arab approach to time. You should arrive on time, even if your counterpart may not. But avoid scheduling meetings back to back. Conversations may start late, run long, or expand into lunch. Invitations to share a meal should be accepted. Connection-building often happens around food, where conversation, humor, and story flow most naturally. The table functions as a social stage, and declining an invitation can read as disinterest in the relationship itself.
+
+Expect to meet several times before serious business begins. Relationships move from contact to known person through repeated, informal interaction. If you can't make an appointment, apologize quickly and propose an alternative. Commitment to the relationship shows through how you handle disruption, not just how you handle agreements.

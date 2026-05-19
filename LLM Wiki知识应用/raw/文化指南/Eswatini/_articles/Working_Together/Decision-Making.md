@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in Eswatini follows established hierarchies rooted in both traditional governance structures and the influence of royalty in national life. Senior leaders, whether in government, business, or community settings, hold the authority to make final calls, and their approval is often needed before major actions move forward. This deference to seniority reflects a broader cultural respect for age, experience, and position. Decisions are rarely contested openly once a senior figure has weighed in, even if the process leading up to that point involved consultation.
+
+That consultation happens, but it unfolds along relationship lines rather than through formal channels alone. Managers and leaders typically seek input from people they trust before finalizing a decision, often in informal settings or one-on-one conversations. This allows them to gauge how a decision will be received, identify potential concerns, and build quiet agreement without public disagreement. The goal is to arrive at a conclusion that maintains harmony and avoids open conflict, particularly in front of others. If you are leading a project, schedule time for individual conversations with key stakeholders before presenting a decision in a group setting, rather than expecting open debate in meetings.
+
+The pace can feel slow to colleagues from cultures where decisions are made quickly and adjusted later if needed. In Eswatini, the preference is to move carefully and consult thoroughly before committing, rather than risk a decision that disrupts relationships or bypasses the right people. A colleague from a fast-moving environment may read this as indecision or avoidance, while someone from Eswatini may view a quick unilateral decision as disrespectful or reckless. Understanding this difference means adjusting your timeline and recognizing that the consultation phase is doing essential work, not delaying it.

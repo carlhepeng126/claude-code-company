@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Arriving five minutes early is the baseline in Chinese business settings. Punctuality expresses consciousness of hierarchy and respect for seniority. When a senior colleague is kept waiting, they lose face in front of their team, and that breach of dignity can quietly derail a relationship before it starts. Treat meeting times as fixed and plan around traffic or delays instead of testing the margin.
+
+Business card exchange remains meaningful, especially when meeting foreign counterparts. The ritual itself preserves the dignity of title and hierarchy. Cards should be offered with both hands, Chinese translation facing the recipient, and received the same way. Place the card on the table during the meeting rather than pocketing it immediately. This shows you recognize the person's role and position. Digital exchange via WeChat is increasingly common among younger professionals and in established relationships, so read the room and be ready to shift.
+
+WeChat follow-up after a meeting serves a practical purpose rooted in face protection. Creating a group chat right away ensures everyone has access to the same information and no one is left out or caught unaware later. Miscommunication risks embarrassment, and the group format prevents it. You may also notice that feedback shared privately on WeChat can be more direct than what was said in the meeting. Public settings require harmony and positive framing to protect collective face, but private channels allow for candor within trusted boundaries. If you need clarity on a point raised in front of others, follow up one-to-one rather than pressing for directness in the room.

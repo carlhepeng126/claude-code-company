@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Tanzania is deeply relational. The concept of *utu* (personhood, humanity) shapes how correction is given and received. Because dignity and social standing are central to how people understand themselves in community, feedback that risks embarrassment or public exposure can damage trust in lasting ways. This means that how you deliver a message often determines whether it can be heard at all. Criticism offered in front of others, even if mild, may be experienced as an attack on someone's standing rather than as professional guidance. Offer feedback privately and frame it as shared improvement rather than fault-finding.
+
+Indirectness is a strategy for maintaining relational safety, not a sign of evasiveness. Suggestions may be softened, wrapped in implication, or delivered through example rather than direct statement. This allows the person receiving feedback to save face while still understanding what needs to change. A manager might say, "Perhaps we could look at this part again," rather than, "This is wrong." The message is clear to those attuned to the style, but the relationship remains intact. A colleague from a culture where feedback is given bluntly and quickly may read this as vague or unhelpful, while a Tanzanian colleague may find direct critique unnecessarily harsh or even disrespectful.
+
+Trust shapes how openly feedback can be given. As relational trust deepens, more directness becomes possible without damaging the connection. Early in a working relationship, even well-intentioned coaching may be received cautiously if it has not been preceded by genuine personal investment. Build the relationship first, and the range of what can be said safely will expand naturally over time.

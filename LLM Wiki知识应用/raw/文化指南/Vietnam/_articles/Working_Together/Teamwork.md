@@ -1,0 +1,11 @@
+# Teamwork
+
+## Working Together
+
+Collaboration in Vietnam is often evaluated through both individual output and contribution to group continuity. Post-Đổi Mới economic reforms introduced new mobility and achievement expectations, but these sit alongside deep family responsibility and relational commitment. Team members can be ambitious and also deeply attentive to maintaining collective stability. The result is a working style where how you help the group function over time can be as visible as what you deliver in the moment.
+
+Keeping collaboration smooth is treated as a competence, not evasion. Repair and cohesion are prioritized so the group continues to work together effectively. How someone disagrees, addresses friction, or restores coordination after a misstep is noticed. A colleague from a culture where disagreement is aired quickly in group settings may read this as avoidance, while Vietnamese team members may find immediate confrontation socially reckless and damaging to future cooperation. Addressing issues early works well when done privately, focusing on specific behaviors and processes rather than character, and using repair language that leaves relationships intact.
+
+Trust often circulates through relationship networks. People rely on these webs to assess reliability, which shapes willingness to share concerns, escalate problems, or take shared risks. Reputation is relationally built and maintained. Practical collaboration benefits from creating multiple contribution routes: in-room discussion, written input, smaller follow-ups, and one-to-one check-ins. This allows people to raise issues without public exposure. Delivering what you promise, communicating early when plans shift, and making your commitments visible all build credibility over time.
+
+Teams vary sharply by region, sector, and generation. What works in one setting may not transfer directly to another. Asking what the specific group needs, rather than applying a standard team model from elsewhere, tends to support better results.

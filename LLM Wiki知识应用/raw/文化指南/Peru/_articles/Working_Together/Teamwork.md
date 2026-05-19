@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Collaboration in Peru often draws on reciprocity traditions embedded in Andean social practice. *Ayni*, a form of ongoing mutual support used in Andean communities since before Inka times, and *mink'a*, a communal work approach, reflect the idea that collective effort is sustained through cycles of visible contribution rather than abstract commitments. In workplace teams, this shows up as an expectation that people demonstrate reliability over time through small, repeated follow-throughs. A colleague who offers help once but disappears the next time will lose standing quickly. Sharing effort and acknowledging support given strengthens group trust more than formal team declarations ever will.
+
+Teams often include people with different regional backgrounds, languages, and social histories living side by side. Quechua and Aymara have official usage alongside Spanish in regions where they are widely spoken, yet language and origin remain emotionally loaded markers of inclusion or stigma. A team member from Lima with a coastal accent may dominate the conversation not because they are more senior, but because the room has quietly coded their register as more credible. Summarizing aloud, inviting contributions by name, and checking understanding can prevent one accent or way of speaking from becoming the only serious voice.
+
+The internal armed conflict between 1980 and 2000, which killed or disappeared over 69,000 people, left a lasting imprint on how safe public disagreement feels, particularly for people from rural or Indigenous backgrounds. Trust in teams can take longer to build when institutional memory includes harm. Offering private channels for concerns and keeping disagreement contained and dignified can help people engage without risking exposure in a mixed or unfamiliar room.

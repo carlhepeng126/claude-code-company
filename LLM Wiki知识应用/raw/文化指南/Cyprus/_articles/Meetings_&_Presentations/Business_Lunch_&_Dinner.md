@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals in Cyprus are social occasions first and serve to build personal connection before serious business takes shape. Lunch typically runs between 1:00 and 3:00 p.m., and dinner rarely begins before 8:00 p.m., often stretching well past 10:00 p.m. The meal unfolds slowly, with multiple courses and extended conversation. Rushing through courses or checking your watch signals disinterest in the relationship itself, which can quietly stall progress on the professional side. If you need to leave early, mention it near the beginning of the meal so your host can adjust the pace without losing face.
+
+Cypriot cuisine reflects the island's Greek and Turkish heritage. Meze, a selection of small shared dishes, is central to most business meals. These might include hummus, tahini, grilled halloumi, marinated olives, and slow-cooked lamb or pork. Food arrives in waves, placed in the center of the table for everyone to share. Individual plating is rare. Expect to serve yourself and offer dishes to others as they circulate. Declining food repeatedly can be read as rejecting hospitality, even if you mention dietary reasons. Taking a small portion is safer than refusing altogether.
+
+Wine is commonly served, though not always expected. Many Cypriots drink moderately during business meals, and some abstain entirely depending on personal or family background. If alcohol isn't your preference, simply declining without explanation is perfectly acceptable. Coffee, served strong and often with foam, usually marks the end of the meal but also signals that the conversation can continue for some time longer.

@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+In Moroccan professional settings, the ritual of hospitality does real work. Offering tea before discussing business is not just politeness; it establishes care and moral seriousness. The attention given to a guest in those early minutes, the quality of the welcome, the warmth of the exchange, these moments allow people to assess intent and generosity before any formal agenda unfolds. A colleague from a culture where meetings begin with agendas and timelines may read this ritual as delaying the real conversation, while a Moroccan counterpart may read the rush to business as a signal that the relationship holds no value. Both sides are working from different assumptions about when trust begins.
+
+Communication tends to be implicit and expressive, shaped by Morocco's strong oral and performance traditions. Storytelling, vivid explanation, and animated speech are culturally familiar modes of conveying meaning. But what is left unsaid can be just as revealing. Public composure and the protection of dignity are high-value social goods, so direct disagreement, especially in front of others, is avoided. Listen for the pause, the shift in tone, or the polite deflection. These are not evasions; they are how friction is handled without causing embarrassment. In protocol-heavy or state-adjacent institutions, informality can be misread as disrespect for the institution itself, so structure and procedural awareness are expected.
+
+Trust is read through continuity, not instant rapport. Credibility builds through repeated contact and social consistency, not through one strong pitch. If you are visiting a home, bring modest gifts such as pastries, dates, or flowers. Avoid alcohol or anything with religious symbolism. Present and receive items with your right hand, and do not expect gifts to be opened immediately.

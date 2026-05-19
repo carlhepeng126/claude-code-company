@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Ukraine's approach to time reflects both its agrarian past and the structured rhythms introduced under Soviet industrial planning. Rural communities once worked to seasonal cycles, where timeliness was flexible but rooted in dependability. Decades of production targets and bureaucratic schedules later shaped expectations around punctuality, particularly in formal settings. Today, both threads remain visible, though where you work and whom you work with will determine which one dominates.
+
+In contemporary Kyiv, Lviv, and other major cities, punctuality is the norm. IT, finance, and international sectors expect meetings to start on time and deadlines to be met. Lateness is noticed and should be explained. In more traditional environments or smaller towns, schedules may stretch, not from disregard but from a belief that relationships and context deserve attention before the clock does. If you are joining a call with a team in a global sector, arrive on time. If you are negotiating with a family firm or working with senior colleagues rooted in older workplace cultures, build in room for conversation and recognize that trust often unfolds across multiple meetings.
+
+Decision-making frequently requires consultation with stakeholders or senior figures, which can extend timelines. A colleague accustomed to fast, unilateral decisions may read this as hesitation. A Ukrainian counterpart may see the quick approach as reckless or insufficiently considered. Building relational warmth through conversation early in a partnership takes time, but it also reduces friction later. If you need a decision quickly, state the timeline clearly and early, then follow up with regular updates rather than waiting in silence.

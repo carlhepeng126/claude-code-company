@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+In Guinea-Bissau, decisions move through webs of consultation shaped by kinship ties, ethnic affiliation, and respect for elders. Authority rests formally with those in senior positions, but choices are rarely made in isolation. Leaders typically seek input from trusted circles before committing, particularly when decisions affect relationships or could unsettle group harmony. This reflects a society where social cohesion and relational reputation often outweigh procedural speed. Decisions are finalized when key voices have been heard and when the leader feels the choice will hold socially as well as operationally.
+
+Timelines are often shaped by these consultations. What looks like delay may actually be a leader working quietly across family networks, ethnic groups, or informal advisors to test reactions and build support. Managers balance their formal role with the need to maintain standing within their communities. A decision announced without this groundwork risks being seen as disconnected or imposed, even if it is technically sound. Expect revision and adjustment as new voices surface or circumstances shift.
+
+A colleague from a culture where decisions are made quickly and individually may read this process as indecisive or opaque. From Guinea-Bissau, rapid closure without visible consultation can appear reckless or disrespectful, as though relationships and collective consequences were ignored. If you are working with a decision-maker in Guinea-Bissau, asking who else should be involved, or allowing space for informal soundings, helps the process move forward. Pressing for a firm answer before consultation is complete often prompts delay rather than resolution.

@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Malta's small geography and high social visibility shape how feedback is given and received. In a society where reputations travel quickly and people often cross paths across professional and social settings, critique can feel more personal than it might elsewhere. Feedback that risks public embarrassment or creates a story that circulates can damage not just the working relationship but a person's standing in overlapping networks. The result is a preference for tact, privacy, and relational care when something needs to be addressed.
+
+This approach mirrors how correction works in other Maltese settings. Parish and festa cultures maintain harmony through indirect channels and careful language. When something needs fixing, it's done in a way that preserves the person's dignity while still resolving the issue. The same logic applies at work. Frame feedback privately, focus on repair rather than blame, and avoid language that could be interpreted as shaming. A quiet conversation that protects someone's face will be far more effective than a direct critique delivered in front of others.
+
+Language choice also plays a role. Maltese can bring warmth and relational cushioning to a difficult conversation, while English may introduce formality or distance. The channel itself can shift how feedback is emotionally received. A manager switching to English for a formal performance discussion may signal seriousness, but it can also feel colder. Conversely, using Maltese in a one-to-one coaching moment can soften the message and reinforce trust. Pay attention to which language feels right for the relationship and the setting, and be aware that the choice itself sends a signal about tone and intent.

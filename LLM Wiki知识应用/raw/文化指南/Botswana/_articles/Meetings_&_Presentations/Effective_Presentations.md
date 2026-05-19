@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Botswana work best when they invite participation rather than broadcasting information. The cultural value placed on *botho* (a concept of shared humanity and communal respect) means your audience expects to be engaged in dialogue, not lectured at. Even in formal settings, a tone that feels too polished or impersonal can create distance. People respond more warmly to presenters who speak conversationally, acknowledge the room, and leave space for questions or comments as they go. If you move through slides without pausing, you risk coming across as though you've already made up your mind, which can feel dismissive in a culture where consensus and inclusion are deeply valued.
+
+Senior figures are usually present, but decision-making often happens after the presentation, in smaller conversations or through consultation with others not in the room. This means your immediate goal is not to secure a yes on the spot, but to build credibility and leave the door open for follow-up. A colleague from a culture where decisions are made quickly in the moment may feel frustrated by this rhythm, reading it as indecision. Someone from Botswana, meanwhile, may see rapid commitment as reckless or disrespectful to the group. Allow time after your presentation for informal discussion, and follow up individually with key stakeholders. These quieter exchanges often reveal more than the formal session itself.
+
+Keep language simple and visual aids clear, especially in settings where English fluency varies. Dense slides or technical jargon can exclude people who might otherwise contribute. If your presentation feels like a performance rather than a conversation, you'll likely leave with polite nods but little real engagement.

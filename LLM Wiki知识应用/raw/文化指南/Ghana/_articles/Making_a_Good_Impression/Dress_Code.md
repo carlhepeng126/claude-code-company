@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Ghanaians judge professionalism through how you put yourself together. A well-ironed shirt and polished shoes, even if inexpensive, make a stronger impression than costly clothing worn creased or carelessly. In a climate where the heat is constant, looking sharp takes deliberate effort, and that effort registers as respect for the meeting, the institution, and the relationship you're building. Colleagues notice when your appearance is considered, and when it's not.
+
+Formality varies by sector, but most business settings in Accra and Kumasi expect smart, coordinated outfits. Banking, oil and gas, and government ministries lean formal: dark suits for men, tailored dresses or suits for women, closed shoes. NGOs, tech companies, and creative firms allow business casual, but "put together" still applies. Beach-casual, revealing cuts, or overly relaxed clothing can undermine credibility, especially in first meetings or in contexts where religious norms around modesty run strong across both Christian and Muslim communities. The north of the country is generally more conservative, and visitors should adjust accordingly.
+
+Many offices observe "African wear Fridays," when staff trade Western suits for wax-print fabrics or batakari (smock). Joining in with quality fabric is read as genuine engagement, not performance, provided you've checked with local colleagues first. Kente, by contrast, is reserved for highly significant occasions such as product launches, national honors, or weddings, and wearing it casually can feel off-key. When in doubt about what an event calls for, ask. Ghanaians appreciate the question more than the guess.

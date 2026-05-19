@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiation in French Guiana reflects the territory's layers of influence: French administrative culture, Caribbean relationship-building norms, and the practical realities of a small, interconnected professional community. Deals are rarely concluded quickly. The process tends to move through phases of consultation, reflection, and sometimes re-discussion of points already covered. This isn't inefficiency. It reflects both the need to align with decision-makers in metropolitan France, where final approval often rests, and a local preference for building confidence in the people you're working with before committing. If you present your strongest terms early, you may find yourself with no room to adjust when new concerns surface later in the conversation.
+
+Trust matters in a place where professional networks are small and reputations travel fast. People want to know that the partnership will hold, not just on paper but in practice. Early meetings may feel more social than transactional, with time given to understanding who you are and how you work. For colleagues from cultures where negotiations follow a linear agenda, this can feel indirect or slow. From a French Guianan perspective, a counterpart who pushes for closure without building rapport may come across as short-sighted or transactional.
+
+Flexibility is expected, and reopening earlier points doesn't mean the negotiation has stalled. It often means someone has consulted internally, or that a new angle has emerged worth exploring. Leave time between meetings for this to happen, and avoid framing delays as setbacks. The goal is an agreement that both sides feel comfortable standing behind over time.

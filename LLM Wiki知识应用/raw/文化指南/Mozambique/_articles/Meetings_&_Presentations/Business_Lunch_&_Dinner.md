@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Sharing food in Mozambique often expresses mutual obligation and care, rooted in kinship networks where households and extended family remain core support systems. In professional settings, this means an invitation to eat together can hold relationship weight beyond the meal itself. Accepting and participating fully, rather than treating the occasion as purely transactional, helps strengthen trust. Expect the pace to be unhurried, allowing space for conversation to unfold naturally.
+
+Regional variation shapes what the table looks like and how meals are timed. On the northern coast and Ilha de Moçambique, Indian Ocean trading histories and Islamic community life influence both the flavors served and the social rhythms around eating. Coastal menus may reflect maritime exchange, with different spicing and timing expectations than in inland agricultural zones. In Maputo, urban infrastructure can affect when colleagues are able to gather. Transport realities mean scheduling may feel less predictable, and meal times can shift based on how long it takes people to move across the city. Building in flexibility shows you understand daily realities.
+
+Maputo offers many excellent restaurants, and Mozambican cuisine blends Portuguese, Indian, and African influences. Fresh seafood, coconut milk, cashew nuts, chili, and tropical fruit are central. Piri-piri prawns and grilled crayfish are popular. Portuguese and South African wines are widely available. Music and live bands may extend the evening beyond the table, and it's common for dinner to include dancing or listening to music. Self-control is expected, and getting visibly drunk is not part of professional culture.

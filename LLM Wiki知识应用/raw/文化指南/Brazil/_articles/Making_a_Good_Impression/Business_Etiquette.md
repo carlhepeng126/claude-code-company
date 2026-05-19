@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Business etiquette in Brazil is shaped by a deep cultural expectation of friendliness and courtesy. Indigenous and Afro-Brazilian communal traditions emphasize hospitality and maintaining harmony, while Catholic and evangelical influences introduce moral language around respect, gratitude, and humility that may appear in formal speeches or casual conversation. The Portuguese colonial legacy left traces in the use of titles and deference to seniority, though these formalities are softened by the broader priority Brazilians place on warmth. This combination creates a professional culture where being friendly is not optional. A courteous, relational tone builds trust, while being too transactional or impersonal can undermine your credibility before substantive work even begins.
+
+Physical closeness and expressive body language are normal in Brazilian professional life. Conversations often involve touching an arm or shoulder, and maintaining steady eye contact signals engagement and sincerity rather than aggression. Animated gestures are common, and standing close during conversation reflects interest, not intrusion. Backing away from this proximity can be read as discomfort or disinterest. Some gestures carry specific meanings: the thumb-and-forefinger circle considered innocuous elsewhere is vulgar in Brazil, while placing your thumb between your index and middle fingers invokes good luck.
+
+Criticism or disagreement should be handled with care. Publicly embarrassing someone damages relationships in ways that are difficult to repair. Sensitive issues are best raised privately, framed gently, and delivered in a way that protects the other person's dignity. A colleague from a culture where directness is valued may find this approach evasive, while a Brazilian may perceive blunt feedback as unnecessarily harsh or disrespectful. The goal is to preserve the relationship while still addressing the issue.
+
+Gifts are not expected at first meetings. Wait until a relationship has formed, then offer something practical or a tasteful item from your home country. Avoid black or purple, which are associated with mourning, and sharp objects like knives or scissors, which symbolize severing ties.

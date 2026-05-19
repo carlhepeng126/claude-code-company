@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Jersey tend to balance practicality with politeness. Schedules are respected, and while you won't need months of lead time, giving at least a week's notice shows consideration and allows people to plan around their workload. Confirming attendance and agenda details ahead of time is appreciated. The island's small professional community means that many people already know each other or have mutual contacts, so clarity about who will attend and what the meeting aims to achieve helps avoid duplication and makes good use of everyone's time.
+
+The tone during meetings is usually cordial but direct. Jersey professionals expect you to get to the point without excessive preamble, but this doesn't mean skipping pleasantries altogether. A brief acknowledgment at the start, perhaps a comment on the weather or a shared connection, is normal. From there, the conversation moves to substance. People speak with economy, and there's little tolerance for vagueness or overstatement. If you're unsure about something, say so. Overpromising to avoid awkwardness will be noticed and remembered. A colleague from a culture where indirectness is valued as tactful may find this plainness abrupt, while someone from Jersey working abroad may interpret hedging or elaborate framing as evasiveness rather than courtesy.
+
+Decision-making authority is often concentrated at senior levels, especially in traditional sectors like finance and law. Junior participants may attend but are unlikely to commit without consulting upward. This means that even when a meeting feels productive, final approval may take longer than the discussion itself suggested. Patience with this process, and clarity about who holds sign-off, will help avoid misaligned expectations.

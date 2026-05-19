@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Korean address is built on a Confucian social logic where relationships are organized by relative position: age, seniority, role, and in-group status. Honorific speech, known as *jondaetmal* (polite speech), is a way of protecting dignity, signaling respect, and keeping social order legible. In professional settings, this means titles often matter more than names. The safest address is usually role-first: job titles like *gwajangnim* (section chief) or *bujangnim* (department head), relational titles like *seonbae* (senior) or *hubae* (junior), or the respectful neutral *seonsaengnim* (literally teacher, used more broadly). This reflects a workplace where roles function as socially meaningful positions, and where using someone's name directly can feel overly intimate or socially mispositioning.
+
+The suffix *nim* adds a layer of respect to any title or name, softening hierarchy without erasing it. It helps people handle status differences without making them harsh. When a relationship is still forming or rank is unclear, using *nim* reduces friction. First names on their own can sound unusually close, youthful, or even confrontational, so many Koreans prefer "name + *ssi*" or "name + *nim*" to preserve respectful distance while still being personable. 
+
+Switching to *banmal* (informal speech) is a relational threshold, not just casual language. Many Koreans treat it as a shift into closeness, shared rank, or permission-based intimacy. A colleague from a culture where first-name address is the norm from the outset may read honorific speech as stiff or overly formal, while a Korean colleague may read immediate informality as presumptuous or disorienting, bypassing the social reading that usually happens first.
+
+Startups, creative sectors, and younger peer groups may move faster into casual speech, and online spaces have their own norms. But even where surface informality is rising, the cultural competence of quickly reading rank, age, and context remains central. People often code-switch rather than abandoning the system.

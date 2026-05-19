@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Authority in Nigerian workplaces is concentrated at the top, shaped by the hierarchical structures of Nigeria's 250+ ethnic groups and reinforced by a colonial legacy of top-down bureaucratic governance. Managers are expected to be decisive and directive. They give clear instructions and expect them followed precisely. Taking initiative outside one's defined remit is culturally unfamiliar in most traditional Nigerian organizations, so if you want proactive thinking or independent problem-solving, ask for it explicitly and create clear permission for it. Otherwise, the default is to wait for direction.
+
+The manager-employee relationship is deeply paternalistic. The boss is a figure of protection and provision, expected to show genuine care for the team's wellbeing, sometimes extending to personal and family matters. In return, loyalty runs deep. A manager who genuinely knows and cares about their team earns commitment that transactional management cannot produce. Public correction or criticism damages standing and the relationship profoundly. It is understood as a serious breach by the manager, so feedback must always be given privately.
+
+Nigeria's ethnic and regional diversity affects how management lands in practice. Yoruba, Igbo, and Hausa-Fulani cultures each bring distinct approaches to authority and communication, and a single style may not resonate equally across a mixed team. Take time to understand the specific cultural backgrounds represented. In multinational companies with flatter structures, highly educated young Nigerians often respond well to empowerment and expect freedom to advance. In more traditional organizations, decision-making power may be tightly held, and employees follow established procedures without questioning them.

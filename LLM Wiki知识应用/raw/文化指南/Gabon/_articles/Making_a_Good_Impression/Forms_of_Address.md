@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Gabon's professional culture places considerable emphasis on formality and respect in how people address one another, particularly in first encounters and hierarchical settings. Titles matter. Use "Monsieur" (Mr.) or "Madame" (Mrs. or Ms.) followed by the person's surname until explicitly invited to move to first names. Professional titles such as "Docteur" for those with advanced degrees or "Directeur" for senior managers are used regularly and signal recognition of both achievement and position. Omitting a title when one exists can come across as dismissive or careless, so take the time to learn how colleagues prefer to be addressed.
+
+This formality reflects Gabon's respect for hierarchy and seniority, values rooted in both French colonial influence and traditional social structures where age and status command deference. In workplaces, this means that moving to informal address is not automatic, even after several meetings. Wait for the senior person to suggest using first names. If you are working with a Gabonese colleague in a setting where informality is the norm from the outset, they may perceive it as rushed or lacking in proper respect. Equally, a colleague from Gabon meeting counterparts who use first names immediately may read this as overly casual or a sign that the relationship has not yet been taken seriously.
+
+In written communication, maintain the same level of formality. Open emails with "Cher Monsieur" or "Chère Madame" and close with "Cordialement" or "Respectueusement." Even in digital exchanges, dropping formality too quickly can undermine credibility and weaken the relational foundation you are building.

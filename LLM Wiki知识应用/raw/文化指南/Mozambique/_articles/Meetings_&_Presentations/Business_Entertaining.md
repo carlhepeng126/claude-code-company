@@ -1,0 +1,11 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in Mozambique functions inside a wider ethic of reciprocity and mutual support, particularly where formal safety nets have been uneven or disrupted. Hosting is rarely just personal generosity. It reflects kin networks, neighbourhood bonds, and moral communities where people rely on each other over time. An invitation to share a meal is often a gesture of inclusion, and accepting it means entering a longer arc of relationship, not just a one-off social event. Reciprocating when possible strengthens the connection and recognizes the ethic at work.
+
+Maputo offers seafood restaurants by the coast, cafes for morning coffee meetings, and a variety of venues shaped by the city's cosmopolitan history. Timing expectations can be less rigid than in cultures where schedules are tightly synchronized, partly because daily movement is structured by chapas (shared minibus taxis), which shape when people can gather and how predictably they arrive. Lunch is often the main meal of the day. Dinners may be lighter and earlier, especially if your host faces a long commute home.
+
+In coastal towns like Ilha de Moçambique, hospitality can carry layered memory from centuries of Swahili, Indian, and Portuguese exchange. The tone may be more cosmopolitan, reflecting maritime identity rather than purely inland or southern urban codes. In northern coastal settings, Islamic festival rhythms and organized women's cultural forms like tufo (collective performance groups tied to community identity) shape social calendars in ways that may differ from Maputo norms. In conflict-affected northern areas, social formats may feel more cautious, with trust networks tighter and hospitality functioning as a way to rebuild connection in disrupted communities.
+
+Drinking beer is common in some circles, though preferences vary by religious background and social context. Smoking is less widespread, and both are more typically associated with men. Follow your host's lead on alcohol and keep conversation relaxed. Business talk may surface lightly or not at all during the meal. The gathering itself builds the relationship, and pushing for outcomes too soon can read as transactional.

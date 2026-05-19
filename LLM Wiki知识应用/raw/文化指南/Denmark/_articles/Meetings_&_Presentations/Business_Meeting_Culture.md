@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+A good meeting in Denmark follows a clear agenda, runs to time, and gives everyone affected by a decision the chance to speak. This reflects a deeply held belief in equality at the table. Seniority does not grant you a monologue, and people expect to contribute to matters that touch their work. If you chair a meeting, you will be judged on how well you keep things moving and whether you make room for most voices, not just the loudest or most senior.
+
+Disagreement is normal and expected. It's acceptable to say "I don't agree" or "I see it differently," and people will respect you for doing so calmly. The tone stays cool and analytical. Raising your voice, interrupting aggressively, or emotional displays feel childish and undermine your credibility. For a colleague from a culture where passion in meetings shows commitment, this restraint can seem detached. From the Danish side, visible emotion in a professional discussion can feel like a loss of control. If you want to challenge a point, frame it as a question or offer an alternative supported by evidence. Forcing consensus when reservations exist will be resented.
+
+When a topic needs more time than the agenda allows, Danes often *parkere det* (park it) and schedule a follow-up. This shows respect for the meeting's structure and everyone's time, and it allows the issue to be given proper attention later. If you try to solve everything in one sitting, people may disengage. Instead, propose a concrete next step and a date. Verbal agreements made in meetings are usually honored unless new information emerges, so take what is said seriously.

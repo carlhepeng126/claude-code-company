@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Ecuador is shaped by the value placed on personal dignity and group harmony. Negative feedback, especially when delivered directly in front of others, risks damaging both the individual's standing and the team's cohesion. Managers typically frame critiques gently and deliver them privately, often using softer language or indirect suggestions. A colleague from a culture where feedback is expected to be blunt and immediate may interpret this restraint as avoidance or lack of clarity, while an Ecuadorian colleague may read direct critique as unnecessarily harsh or disrespectful. Being specific about what needs to change while maintaining a respectful tone helps feedback register without creating tension.
+
+Praise is welcomed, but the timing and setting matter. Public recognition can work well when it acknowledges the group or collective effort, reinforcing shared success rather than singling out one person in a way that might unsettle team balance. Individual praise is better given in private or framed in relation to the team's overall achievement.
+
+Coaching relationships often develop through trust built over time rather than through formal programs. Ecuadorians may prefer guidance that feels relational and responsive to their situation, not formulaic. If feedback is delivered too early in a working relationship or through impersonal written channels, it may be received politely but not acted on. A brief, well-timed conversation that acknowledges context and invites dialogue is more likely to lead to genuine change than a structured review delivered at a set interval.

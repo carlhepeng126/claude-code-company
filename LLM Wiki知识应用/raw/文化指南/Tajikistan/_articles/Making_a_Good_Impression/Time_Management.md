@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Tajikistan is flexible, but the flexibility follows social logic. Relationships, seniority, and context shape when things begin and how long they take. Punctuality exists as a formal expectation, especially in government offices, international organizations, and sectors tied to external standards. But in daily professional life, especially in family businesses, small enterprises, and rural settings, schedules bend around people. A meeting may start late if a senior figure is delayed, or if a conversation with a guest takes longer than planned. This reflects a relational priority: honouring the person in front of you matters more than holding to a timetable. Arriving late to a meeting with a valued contact may be accepted, while keeping a foreign partner waiting without explanation can create tension.
+
+Colleagues from cultures where start times are fixed may read this as disorganization or lack of commitment. From a Tajik perspective, rigid adherence to the clock when someone's presence or input is still needed can seem cold or transactional. The expectation is that schedules will adjust to fit the situation, not the other way around. In practice, this means confirming meeting times closer to the day, allowing buffer time around appointments, and recognizing that delays often reflect competing obligations rather than indifference.
+
+Deadlines are taken more seriously when tied to external partners, contracts, or formal accountability. Internally, timelines may shift as priorities are reassessed or senior approval is sought. Younger professionals in urban centres and international firms may adopt more structured time management, but even here, the social dimension remains. Build in time for greetings, expect that not everyone will arrive at once, and frame urgency in terms of shared goals rather than abstract deadlines.

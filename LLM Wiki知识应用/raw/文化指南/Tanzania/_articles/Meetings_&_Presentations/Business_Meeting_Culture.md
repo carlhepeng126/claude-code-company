@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Tanzania reflect a wider cultural commitment to *utu* (human dignity) and relational care. They often begin with greetings, inquiries about wellbeing, or informal conversation that might seem separate from the agenda. This opening creates social recognition and mutual respect, making it easier to engage honestly once the discussion moves forward. Skipping or rushing these moments can leave people feeling unacknowledged, which affects how fully they contribute later.
+
+The tone during meetings is usually composed and courteous. Disagreement tends to be expressed indirectly through hesitation, softened phrasing, or silence rather than open contradiction. This reflects a concern for preserving social equilibrium, especially when age or seniority differences are present. A colleague from a culture where decisions are debated quickly in real time may read this restraint as disengagement or lack of conviction. In return, Tanzanian participants may view rapid, direct challenge as impolite or dismissive of relational care. Listen closely for what is left unsaid or phrased gently, and follow up privately if clarity is needed rather than pressing for a response in the moment.
+
+Hierarchy shapes meeting flow in subtle ways. Even in modern or mixed settings, people notice who speaks first, who summarizes, and who closes discussion. Age, status, or moral authority often guide these dynamics quietly. Let hosts set the structure and pace, and avoid assuming that silence means agreement. Coastal and Zanzibar settings may carry stronger Swahili-Islamic formality, while urban mainland meetings can feel more hybrid but remain grounded in dignity and relational awareness.

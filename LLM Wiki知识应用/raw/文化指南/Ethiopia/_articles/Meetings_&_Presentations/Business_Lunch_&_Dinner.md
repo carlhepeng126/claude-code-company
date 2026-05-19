@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Sharing a meal in Ethiopia often begins with injera, the spongy flatbread made from fermented teff that anchors almost every traditional dish. Colleagues eat from a shared platter, tearing off pieces with the right hand to scoop stew directly from communal bowls. How you handle injera is noticed. Taking too much, piling your portion too high, or hesitating to touch the shared dishes can suggest discomfort or distance. Clumsy technique is easily forgiven if you show good humor and a willingness to learn, but reluctance to participate reads differently. A colleague from a culture where individual plates are the norm may find the closeness unfamiliar, while Ethiopian colleagues may interpret hesitation as reluctance to connect.
+
+Religious fasting shapes the food landscape in practical ways. Many Orthodox Christians observe fasting days that exclude meat, dairy, and eggs, and restaurants respond with ye'tsom migib, vegan fasting menus featuring chickpea stews, lentils, and vegetables. Booking a meeting at a steakhouse during a major fasting period suggests you haven't thought about your colleagues' routines. Checking the fasting calendar before choosing a venue shows care, and selecting a place with strong fasting options keeps the focus on conversation, not discomfort.
+
+Business meals don't always happen in hotels. Juice bars serving avocado, mango, and papaya blends, or modest injera houses away from tourist areas, are where many local professionals meet. These venues are informal but serious. Suggesting a local eatery instead of defaulting to an international chain signals you're willing to step into everyday Ethiopian life, and that openness often shifts the tone of the relationship.

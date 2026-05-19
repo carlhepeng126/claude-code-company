@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Loud confrontations are generally avoided in Croatian workplaces. When tension rises, colleagues are more likely to retreat into cold politeness, delay their replies, or form quiet alliances than to argue openly. This restraint reflects both a concern for personal dignity and an awareness that public criticism can feel like a personal attack. A manager from a culture where direct feedback is routine may wonder why a problem was never mentioned until someone resigns or takes their grievance to a union. A Croatian colleague, in turn, may read blunt criticism in a meeting as disrespectful, especially if it touches on competence or judgment rather than specific actions.
+
+Personal and collective histories often sit just beneath the surface of professional disagreements. In some teams, people know each other's regional backgrounds, political leanings, or family connections from the war years. A technical dispute can shift tone quickly if someone hears contempt in a remark or feels their identity is being dismissed. Keeping language focused on roles, behaviours, and outcomes rather than personal attributes helps prevent this escalation.
+
+Formal grievance channels exist and are used, but typically as a last resort. Before that, conflicts tend to simmer informally. Watch for non-verbal signals such as withdrawal, sarcastic asides, or sudden formality in email tone. These often indicate unresolved friction. Offering low-threshold ways to raise concerns, such as one-on-one check-ins or anonymous feedback rounds, allows issues to surface before they harden into formal complaints or silent exits.

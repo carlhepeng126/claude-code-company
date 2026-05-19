@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Albania, first names are used quickly, even in professional settings. This reflects a culture shaped by decades of enforced equality during the communist period, when formality was actively discouraged and honorifics linked to class or status were removed from daily life. That legacy persists. You are likely to be invited to use first names within the first meeting, and colleagues may introduce themselves by first name from the start. Continuing with formal titles after this point can create distance rather than respect.
+
+Titles are still used in specific contexts. Academic and professional designations such as "Doktor" or "Profesor" appear in formal written communication, especially in public sector or academic settings, and when addressing senior figures in ceremonies or official correspondence. In face-to-face conversation, though, the shift to first names happens faster than in many Southern or Central European cultures. A colleague from a culture where formality is maintained longer may read this as premature familiarity or lack of protocol. From the Albanian side, insisting on titles after an invitation to use first names can seem stiff or overly hierarchical.
+
+Generational differences show up here. Older professionals, particularly those who spent their careers under the communist system or in its immediate aftermath, may expect slightly more formality in initial written exchanges. Younger professionals and those in private sector or tech environments often move to first names immediately, even in emails. If you are unsure, follow the lead of your counterpart. Once first names are offered, use them consistently. Reverting to formality after that point reads as confused, not courteous.

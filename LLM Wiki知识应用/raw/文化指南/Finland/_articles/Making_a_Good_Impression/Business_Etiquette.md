@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Finnish business etiquette reflects a broader cultural preference for substance over performance. Meetings often begin with a quick "How was the weekend?" before moving straight to the agenda. Extending small talk can make you seem hesitant or evasive, as though you are avoiding the real reason you are there. The expectation is that prepared professionals get to the point, and that silence between contributions is a space for thinking, not discomfort. If a Finnish colleague goes quiet after you speak, they are likely processing what you said or considering how it fits with what they know. Filling that silence with more talk can come across as nervous or pushy.
+
+The way things are said matters as much as what is said. Finns tend to favor understatement and calm delivery. Overselling a proposal or using emotionally charged language to build excitement can backfire. Phrases like "this is a game-changer" or sweeping promises may be read as unreliable or insincere. Trust builds through grounded language and follow-through, not theatrical delivery. If you are used to building energy in a pitch through tone and enthusiasm, expect your Finnish counterparts to focus instead on the clarity of your data and whether your plan holds up under scrutiny.
+
+Hierarchy exists, but the tone of interaction stays remarkably even across levels. People address senior leaders in almost the same way they speak to peers. Open deference or flattery feels awkward, and polite directness is the norm. This also means that junior colleagues may be part of the decision loop, so treating everyone with the same level of respect is both expected and strategically sound. A colleague from a culture where seniority shapes how you frame questions or feedback may find this leveling confusing at first. From a Finnish perspective, overly formal or deferential language toward a manager can seem outdated or even insincere.

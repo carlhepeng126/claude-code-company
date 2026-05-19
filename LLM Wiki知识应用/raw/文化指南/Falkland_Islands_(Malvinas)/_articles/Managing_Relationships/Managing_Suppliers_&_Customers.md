@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+The small size of the Falkland Islands business community means that supplier and customer relationships often overlap with personal connections. Many professionals know one another outside of work, and a supplier today may be a customer tomorrow or a neighbour at the weekend. This familiarity shapes expectations around reliability and fairness. A business that overpromises or fails to deliver will find its reputation travels quickly, and trust, once lost, is difficult to rebuild in such a tightly connected environment.
+
+Relationships tend to develop gradually and are built on consistency rather than formal contracts alone. While agreements are documented, the strength of a working relationship rests more on whether commitments are met over time than on the detail of terms negotiated at the outset. A partner from a culture that prioritizes speed and transactional efficiency may interpret this slower pace as a lack of urgency, while Islanders may view aggressive timelines or cost-driven negotiation as a sign that the relationship is being treated as expendable.
+
+Directness is valued, but it is usually paired with a pragmatic understanding of the Islands' logistical constraints. Delays due to shipping schedules, weather, or limited local capacity are anticipated, and flexibility is expected in return. A supplier who cannot meet a deadline but communicates openly and offers alternatives will generally be met with understanding. One who fails to acknowledge the difficulty or makes excuses without solutions will lose credibility quickly, and that loss will be felt across multiple professional circles.

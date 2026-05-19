@@ -1,0 +1,11 @@
+# Negotiating
+
+## Working Together
+
+Tunisian negotiation draws on centuries of Mediterranean, Arab, and African trade. The goal is rarely to extract maximum value from a single deal. The goal is to arrive at terms both parties can defend with dignity while protecting the possibility of working together again. This means your counterpart may open with a position far from yours, then move gradually through rounds of give and take. Those concessions are often prepared in advance but revealed slowly, each one an invitation for you to reciprocate. If you come in with your best and final offer at the start, you deny your counterpart the chance to negotiate, and the relationship can stall before it begins.
+
+Tone and relational warmth matter as much as the terms themselves. Negotiations smooth out when both sides feel respected and when the emotional temperature stays calm. This is why meetings often begin with courteous conversation that has nothing to do with the contract. That opening exchange is where trust gets tested. Coastal business hubs such as Tunis may follow more structured formats, but even there, skipping rapport in favor of immediate deal-making can read as dismissive or transactional to the other side.
+
+Hesitation or indirect phrasing often means disagreement. A colleague who says "maybe" or lets a silence settle may be signaling that your proposal has missed the mark. Watch for shifts in tone rather than waiting for a clear refusal. Someone from a culture where objections are voiced directly may interpret this as agreement and move forward, only to find the terms reopened later. From the Tunisian side, a foreign counterpart who pushes for closure without acknowledging reservation can seem either unaware or unwilling to listen.
+
+Flexibility strengthens your position here. Deals may require multiple rounds, and revisiting a point thought settled is common practice. Holding something in reserve gives you room to adjust when circumstances or relationships shift, which they often do.

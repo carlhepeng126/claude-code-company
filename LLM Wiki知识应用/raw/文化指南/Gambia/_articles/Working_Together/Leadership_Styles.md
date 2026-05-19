@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Gambia is most often expressed through elders, chiefs, or those who hold formal authority. The respect given to age and position runs deep, shaped by traditions where authority figures mediate disputes, speak for the community, and hold collective memory. In professional settings, this translates to leaders who make final decisions and expect deference, but who are also expected to look after the people in their care. A leader who acts without concern for group welfare or who fails to show respect for elders may lose standing, even if technically senior.
+
+At the same time, many Gambian leaders consult before deciding, particularly in organizations influenced by international practices or younger workforces. This consultation is genuine in some cases and more symbolic in others, serving to maintain relationships and show that people have been heard. A manager from a culture where input directly shapes outcomes may find this frustrating if their suggestions are acknowledged but don't visibly alter the plan. Meanwhile, a Gambian colleague working with a leader who decides quickly without gathering views may read that as disrespectful or careless, even if the decision itself is sound.
+
+The smallest workplaces and family-run businesses may operate more paternally, with little formal process. Larger or urban organizations, especially those with educated younger staff, may expect clearer rationale and more inclusion. But even there, questioning a decision publicly remains uncommon. If you need to raise a concern, doing so privately and with care for the leader's dignity will be far more effective than direct challenge in a group setting.

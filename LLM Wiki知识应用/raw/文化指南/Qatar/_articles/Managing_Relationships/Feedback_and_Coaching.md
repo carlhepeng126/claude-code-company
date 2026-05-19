@@ -1,0 +1,11 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Qatar, feedback is understood as both a performance tool and a relationship act. Dignity sits at the center of professional life, and criticism that touches a person's standing in front of others can do lasting damage. Feedback that would be received as constructive in cultures where directness is valued can be heard here as a judgement of worth, not just work. This intensifies in settings where hierarchy is strong. When a senior figure offers correction, it reaches beyond the task and into questions of respect and place. The person receiving it may hear the words through the filter of what it means for their reputation, especially if others are present.
+
+This means feedback works best when it is given privately, framed calmly, and anchored to clear standards rather than personal shortcomings. A manager might open with context, acknowledge effort, then describe what needs to shift and how it can be done. Keeping the tone measured and the focus on the issue itself helps separate the person from the problem. Public praise is welcome, but public critique is avoided. Even small corrections made in front of colleagues can create embarrassment that outlasts the moment.
+
+Qatar's workforce includes people from many backgrounds, and not all experience the same security or power. Migrant workers in particular may be more cautious in how they respond to feedback, shaped by concerns about contracts, sponsorship, or perceived authority. In mixed-power settings, inviting a response or checking understanding gently can help, but it should be done in a way that does not put someone on the spot. A follow-up conversation in a quieter moment often works better than pressing for immediate acknowledgment.
+
+Coaching is most effective when it builds trust over time and treats respect as something enacted, not just stated. Tone, sequence, and gesture all contribute to how feedback lands. What is said matters, but how it is said shapes whether it is heard as support or judgement.

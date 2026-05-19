@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+The leader many Egyptians admire is firm but kind, someone who can "hit the table" when a decision needs to be made but also helps when an employee's parent falls ill or a son needs a job. This ideal draws on an older template shaped by Nasser and the military era: the leader as strong, protective father who defends the dignity of the institution and the people within it. That image still echoes in ministries, companies, and universities today. A purely transactional manager may be obeyed, but they are rarely respected or trusted.
+
+Leaders are expected to hold authority visibly and use it. Decisions, even small ones, are usually made at the top, and employees do not expect those decisions to be delegated downward. But a leader's personal style shapes the whole organization. If the person at the top changes, the direction of the company may shift with them. Authority is not just structural; it is personal, built through relationships and demonstrated through the willingness to protect the people below. Religious and moral language often frames this role. Phrases like "trust is an amanah" (a sacred responsibility) or references to "tawfiq from God" (divine success) are used to motivate effort and frame decisions, sometimes sincerely and sometimes instrumentally.
+
+When working with senior Egyptian leaders, show how your proposal strengthens their protective role: safeguarding jobs, reputations, or the institution's standing, not just improving efficiency. If you need to challenge a decision, do it privately, with deference, and with clear alternatives. If you lead Egyptian staff, understand that crises are when your human quality is judged, not just your management skill.

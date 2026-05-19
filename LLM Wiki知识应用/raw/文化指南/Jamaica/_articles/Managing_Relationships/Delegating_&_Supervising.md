@@ -1,0 +1,11 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Jamaica's relationship with authority is shaped by centuries of resistance to colonial hierarchy, yet that same system left a lasting imprint on how professional structures are understood. The result is a dual current: formal hierarchy is respected and employees typically defer upward for decisions, but there is also a deep cultural vein of independence and self-reliance. This shows up as teams that follow the chain of command while quietly retaining their own judgement. A manager who leads with positional authority alone, without building genuine personal rapport, will find compliance but rarely creativity.
+
+The cultural default is to wait for direction. This deference reflects respect for hierarchy, but it also reflects a historical experience in which taking initiative without permission could be risky. Unless you have explicitly delegated authority and made clear that independent action is expected, do not assume it will emerge on its own. Managers from cultures where initiative is taken as given may read this as passivity; Jamaican employees may read managers who push for autonomy without building trust first as demanding loyalty they have not yet earned.
+
+Warmth and relationship are the foundation of effective supervision. A Jamaican team that trusts and respects their manager will work creatively and loyally; the same people managed impersonally are likely to comply rather than commit. Face is also live in most exchanges. Employees may avoid asking for clarification if they believe the question signals weakness, or may tell a manager what they assume the manager wants to hear rather than surface a problem directly. This means checking understanding and creating genuine safety for candour, not just stating an open-door policy.
+
+Jamaican culture is capable of sharp independence and strong views, but those views will only surface if the environment genuinely invites them. Creating that safety, and demonstrating that candour is valued through your own response, unlocks the creativity and commitment the culture can offer.

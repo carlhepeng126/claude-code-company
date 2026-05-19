@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in Gabon tends to concentrate at senior levels, and approval from those who hold formal authority is often required before action can proceed. Managers and directors are expected to lead, but they also consult informally with trusted colleagues and advisors before finalizing a course of action. This consultation happens quietly and selectively. It serves to reduce risk, test the social acceptability of a decision, and ensure alignment with key stakeholders who may not appear on an organizational chart but whose opinion affects implementation.
+
+This process takes time, and timelines can shift as input is gathered or as personal, family, or regional considerations come into play. Decisions are not made in isolation from social context. A manager may adjust a plan if it creates tension within a team, conflicts with family obligations, or overlooks relationships that matter locally. What can look like hesitation or delay to a colleague from a culture where decisions are made quickly and individually is often careful preparation. The aim is not to avoid deciding, but to decide in a way that will hold.
+
+For international collaborators, this means building in time for consultation and recognizing that the decision-maker may not act alone, even when they have the authority to do so. Pressing for a quick answer or bypassing the senior figure in favor of speed will usually backfire. Instead, share information early, allow space for informal soundings, and confirm understanding at each stage. Once a decision is made and socially anchored, implementation tends to follow.

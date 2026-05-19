@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in the French Southern Territories does not exist in any conventional sense. The islands are home only to rotating scientific and logistical staff on temporary postings, with no permanent population, commercial sector, or hospitality infrastructure. There are no restaurants, no formal hosting opportunities, and no tradition of business meals. Professional interaction is confined to research stations and support facilities, where staff eat together in shared canteens as part of daily operations rather than as a form of relationship-building.
+
+Meals in the field are functional rather than social events designed to strengthen partnerships. They follow the rhythm of station life, governed by shift patterns, weather, and the logistics of food supply in an extreme environment. Conversation may be warm and collegial, but it takes place within the practical constraints of isolated postings where everyone is working toward shared scientific or operational goals. The absence of external hosting options means that the informal trust-building that might happen over dinner in other contexts unfolds instead through shared work, long deployments, and the closeness that comes from living and working in close quarters under challenging conditions.
+
+If you are collaborating with French research teams or visiting as part of an international program, expect hospitality to take the form of inclusion in station routines rather than separate social occasions. Relationships develop through presence and contribution, not entertaining.

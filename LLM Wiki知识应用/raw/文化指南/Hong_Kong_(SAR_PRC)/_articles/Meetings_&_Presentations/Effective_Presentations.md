@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Hong Kong run on clean data, sharp logic, and local grounding. Audiences expect clear charts, benchmarks, and numerics, anchored in Hong Kong specifics: regulatory context like HKMA or SFC rules, local consumer behavior, and Hong Kong case studies. Generic Asia-Pacific overviews do not land well. A deck that treats Hong Kong as a proxy for the region suggests you have not done the homework. Reference local competitors, realistic scenarios, and explicit risk sections up front. Credibility comes from showing you understand the regulatory environment and the market conditions your counterparts navigate daily.
+
+Many presentations use English slides, but the conversation often shifts into Cantonese for nuance, humor, or side commentary. Presenters may elaborate in Cantonese to read the room or clarify a point that feels too delicate for English. If you are not working in Cantonese yourself, make sure a colleague who speaks it fluently can explain and defend the content. Questions and doubts may surface in Cantonese asides during or after your session, and those asides often reveal where your logic has not convinced.
+
+Visual polish alone does not persuade. People in Hong Kong see slick decks routinely. What stands out is tight reasoning, realistic assumptions, and transparent treatment of risk. If you bury the hard parts or leave assumptions vague, polite faces may mask skepticism. Front-load what this proposal means for the audience, where it might go wrong, and what you are asking them to accept. A presentation that looks confident but avoids complexity will not hold up under the detailed, repetitive questioning that follows once the pitch moves into negotiation.

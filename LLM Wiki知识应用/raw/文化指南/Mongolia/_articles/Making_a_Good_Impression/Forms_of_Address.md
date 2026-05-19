@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Mongolian address conventions reflect a moral system where seniority, restraint, and embodied respect matter more than verbal formality alone. Age hierarchy is not simply polite protocol but an expression of accumulated life knowledge and social responsibility. This becomes visible in greetings such as *zolgokh*, a physical choreography performed during Tsagaan Sar (Lunar New Year), where the younger person supports the elder's arms from below, showing deference through posture and placement. The order of greeting and the direction of physical support encode care and hierarchy together, making respect something that is done, not just said.
+
+Ceremonial objects also function as address forms. The *khadag*, a silk scarf historically associated with monastic and aristocratic practice, marks serious relational moments such as welcoming an honored guest or formalizing an agreement. Presenting or receiving one signals blessing and purity, and treating it casually can create unexpected distance. In professional settings, this means recognizing when a gesture moves beyond the symbolic into the structurally meaningful.
+
+Naming follows a different logic than in many cultures. What appears in the surname position is the father's first name, not a family name. Calling someone by this patronymic rather than their given name can sound odd or impersonal. Using a professional title such as "doctor" when applicable shows attentiveness, and once familiarity develops, adding the respectful suffix *guai* to a name (for example, Bataar-guai) acknowledges the relationship warmly.
+
+In Ulaanbaatar's internationally connected sectors, these conventions often blend with less hierarchical professional styles. In more traditional or family-oriented contexts, elder-respect norms become more pronounced. When in mixed settings, aligning with the more dignity-protective norm avoids missteps. Demonstrating competence quietly tends to be valued more than overt self-positioning, and restraint in status display often reads as confidence rather than hesitation.

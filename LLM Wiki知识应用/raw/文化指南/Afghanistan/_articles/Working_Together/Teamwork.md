@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teams in Afghanistan typically function through networks of trust rooted in kinship, tribal affiliation, and personal relationships built over time. Hierarchy is deeply embedded in how groups work together, with decision-making concentrated at senior levels. Collaboration happens through established social structures rather than formal roles or project frameworks. A colleague from a culture where teams self-organize and distribute responsibility may find it difficult to initiate action without direction from above. From an Afghan perspective, that same tendency to act independently may appear to disregard authority and undermine group cohesion.
+
+Group identity is valued over individual recognition. Public acknowledgment of a single team member can create tension or embarrassment, particularly if it implies that others contributed less. Praise directed at the collective reinforces unity and avoids singling anyone out. Conversely, public criticism threatens honor and can damage both the individual and their extended network. Feedback given privately, in a way that preserves dignity, is more likely to be heard and acted upon.
+
+Teams often move at a pace shaped by the need to consult, align across relationships, and avoid visible rupture. For a colleague accustomed to rapid decision cycles, this may feel slow or indirect. For Afghan team members, the same fast pace may signal disrespect for process and the relational foundations that make execution sustainable. Understanding that trust and alignment are being built, rather than deferred, helps both sides interpret the rhythm more accurately.

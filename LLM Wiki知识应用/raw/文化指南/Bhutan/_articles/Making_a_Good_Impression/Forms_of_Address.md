@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Bhutanese professional culture places considerable value on relational harmony and respect for hierarchy, and forms of address reflect both. In most workplace settings, people use formal titles combined with the family name rather than first names, particularly when speaking to senior colleagues, government officials, or clients. The honorific "Dasho" is reserved for those who have received one of the highest honors from the King, and its use is both a recognition of rank and a public acknowledgment of service to the nation. Addressing someone with this title when it applies shows awareness of Bhutanese social structures and the weight placed on earned distinction.
+
+First names may be used once a relationship has developed, but the shift usually comes at the invitation of the senior or older person in the exchange. Moving to informal address too quickly, especially in formal or cross-generational contexts, can read as presumptuous. A colleague from a culture where first names are standard from the outset may interpret the slower transition as distant or overly hierarchical. From a Bhutanese perspective, the same colleague's immediate informality might suggest a lack of regard for seniority or an unawareness of relational depth.
+
+Written communication follows the same principles. Emails to senior colleagues or external partners should open with the appropriate title and family name. Even in routine exchanges, a degree of formality is maintained longer than it might be in more direct professional cultures. Adjusting the level of formality only after the tone has been set by the other party helps avoid missteps.

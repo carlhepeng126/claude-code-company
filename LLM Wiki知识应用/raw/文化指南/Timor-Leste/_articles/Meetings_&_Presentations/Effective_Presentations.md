@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Timor-Leste work best when they prioritize relationship and respect over persuasion. Your audience will be listening for tone and intention as much as content. Timorese professionals value humility and collaborative framing, so avoid coming across as too assertive or self-promotional. A hard-sell approach can feel culturally jarring and may raise doubts about your willingness to work as a genuine partner. Frame your ideas as proposals open to input, and acknowledge the expertise in the room. This doesn't weaken your message, it builds trust that allows the conversation to continue.
+
+Keep your language accessible and your pacing measured. Many Timorese professionals work in Portuguese or Tetum, and English may be a second or third language. If you're using an interpreter, build in time for accurate translation and don't rush through complex points. Silence after a question or explanation often reflects thought, not confusion. Let it sit. A colleague from a culture where quick verbal responses signal engagement might read this as disinterest, but in Timor-Leste, a pause can mean your point is being carefully considered. Filling every gap with more explanation risks overwhelming rather than clarifying.
+
+Don't expect immediate questions or visible reactions during the presentation itself. Timorese colleagues may prefer to ask clarifying or sensitive questions privately afterward, particularly if raising them publicly might suggest disagreement or challenge seniority. Treat these one-on-one conversations as essential follow-up, not optional extras. They're often where real concerns surface and where decisions begin to take shape.

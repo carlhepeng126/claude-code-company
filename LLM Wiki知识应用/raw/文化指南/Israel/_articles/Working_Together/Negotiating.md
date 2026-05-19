@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Israelis negotiate hard and expect you to do the same. Opening positions are tested, challenged, and pushed back on as a matter of course. This reflects a pragmatic instinct rooted in the shuk (market) tradition, where lively back-and-forth is the path to finding the real number. Excessive deference or an overly smooth acceptance of terms can be read as weakness, or as a sign that you haven't thought things through. If you open with your best offer, your counterpart will assume there's still room in it. Build in space for movement and be ready to make your case directly.
+
+The goal is a deal that works for both sides, and Israelis respect a well-argued counterproposal. If you can show that a different approach genuinely serves the shared objective, that argument will land. Logic and pragmatism matter more than status or seniority at the table. A colleague from a culture where negotiation is gentler and agreement comes through quiet consensus may find the directness abrasive or confrontational. From the Israeli perspective, the same consensus-driven style can seem evasive or non-committal, leaving them uncertain whether the other party is serious about closing.
+
+Emotion is part of the process. Frustration, passion, and raised voices can surface without signaling breakdown or hostility. This intensity reflects engagement, and matching that energy is often more effective than staying calm and measured throughout. Hard opening positions are the start of a conversation, not a statement of hostility, and the willingness to push back is taken as a sign of confidence and commitment to the deal.

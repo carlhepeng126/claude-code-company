@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Disagreements in Azerbaijan rarely surface as open argument. A polite response or even silent agreement in a meeting does not mean the matter is settled. Resentment can run deep when someone feels publicly challenged or embarrassed, and that feeling will reappear later in quieter forms: delayed implementation, reduced enthusiasm, negative comments shared through personal networks. The memory of a visible conflict lingers long after the issue itself has moved on, so most people will endure tension rather than trigger a public breach, especially in sectors or regions where social circles overlap and reputations travel quickly.
+
+This caution is rooted in the value of honor and the social cost of losing face. To directly criticize someone in front of others, even gently, risks damaging not only their standing but the relationship itself, sometimes beyond repair. When you need to raise a difficult issue, do so privately and frame the problem as something circumstantial rather than personal. A colleague accustomed to cultures where direct feedback is seen as efficient and helpful may find the indirect approach unclear, while an Azerbaijani colleague may read that same directness as disrespectful or unnecessarily confrontational.
+
+When conflict does become serious, mediation through a respected figure offers a path forward. A senior colleague, a mutual contact, or an elder within the organization can carry hard messages and help both sides adjust without anyone losing face in the process. Proposing this early, rather than insisting on resolving the matter directly yourself, is more likely to restore working trust.

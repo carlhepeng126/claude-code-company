@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Tajikistan are opportunities to build trust and demonstrate commitment, not just to share information. Your audience will be assessing your character and intent as much as your content. Respect for hierarchy shapes how information is received. Address the senior person first and make clear throughout that you recognize their role. This isn't formality for its own sake. In a society where personal networks and reputation define professional relationships, showing deference helps establish your credibility and signals that you understand how decisions are made.
+
+Avoid rushing through slides or pushing for quick agreement. Colleagues from cultures where directness and speed are valued may interpret a measured pace as indecision, while Tajik professionals may read fast-moving presentations as pressure or a lack of respect for the group's need to reflect. Allow time for people to absorb what you're saying. If you're working through an interpreter, build in even more space. Silence often means consideration, not confusion. Let pauses settle rather than filling them with more detail.
+
+Storytelling resonates more than abstract data alone. Frame your points around real examples or scenarios that connect to your audience's context. Dense slides and technical language can create distance. Keep visuals simple and be prepared to explain terms in plain language. If your presentation involves technical content, brief your interpreter beforehand so key terms are translated accurately.
+
+Stay flexible if people step out, take calls, or join partway through. These interruptions reflect the way many organizations function, not disengagement. Welcome latecomers without drawing attention to their arrival. Some of the most influential people may say little during the session but will form opinions that shape what happens next. Follow up individually after the presentation. Colleagues may prefer to ask clarifying or sensitive questions privately, particularly if they want to avoid appearing uncertain in front of senior figures or peers.

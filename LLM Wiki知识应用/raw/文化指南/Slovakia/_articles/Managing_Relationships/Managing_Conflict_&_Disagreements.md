@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Disagreement in Slovak workplaces is often managed through process and privacy rather than public confrontation. This approach reflects a cultural memory of 1989 and 1993, when change came through dialogue and negotiation rather than rupture. The instinct today is to de-escalate, keep relationships workable, and resolve issues through clear steps rather than spectacle. If you are managing a dispute between colleagues, name the issue clearly, agree on how to address it, and handle conversations one-to-one or behind closed doors. Singling someone out in a group setting or escalating tension in public will cause lasting damage to trust and cooperation.
+
+Fairness is emotionally charged in Slovak professional culture. The symbolic weight of the Slovak National Uprising means that perceived hypocrisy or inconsistent treatment can turn a practical disagreement into something deeper. People may not challenge you directly if they feel wronged, but resentment will build if standards are applied unevenly or decisions lack transparent reasoning. A colleague from a culture where disagreement is voiced early and directly may expect pushback or questions during a meeting. In Slovakia, silence does not mean agreement. Monitor team progress, invite feedback privately, and demonstrate that rules apply equally. Consistent explanation reduces the chance that conflict becomes moralised.
+
+Regional and language differences can create friction that looks like interpersonal tension but is actually misalignment. Humor, pace, or comfort with Slovak versus Hungarian in mixed teams can lead to misunderstandings that are misread as intent. Before attributing conflict to attitude, clarify meanings and check assumptions. In teams with members who have experienced institutional bias or exclusion, dignity becomes central. Keep feedback focused on behavior and shared goals, not identity or background.

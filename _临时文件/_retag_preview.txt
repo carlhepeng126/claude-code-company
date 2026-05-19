@@ -1,0 +1,1272 @@
+[DRY RUN] scanning files...
+
+  index.md
+    (none)  ->  type/索引, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析']
+  log.md
+    (none)  ->  type/方法, 语言培训, 合规风控, 出海战略, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  tag-index.md
+    (none)  ->  type/索引, 领导力, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=tree  context=['内部运营']
+  comparisons/企业出海用工环境区域对比.md
+    (none)  ->  type/对比, 合规风控, 属地化, 出海战略, 人才管理
+    maturity=sapling  context=['市场分析', '提案']
+  comparisons/企业培训体系方法论对比.md
+    (none)  ->  type/对比, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  comparisons/出海跨文化培训需求区域对比.md
+    (none)  ->  type/对比, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  comparisons/央企出海外语培训模式对比.md
+    (none)  ->  type/对比, 语言培训, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  concepts/Act-Note-System.md
+    (none)  ->  type/模型, 语言培训, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/act.md
+    (none)  ->  type/模型, 语言培训, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/ai-in-learning-development-framework.md
+    (none)  ->  type/模型, 领导力, 合规风控, 属地化, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/ai.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, AI赋能, 知识管理, 民企
+    maturity=tree  context=['内部运营', '方案设计', '课程交付']
+  concepts/central-asia-enterprise-overseas-ladder-model.md
+    (none)  ->  type/模型, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 区域/中亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/central-soe-international-talent-policy-framework.md
+    人才, 央企  ->  type/模型, 跨文化, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/communication-full-stack.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 谈判沟通, 人才管理, AI赋能, 知识管理
+    maturity=tree  context=['内部运营', '方案设计', '课程交付']
+  concepts/corporate-training-industry-trends-methodology.md
+    (none)  ->  type/模型, 领导力, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/counterintuitive-decision-making-methodology.md
+    (none)  ->  type/模型, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/cross-cultural-communication-four-stage-model.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/cross-cultural-communication-full-stack.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/cross-cultural-communication-os-model.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/cross-cultural-communication-three-stage-model.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/cross-cultural-negotiation-trust.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/cross-region-investment-entry-guide.md
+    (none)  ->  type/模型, 属地化, 出海战略, 行业洞察, 央企
+    maturity=sapling  context=['市场分析', '方案设计', '课程交付']
+  concepts/cross-region-training-demand-matrix.md
+    (none)  ->  type/模型, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/cultural-bridge-person.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/deep-extraction-methodology.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/effective-presenter-formula.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 谈判沟通, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/engineering-words-clear-workplace-communication.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 谈判沟通, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/enterprise-negotiation-capability-framework.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/epc.md
+    出海, 央企, 谈判  ->  type/模型, 语言培训, 合规风控, 谈判沟通, 出海战略, 知识管理, 央企
+    maturity=tree  context=['内部运营', '方案设计', '课程交付']
+  concepts/four-step-people-reading.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/franchisee-selection-funnel.md
+    (none)  ->  type/模型, 语言培训, 出海战略, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/global-headquarters-synergy-model.md
+    (none)  ->  type/模型, 跨文化, 领导力, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/global-operation-strategy-framework.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/how-to-talk-to-anyone-about-any-topic.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 属地化, 谈判沟通, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/hw-pm-way.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/iai-hidden-barriers-framework.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/industry-talent-training-case-collection.md
+    人才, 出海, 跨文化  ->  type/模型, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/intel-verification-system.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/Intelligence-collection-pipeline.md
+    信号  ->  type/模型, 属地化, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/international-engineering-capability-model.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/international-engineering-talent-framework.md
+    人才  ->  type/模型, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/international-talent-trends-training-framework.md
+    (none)  ->  type/模型, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/knowledge-base-ai-rollout.md
+    AI, 工具  ->  type/模型, 语言培训, 领导力, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/knowledge-management-tool-division-philosophy.md
+    (none)  ->  type/模型, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=seed  context=['内部运营', '方案设计', '课程交付']
+  concepts/knowledge-shrimp.md
+    (none)  ->  type/模型, 谈判沟通, 出海战略, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/latin-america-cross-cultural-distortion-model.md
+    (none)  ->  type/模型, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 区域/拉美, 央企
+    maturity=seed  context=['内部运营', '方案设计', '课程交付']
+  concepts/learning-books-collection.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/localization-complete-vs-hybrid.md
+    (none)  ->  type/模型, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, 行业洞察
+    maturity=sapling  context=['市场分析', '方案设计', '课程交付']
+  concepts/localization-responsibility-matrix.md
+    (none)  ->  type/模型, 属地化, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/mcdonalds-hamburger-university-training-system.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理
+    maturity=tree  context=['内部运营', '方案设计', '课程交付']
+  concepts/morgan-training-methodology-framework.md
+    (none)  ->  type/模型, 语言培训, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/multinational-organization-language-os-model.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/od-seven-abilities.md
+    (none)  ->  type/模型, 跨文化, 领导力, 属地化, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/opencli-signal-pipeline.md
+    (none)  ->  type/模型, 语言培训, 属地化, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/overseas-enterprise-trust-structure.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 区域/东南亚
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/overseas-hr-management-panorama.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/overseas-hr-service-guide-2026.md
+    人才, 出海, 合规  ->  type/模型, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/overseas-pitfall-avoidance-eight-traps.md
+    (none)  ->  type/模型, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/overseas-practice-cross-cultural-training-philosophy.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/project-background-analysis-sop.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/project-meeting-facilitator.md
+    (none)  ->  type/模型, 跨文化, 谈判沟通, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/project-proposal-format-guide.md
+    (none)  ->  type/模型, 语言培训, 出海战略, 行业洞察
+    maturity=sapling  context=['市场分析', '方案设计', '课程交付']
+  concepts/sdbe-leading-model.md
+    (none)  ->  type/模型, 领导力, 出海战略, 人才管理, 知识管理, 行业洞察, 央企, 民企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/signal-daily-clam.md
+    (none)  ->  type/模型, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/signal-trends-summary-2026-05.md
+    (none)  ->  type/模型, 跨文化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/singapore-enterprise-entry-compliance-guide.md
+    (none)  ->  type/模型, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 区域/东南亚
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/situational-crisis-communication-theory.md
+    (none)  ->  type/模型, 跨文化, 合规风控, 谈判沟通, 出海战略, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/small-talk-mastery.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 合规风控, 谈判沟通, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/social-style-matrix.md
+    (none)  ->  type/模型, 合规风控, 谈判沟通, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/soe-overseas-talent-competency-model.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/soe-report-insights.md
+    (none)  ->  type/模型, 合规风控, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/soe-training-program-system.md
+    (none)  ->  type/模型, 语言培训, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=tree  context=['内部运营', '方案设计', '课程交付']
+  concepts/structured-expression-confidence-training.md
+    (none)  ->  type/模型, 语言培训, 谈判沟通, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/structured-strategic-thinking.md
+    (none)  ->  type/模型, 跨文化, 领导力, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/three-tier-training-model.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/training-evaluation-framework.md
+    (none)  ->  type/模型, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企, 民企
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/training-program-design-framework.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/training-program-design-methodology.md
+    (none)  ->  type/模型, 领导力, 属地化, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/translation-as-communication-amplifier.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/ttt-trainer-development.md
+    (none)  ->  type/模型, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/ttt-trainer-training-system.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 谈判沟通, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/workplace-communication-multicultural-wellbeing.md
+    (none)  ->  type/模型, 语言培训, 跨文化, 领导力, 属地化, 谈判沟通, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/workplace-communication-skills.md
+    培训, 跨文化  ->  type/模型, 语言培训, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  concepts/信息情报收集链路思路.md
+    (none)  ->  type/模型, 属地化, 谈判沟通, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  concepts/客户痛点归纳与课程大纲合并方案.md
+    (none)  ->  type/模型, 语言培训, 谈判沟通, 出海战略, 央企
+    maturity=tree  context=['方案设计', '课程交付']
+  entities/2025-2026-1.md
+    (none)  ->  type/方法, 跨文化, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/2025-2026-2.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/2025-31.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/2025.md
+    (none)  ->  type/方法, 跨文化, 合规风控, 属地化, 出海战略, 人才管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/2026-05-07.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/2026.md
+    (none)  ->  type/方法, 跨文化, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/2026ai.md
+    (none)  ->  type/方法, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/21.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/ai-training-summary.md
+    (none)  ->  type/报告, 语言培训, 跨文化, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  entities/ai.md
+    (none)  ->  type/方法, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, AI赋能, 知识管理
+    maturity=seed  context=['内部运营', '方案设计']
+  entities/articles-misc-collection.md
+    (none)  ->  type/索引, 语言培训, 领导力, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析']
+  entities/cases.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/confidence-triangle.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 出海战略, AI赋能, 知识管理
+    maturity=seed  context=['内部运营', '方案设计']
+  entities/cross-cultural-rise-framework.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企, 民企
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/customer-insight-library.md
+    (none)  ->  type/索引, 语言培训, 领导力, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析']
+  entities/epc.md
+    (none)  ->  type/方法, 合规风控, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/equal-ocean-talent-insight.md
+    人才  ->  type/报告, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  entities/esg.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/focallure.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/heric-ai-hr-training.md
+    (none)  ->  type/方法, 语言培训, 领导力, 人才管理, AI赋能, 知识管理, 央企, 民企
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/heric-corporate-training-system.md
+    (none)  ->  type/方法, 跨文化, 领导力, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/heric-global-organization-management.md
+    (none)  ->  type/方法, 跨文化, 领导力, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/heric-international-talent-development.md
+    (none)  ->  type/方法, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/HR-1+N模式.md
+    (none)  ->  type/方法, 语言培训, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 民企
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/industry-function-insights.md
+    (none)  ->  type/报告, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  entities/international-observation-academic-reference.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/international-talent-market-report.md
+    人才  ->  type/报告, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '提案']
+  entities/manufacturing-overseas-talent-path.md
+    人才  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/mckinsey-structured-thinking.md
+    (none)  ->  type/方法, 领导力, 谈判沟通, 人才管理, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/mercer-hrbp-framework.md
+    (none)  ->  type/方法, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/od-td-ld-1.md
+    (none)  ->  type/方法, 语言培训, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/od-td-ld-2.md
+    (none)  ->  type/方法, 语言培训, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/one-minute-people-reading.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/openai.md
+    (none)  ->  type/方法, 语言培训, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/organization-development-od.md
+    (none)  ->  type/方法, 领导力, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/overseas-industry-function-research-library.md
+    出海, 区域/东南亚  ->  type/索引, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 区域/南亚, 央企
+    maturity=tree  context=['内部运营', '市场分析']
+  entities/overseas-investment-case-extraction.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/overseas-investment-cases.md
+    (none)  ->  type/案例, 跨文化, 合规风控, 属地化, 出海战略, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/overseas-research-reports-library.md
+    出海  ->  type/报告, 合规风控, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '提案']
+  entities/overseas-talent-selection-development-system.md
+    人才, 出海, 区域/东南亚  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 区域/东南亚, 区域/南亚
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/prep-model.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 人才管理, AI赋能, 知识管理, 央企
+    maturity=seed  context=['内部运营', '方案设计']
+  entities/research-reports-training-app.md
+    (none)  ->  type/报告, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  entities/tisax.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/united-imaging.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/white-rhino-autonomous-driving.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/书籍萃取/8-books-communication-extraction.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/书籍萃取/8-books-communication-training.md
+    (none)  ->  type/方法, 语言培训, 谈判沟通, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/书籍萃取/cross-material-synthesis.md
+    (none)  ->  type/方法, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/书籍萃取/deep-learning-cross-synthesis.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/书籍萃取/two-books-synthesis-huawei-and-crisis.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/书籍萃取/two-books-synthesis-training.md
+    (none)  ->  type/方法, 跨文化, 合规风控, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/人物/dachuangyejia-mcdonald-philosophy.md
+    (none)  ->  type/案例, 领导力, 人才管理, 知识管理
+    maturity=tree  context=['内部运营', '提案', '方案设计']
+  entities/人物/ray-kroc.md
+    (none)  ->  type/案例, 语言培训, 合规风控, 属地化, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/其他/doc-001da296.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-02acb687.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 知识管理, 行业洞察, 区域/欧洲, 央企, 民企
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-19ada4a3.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/其他/doc-1a5f862d.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/其他/doc-1edf0dc1.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 区域/欧洲, 央企, 民企
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/其他/doc-24e3d033.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-273dd2c7.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=seed  context=['内部运营', '方案设计']
+  entities/其他/doc-2bcde04e.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-30efa289.md
+    (none)  ->  type/方法, 语言培训, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/其他/doc-333510f7.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-367f3cc3.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/其他/doc-495a6059.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-5370d902.md
+    (none)  ->  type/方法, 跨文化, 合规风控, 属地化, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-72107ee1.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-83c8b247.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 知识管理, 行业洞察, 区域/欧洲, 央企
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-90ed1176.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-94a1b66b.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/其他/doc-98c204f9.md
+    (none)  ->  type/方法, 语言培训, 谈判沟通, 出海战略, 人才管理, 知识管理, 央企
+    maturity=tree  context=['内部运营', '方案设计']
+  entities/其他/doc-a5cd617f.md
+    (none)  ->  type/方法, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-b27cda7e.md
+    (none)  ->  type/方法, 跨文化, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-be974a29.md
+    (none)  ->  type/方法, 跨文化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-bfc1e063.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-c6ab73fb.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, AI赋能, 知识管理, 民企
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/其他/doc-ca200637.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-ca42290c.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-cfa52138.md
+    (none)  ->  type/方法, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=tree  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-d88fc6c6.md
+    (none)  ->  type/方法, 语言培训, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-ed24c1e3.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/欧洲, 央企
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-f00159c5.md
+    (none)  ->  type/方法, 领导力, 合规风控, 属地化, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-f7898ed5.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/其他/doc-f862e94d.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  entities/区域/region-labor-africa.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/非洲
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-labor-europe.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/欧洲
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-labor-mideast.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/中东
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-labor-namerica.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/北美, 央企
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-labor-samerica.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/南美, 央企
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-labor-sea.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 行业洞察, 区域/东南亚
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-market-brazil.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/南美
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-market-europe-overview.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/欧洲, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-market-indonesia.md
+    (none)  ->  type/数据, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['市场分析', '方案设计']
+  entities/区域/region-market-mexico.md
+    (none)  ->  type/数据, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=tree  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-market-saudi.md
+    区域/中东  ->  type/数据, 出海战略, AI赋能, 行业洞察, 区域/中东, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-market-singapore.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-market-thailand-market.md
+    (none)  ->  type/数据, 属地化, 出海战略, AI赋能, 知识管理, 行业洞察, 区域/东南亚
+    maturity=tree  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-market-uae.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/中东
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/region-market-vietnam.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/southeast-asia-region-market.md
+    (none)  ->  type/数据, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/southeast-asia-research-index.md
+    (none)  ->  type/数据, 语言培训, 跨文化, 合规风控, 出海战略, AI赋能, 行业洞察, 区域/东南亚
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  entities/区域/tax-guide-sea-indonesia.md
+    区域/东南亚  ->  type/数据, 合规风控, 人才管理, 行业洞察, 区域/东南亚, 区域/南亚, 民企
+    maturity=tree  context=['市场分析', '方案设计']
+  entities/区域/tax-guide-sea-thailand.md
+    区域/东南亚  ->  type/数据, 合规风控, 出海战略, 行业洞察, 区域/东南亚, 区域/南亚, 民企
+    maturity=tree  context=['市场分析', '方案设计']
+  entities/区域/tax-guide-sea-vietnam.md
+    区域/东南亚  ->  type/数据, 跨文化, 人才管理, AI赋能, 行业洞察, 区域/东南亚, 区域/南亚, 民企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计']
+  entities/工具/plaud-ai-recorder.md
+    (none)  ->  type/工具, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  entities/工具/tools-collection.md
+    (none)  ->  type/工具, 语言培训, 领导力, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  entities/工具/tools-overseas-guide-index.md
+    (none)  ->  type/工具, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  entities/报告/report-country-risk-rating.md
+    出海  ->  type/报告, 合规风控, 谈判沟通, 出海战略, 人才管理, 知识管理
+    maturity=tree  context=['内部运营', '市场分析', '提案']
+  entities/报告/report-sf-overseas-hr-2026.md
+    (none)  ->  type/报告, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  entities/案例/case-africa-language-strategy-transsion.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 知识管理, 行业洞察, 区域/非洲, 央企, 民企
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-alipay-australia-cross-cultural.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 行业洞察
+    maturity=seed  context=['市场分析', '提案', '方案设计']
+  entities/案例/case-angola-refinery-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 区域/非洲, 央企
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-anhui-epdi-2025-business-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-anyuan-business-english-training.md
+    (none)  ->  type/案例, 语言培训, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-baic-overseas-staff-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-baic-youth-business-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-byd-talent-strategy-2025.md
+    (none)  ->  type/案例, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 行业洞察, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-byd-talent-strategy.md
+    (none)  ->  type/案例, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-ccc-sixteen-international-english-training.md
+    (none)  ->  type/案例, 语言培训, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-11th-business-english-competition.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-3rd-overseas-business-training-camp.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-5th-engineering-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-cccc-architecture-zhuhai-talent-training.md
+    (none)  ->  type/案例, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-business-english-competition.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-fourth-harbor-business-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-international-tech-leaders-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-new-employee-orientation.md
+    (none)  ->  type/案例, 跨文化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-overseas-market-development.md
+    (none)  ->  type/案例, 跨文化, 合规风控, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-overseas-project-english-training-graduation.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 区域/东南亚, 央企
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-cccc-overseas-talent-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-overseas-team-english-training-complete.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 区域/东南亚, 央企
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-cccc-sdc-english-club-presentation.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-tech-leader-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cccc-tianhe-business-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-ceec-hunan-business-english.md
+    (none)  ->  type/案例, 语言培训, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-ceec-north-china-advanced-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-ceec-overseas-leadership-training.md
+    (none)  ->  type/案例, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-ceec-southwest-institute-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-ceic-overseas-market-capability.md
+    (none)  ->  type/案例, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-chalco-english-oral-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-chalco-english-speaking-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-china-resources-hr-policy.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cma-15th-advanced-english-intensive-training.md
+    (none)  ->  type/案例, 语言培训, 领导力, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnbm-international-development.md
+    (none)  ->  type/案例, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnec-nuclear-english-training.md
+    (none)  ->  type/案例, 语言培训, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnnc-24-english-graduation.md
+    (none)  ->  type/案例, 语言培训, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnnc-24-international-engineering-english.md
+    (none)  ->  type/案例, 语言培训, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnnc-jianzhong-english-intensive.md
+    (none)  ->  type/案例, 语言培训, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnooc-9th-international-professional-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-cnooc-english-training-camp-amazing.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnooc-equipment-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnooc-gas-power-2025-international-trade-training.md
+    (none)  ->  type/案例, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnooc-international-talent-english-2017.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnooc-international-talent-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnooc-overseas-finance-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-cnooc-research-institute-english-training.md
+    (none)  ->  type/案例, 语言培训, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-cnooc-trading-new-employee-training.md
+    (none)  ->  type/案例, 跨文化, 合规风控, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cnpc-translation-intensive-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cosl-business-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cosl-business-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-cpec-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-cscec-international-english-improvement.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-cwe-youth-business-english-competition-award.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-dangsheng-technology.md
+    (none)  ->  type/案例, 领导力, 出海战略, 行业洞察, 央企
+    maturity=sapling  context=['市场分析', '提案', '方案设计']
+  entities/案例/case-digital-tech-training-multiple.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-energy-china-international-talent-strategy.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-ethiopia-chinese-workshop.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/非洲
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-foton-overseas-business-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-global-hq-empowerment-overseas.md
+    (none)  ->  type/案例, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 区域/东南亚, 央企, 民企
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-gofluent-automotive-language-solution.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-hangjun4018-english-training.md
+    (none)  ->  type/案例, 语言培训, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-hr-digital-transformation.md
+    (none)  ->  type/案例, 领导力, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-huawei-cloud-english-training.md
+    (none)  ->  type/案例, 语言培训, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-international-engineering-business-english-training.md
+    (none)  ->  type/案例, 语言培训, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-jepcc-overseas-employee-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 出海战略, 人才管理, AI赋能, 知识管理, 区域/东南亚
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-jinao-esg-compliance-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-mgt-trainee-company-a.md
+    AI  ->  type/案例, 语言培训, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-middle-east-cross-cultural-relationship-building.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 区域/中东, 央企, 民企
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-mining-engineering-english-corner.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-mnc-project-manager-crossborder-communication.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-national-day-english-speaking-camp.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-ncpe-advanced-english-training.md
+    (none)  ->  type/案例, 语言培训, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-nec-contract-training-cccc-road-bridge.md
+    (none)  ->  type/案例, 领导力, 合规风控, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-oman-marsa-lng-english-training.md
+    (none)  ->  type/案例, 语言培训, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/中东, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-overseas-engineering-business-english-handbook.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-overseas-hr-tcl-cimc-nio.md
+    人才, 出海  ->  type/案例, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-overseas-localization-transition-challenges.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-payinone-global-hr-platform.md
+    人才, 出海  ->  type/案例, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-pdi-business-english-competition.md
+    (none)  ->  type/案例, 语言培训, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-powerchina-business-english-writing.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-powerchina-english-training.md
+    (none)  ->  type/案例, 语言培训, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-powerchina-new-employee-english.md
+    (none)  ->  type/案例, 语言培训, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-shanghai-communication-business-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-siemens-shanghai-acquisition-localization.md
+    (none)  ->  type/案例, 跨文化, 属地化, 出海战略, AI赋能, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-sinopec-business-marketing-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-speexx-changan-business-english.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-sunny-group-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-third-phase-overseas-talent-english-training-duplicate.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-third-phase-overseas-talent-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-water-planning-institute-11th-business-english-competition.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-xg-xuege-fashion-training.md
+    (none)  ->  type/案例, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-xuyang-international-talent-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-yihangju-eagle-plan-language-training.md
+    (none)  ->  type/案例, 语言培训, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-yingnai-client-training-projects.md
+    AI, 人才, 培训, 央企  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-yingnai-student-stories.md
+    人才, 培训  ->  type/案例, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/case-zambia-chinese-english-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-zhejiang-thermal-power-english-training.md
+    (none)  ->  type/案例, 语言培训, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/case-zhongjiaotongli-english-training.md
+    (none)  ->  type/案例, 语言培训, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/cases-ai-engineering.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=tree  context=['内部运营', '提案', '方案设计']
+  entities/案例/cases-alibaba-cloud-ai-talent.md
+    AI, 人才  ->  type/案例, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/cases-axa-insurance-compliance.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-byd.md
+    (none)  ->  type/案例, 跨文化, 属地化, 出海战略, 人才管理, 知识管理, 行业洞察, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-ccpit-overseas-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-central-soe-international-talent.md
+    人才, 央企  ->  type/案例, 领导力, 合规风控, 属地化, 出海战略, 人才管理, 行业洞察, 央企
+    maturity=tree  context=['市场分析', '提案', '方案设计']
+  entities/案例/cases-cgn-uranium-international-talent.md
+    人才, 跨文化  ->  type/案例, 语言培训, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-cib-digital-leadership.md
+    AI, 领导力  ->  type/案例, 跨文化, 领导力, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-citic-dicaastal-international-talent.md
+    人才  ->  type/案例, 语言培训, 跨文化, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-cnpc-international-talent-model.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-crbc-international-talent.md
+    人才, 跨文化  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-crland.md
+    (none)  ->  type/案例, 领导力, 合规风控, 属地化, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-cross-culture.md
+    跨文化  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企, 民企
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-cscec-overseas-business-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-dangsheng-finnish-project.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 知识管理, 区域/欧洲, 央企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/cases-enterprise-training-and-talent-development.md
+    人才  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 出海战略, 人才管理
+    maturity=sapling  context=['提案', '方案设计']
+  entities/案例/cases-enterprise-university-marketization.md
+    (none)  ->  type/案例, 跨文化, 领导力, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-haier.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-huawei-training-evaluation.md
+    AI  ->  type/案例, 语言培训, 领导力, 属地化, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-huawei.md
+    (none)  ->  type/案例, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-language-training.md
+    (none)  ->  type/案例, 语言培训, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-localization.md
+    属地化  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-luzhou-laojiao-digital-learning.md
+    AI  ->  type/案例, 语言培训, 谈判沟通, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-mcdonalds.md
+    (none)  ->  type/案例, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-mideast-epc.md
+    区域/中东  ->  type/案例, 合规风控, 出海战略, 行业洞察, 区域/中东, 央企
+    maturity=tree  context=['市场分析', '提案', '方案设计']
+  entities/案例/cases-negotiation-hr-scenarios.md
+    (none)  ->  type/案例, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 民企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/cases-negotiation-training-procurement.md
+    (none)  ->  type/案例, 语言培训, 谈判沟通, 出海战略, 人才管理, AI赋能, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-negotiation.md
+    (none)  ->  type/案例, 语言培训, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-outbound-experience.md
+    人才, 出海, 区域/中东, 谈判, 跨文化  ->  type/案例, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 区域/中东
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-overseas-crisis-15.md
+    出海, 区域/东南亚  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 知识管理, 行业洞察, 区域/东南亚, 区域/南亚, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-overseas-crisis-comms.md
+    出海  ->  type/案例, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 知识管理, 央企, 民企
+    maturity=tree  context=['内部运营', '提案', '方案设计']
+  entities/案例/cases-overseas-hr-management-eor.md
+    人才, 出海, 区域/东南亚  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 区域/南亚
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-overseas-investment-cases.md
+    出海, 央企  ->  type/案例, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/cases-ozon-russia-market.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 区域/欧洲, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-plaud.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-project-management.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-public-speaking.md
+    (none)  ->  type/案例, 语言培训, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-sinopec-learning-transformation.md
+    AI  ->  type/案例, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=seed  context=['内部运营', '提案', '方案设计']
+  entities/案例/cases-soe-globalization.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 知识管理, 行业洞察, 央企, 民企
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-soe-training-insights.md
+    (none)  ->  type/案例, 语言培训, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=tree  context=['内部运营', '提案', '方案设计']
+  entities/案例/cases-state-owned-enterprise.md
+    (none)  ->  type/案例, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-sungrow-power-sources.md
+    (none)  ->  type/案例, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/cases-tencent.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 民企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-tianhong-digital-talent-model.md
+    AI, 人才  ->  type/案例, 语言培训, 跨文化, 领导力, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-tianma-digital-leadership-ai.md
+    AI, 领导力  ->  type/案例, 跨文化, 领导力, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-united-imaging.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-yangjiang-nuclear-digital-talent.md
+    AI, 人才  ->  type/案例, 跨文化, 领导力, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cases-zte-digital-leadership.md
+    AI, 领导力  ->  type/案例, 跨文化, 领导力, 谈判沟通, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/central-soe-cccc-review.md
+    央企  ->  type/案例, 语言培训, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/central-soe-foreign-business-negotiation.md
+    央企, 谈判  ->  type/案例, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/central-soe-foreign-engineering.md
+    央企  ->  type/案例, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '提案', '方案设计']
+  entities/案例/central-soe-rise-concept-model.md
+    央企  ->  type/案例, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/central-soe-talent-plan-2023-2025.md
+    (none)  ->  type/案例, 语言培训, 属地化, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/central-soe-training-system.md
+    央企  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/china-enterprise-overseas-overview.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/citic-construction-intl-talent.md
+    人才  ->  type/案例, 语言培训, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/citic-construction-language-training.md
+    (none)  ->  type/案例, 语言培训, 谈判沟通, 出海战略, 人才管理, AI赋能, 央企
+    maturity=tree  context=['内部运营', '提案', '方案设计']
+  entities/案例/citic-construction-talent-system.md
+    人才  ->  type/案例, 跨文化, 领导力, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cr-cross-cultural-management.md
+    (none)  ->  type/案例, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cr-enterprise-language-training.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cr-international-negotiation-presentation.md
+    (none)  ->  type/案例, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/cr-localization-management.md
+    (none)  ->  type/案例, 跨文化, 领导力, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/crl-hr-policy-system.md
+    人才  ->  type/案例, 跨文化, 领导力, 谈判沟通, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/案例/enterprise-going-global-landscape.md
+    出海  ->  type/案例, 出海战略, 行业洞察
+    maturity=tree  context=['市场分析', '提案', '方案设计']
+  entities/案例/enterprise-internationalization-cases.md
+    出海  ->  type/案例, 领导力, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  entities/竞品/engnice-competitor-analysis.md
+    (none)  ->  type/报告, 语言培训, 跨文化, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  entities/竞品/speexx-competitor-analysis.md
+    (none)  ->  type/报告, 语言培训, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  entities/竞品/tianyuan-hongding-competitive-analysis.md
+    (none)  ->  type/报告, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  entities/竞品/tianyuan-hongding-methodology.md
+    (none)  ->  type/报告, 人才管理, 知识管理, 行业洞察
+    maturity=tree  context=['内部运营', '市场分析', '提案']
+  entities/竞品/tianyuanhongding-competitor-analysis.md
+    (none)  ->  type/报告, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '提案']
+  entities/竞品/yingnai-english-competitive-analysis.md
+    (none)  ->  type/报告, 语言培训, 跨文化, 领导力, 属地化, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  entities/竞品/yingnai-english.md
+    (none)  ->  type/报告, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  entities/索引/equalocean-research-index.md
+    (none)  ->  type/索引, 跨文化, 合规风控, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企, 民企
+    maturity=sapling  context=['内部运营', '市场分析']
+  entities/索引/finance-magazine-index.md
+    (none)  ->  type/索引, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析']
+  entities/索引/hr-magazine-index.md
+    (none)  ->  type/索引, 领导力, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营']
+  entities/索引/hroot-hr-research-index.md
+    (none)  ->  type/索引, 跨文化, 领导力, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析']
+  entities/索引/international-observation-index.md
+    (none)  ->  type/索引, 跨文化, 合规风控, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析']
+  entities/索引/overseas-regional-research-index.md
+    出海, 区域/东南亚  ->  type/索引, 语言培训, 跨文化, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 区域/南亚
+    maturity=sapling  context=['内部运营', '市场分析']
+  entities/索引/soe-magazine-index.md
+    (none)  ->  type/索引, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析']
+  entities/索引/state-assets-report-index.md
+    (none)  ->  type/索引, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=seed  context=['内部运营']
+  entities/索引/state-assets-report-policy-index.md
+    (none)  ->  type/索引, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营']
+  entities/索引/state-owned-enterprises-index.md
+    (none)  ->  type/索引, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=seed  context=['内部运营']
+  entities/索引/systematic-certification-index.md
+    (none)  ->  type/索引, 语言培训, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析']
+  entities/训练产品/b2b-professional-sales-training.md
+    (none)  ->  type/工具, 跨文化, 谈判沟通, 出海战略, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  entities/训练产品/b2b-sales-training.md
+    (none)  ->  type/工具, 谈判沟通, 人才管理, AI赋能, 知识管理
+    maturity=seed  context=['内部运营', '方案设计', '课程交付']
+  entities/训练产品/business-english-meetings.md
+    (none)  ->  type/工具, 语言培训, 跨文化, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  entities/训练产品/business-meeting-handbook.md
+    (none)  ->  type/工具, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理
+    maturity=seed  context=['内部运营', '方案设计', '课程交付']
+  entities/训练产品/carl-training-proposals-supplement.md
+    (none)  ->  type/工具, 语言培训, 跨文化, 领导力, 谈判沟通, 出海战略, AI赋能, 知识管理, 央企
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  entities/训练产品/cec-training-proposal-library.md
+    (none)  ->  type/工具, 语言培训, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  entities/训练产品/communication-skills-training-robert-moore.md
+    (none)  ->  type/工具, 语言培训, 谈判沟通, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  entities/训练产品/cross-cultural-case-training.md
+    (none)  ->  type/工具, 跨文化, 领导力, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=seed  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  entities/训练产品/cross-industry-overseas-training-demand.md
+    出海, 区域/东南亚, 培训  ->  type/工具, 合规风控, 属地化, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 区域/东南亚, 区域/南亚, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  entities/训练产品/industry-function-training-cases.md
+    (none)  ->  type/工具, 语言培训, 跨文化, 领导力, 合规风控, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  entities/训练产品/presentation-skills-workbook.md
+    (none)  ->  type/工具, 语言培训, 跨文化, 谈判沟通, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  entities/训练产品/training-magazine-industry-trends.md
+    (none)  ->  type/工具, 语言培训, 领导力, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  entities/训练产品/training-solution-innovation-case-library.md
+    (none)  ->  type/工具, 语言培训, 领导力, 谈判沟通, 出海战略, 人才管理, AI赋能, 知识管理, 行业洞察, 央企, 民企
+    maturity=tree  context=['内部运营', '市场分析', '方案设计', '课程交付']
+  entities/训练产品/ttt-instructor-training-system.md
+    (none)  ->  type/工具, 语言培训, 谈判沟通, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计', '课程交付']
+  reports/health_report_202605.md
+    (none)  ->  type/报告, AI赋能, 知识管理
+    maturity=seed  context=['内部运营', '市场分析', '提案']
+  reports/health_report_202605_final.md
+    (none)  ->  type/报告, 人才管理, AI赋能, 知识管理
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  方法工具箱/课程萃取项目/README.md
+    (none)  ->  type/方法, 谈判沟通, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/中层领导力课程体系萃取报告.md
+    (none)  ->  type/报告, 领导力, 谈判沟通, 人才管理, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案']
+  方法工具箱/课程萃取项目/知识卡片-中层领导力课程体系.md
+    (none)  ->  type/方法, 跨文化, 领导力, 合规风控, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 行业洞察, 央企
+    maturity=sapling  context=['内部运营', '市场分析', '方案设计']
+  方法工具箱/课程萃取项目/1-项目概览/干系人沟通记录.md
+    (none)  ->  type/方法, 语言培训, 谈判沟通
+    maturity=seed  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/1-项目概览/项目立项书.md
+    (none)  ->  type/方法, 合规风控, 谈判沟通, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/1-项目概览/项目计划.md
+    (none)  ->  type/方法, 谈判沟通, 知识管理
+    maturity=seed  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/2-需求分析/业务场景分析.md
+    (none)  ->  type/报告, 知识管理
+    maturity=seed  context=['内部运营', '市场分析', '提案']
+  方法工具箱/课程萃取项目/2-需求分析/学员画像分析.md
+    (none)  ->  type/报告, 知识管理
+    maturity=seed  context=['内部运营', '市场分析', '提案']
+  方法工具箱/课程萃取项目/2-需求分析/需求调研报告.md
+    (none)  ->  type/报告, 知识管理
+    maturity=seed  context=['内部运营', '市场分析', '提案']
+  方法工具箱/课程萃取项目/3-知识萃取工具/专家访谈记录表.md
+    (none)  ->  type/方法, 知识管理, 行业洞察
+    maturity=seed  context=['内部运营', '市场分析', '方案设计']
+  方法工具箱/课程萃取项目/3-知识萃取工具/思维导图引导模板.md
+    (none)  ->  type/方法, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/3-知识萃取工具/案例采集模板.md
+    (none)  ->  type/案例, 合规风控, 知识管理, 行业洞察
+    maturity=sapling  context=['内部运营', '市场分析', '提案', '方案设计']
+  方法工具箱/课程萃取项目/3-知识萃取工具/知识卡片模板.md
+    (none)  ->  type/方法, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/3-知识萃取工具/知识萃取全景图.md
+    (none)  ->  type/方法, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/3-知识萃取工具/经验复盘工作坊设计.md
+    (none)  ->  type/方法, 属地化, 谈判沟通, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/3-知识萃取工具/访谈提纲模板.md
+    (none)  ->  type/方法, 语言培训, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/3-知识萃取工具/隐性知识显性化清单.md
+    (none)  ->  type/方法, 领导力, 合规风控, 谈判沟通, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/4-课程设计/教学设计方案.md
+    (none)  ->  type/方案, 知识管理
+    maturity=seed  context=['内部运营', '提案', '课程交付']
+  方法工具箱/课程萃取项目/4-课程设计/课程大纲.md
+    (none)  ->  type/方法, 知识管理
+    maturity=seed  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/5-课程开发/学员手册.md
+    (none)  ->  type/方法, 知识管理
+    maturity=seed  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/5-课程开发/讲师手册.md
+    (none)  ->  type/方法, 知识管理
+    maturity=seed  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/6-评估反馈/四级评估方案.md
+    (none)  ->  type/方案, 知识管理
+    maturity=seed  context=['内部运营', '提案', '课程交付']
+  方法工具箱/课程萃取项目/6-评估反馈/学员反馈模板.md
+    (none)  ->  type/方法, 谈判沟通
+    maturity=seed  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/6-评估反馈/课程迭代记录.md
+    (none)  ->  type/方法, 谈判沟通
+    maturity=seed  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/交付成果/README.md
+    (none)  ->  type/方法, 知识管理
+    maturity=seed  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/模板库/交付物检查清单.md
+    (none)  ->  type/方法, 谈判沟通, 知识管理
+    maturity=seed  context=['内部运营', '方案设计']
+  方法工具箱/课程萃取项目/模板库/课程萃取流程模板.md
+    (none)  ->  type/方法, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+  索引/月度专题/06-跨文化实战.md
+    (none)  ->  type/方法, 语言培训, 跨文化, 属地化, 谈判沟通, 出海战略, 人才管理, 知识管理, 民企
+    maturity=tree  context=['内部运营', '方案设计']
+  诊断报告/质量评分_20260508.md
+    (none)  ->  type/方法, 出海战略, 人才管理, 知识管理
+    maturity=sapling  context=['内部运营', '方案设计']
+
+── Stats ──
+  Files: 421  Changed: 421  Errors: 0
+  Types: {'对比': 4, '工具': 17, '报告': 21, '数据': 20, '方案': 2, '方法': 93, '案例': 170, '模型': 78, '索引': 16}
+  Domains: {'AI赋能': 303, '人才管理': 345, '出海战略': 344, '合规风控': 186, '属地化': 176, '知识管理': 393, '行业洞察': 300, '语言培训': 266, '谈判沟通': 296, '跨文化': 267, '领导力': 150}
+
+Run with --apply to write changes.

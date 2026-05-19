@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Bulgarians enter negotiations with a distinctive radar shaped by the 1990s, when bad privatization deals, pyramid schemes, and one-sided contracts left many feeling that outsiders reaped the benefits while locals carried the losses. That experience still influences how deals are assessed today. Proposals that shift risk onto the Bulgarian side while offering the partner a clearer upside will meet quiet resistance or circling. Design agreements so that risk, visibility, and reward are distributed visibly and fairly, and be ready to explain that distribution out loud. It speaks directly to a question many Bulgarian counterparts are still asking.
+
+You will often hear "da, ama…" — yes, but. This is not evasion. It reflects both courtesy and a real awareness of constraints: regulatory hurdles, owner approval, political realities. Each "but" typically points to a condition that must be addressed before the conversation can move forward. Treat these as information, not obstacles. Working through them can take several rounds, and each one brings you closer to a genuine agreement rather than a polite deferral.
+
+Hard bargaining is common, but it often arrives wrapped in humor and teasing. A counterpart might joke about throwing in their grandmother to sweeten the deal, all while holding firm on price. The banter keeps the tone warm and relational, but the numbers underneath remain serious. A colleague from a culture where negotiation is more formal may find the jokes distracting or wonder whether the discussion is being taken seriously. From the Bulgarian side, someone who stays purely transactional and does not join the lighter moments may come across as rigid or uninterested in the relationship that underpins the deal. Pay attention to what is said between the laughter — that is where the real terms live.

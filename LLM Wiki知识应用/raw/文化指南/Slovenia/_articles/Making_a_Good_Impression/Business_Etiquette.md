@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Slovenian business culture prizes competence expressed quietly. The national memory of preserving literacy and identity through careful, disciplined effort shows up today as a preference for structure over performance, precision over charm. Approach conversations with a calm, well-organized tone and you'll find people respond to the care in your preparation more than the energy in your pitch. Small gestures of Slovenia-specific knowledge, such as an understanding of the country's distinct identity separate from its larger neighbors, register deeply. Don't mistake this for surface nationalism; it reflects a longer history of protecting autonomy and being treated as an equal partner rather than an afterthought.
+
+Communication tends to be indirect where feelings are concerned. Slovenians often sidestep confrontation and may soften a refusal to protect dignity on both sides. This means listening for what isn't said: a pause, a shift in phrasing, or a polite deflection often communicates more than the words themselves. For a colleague from a culture that values explicit agreement or debate, this can feel evasive. From the Slovenian side, overt directness or pushing for an answer on the spot can feel aggressive and relationally clumsy.
+
+Body language is understated. Dramatic gestures or raised voices feel out of place; maintain at least an arm's length of personal space and make steady but not intense eye contact. Gift-giving is low-key. A thoughtful, well-wrapped token, such as something meaningful from your own country, shows respect without overstepping. If invited to someone's home, flowers or wine are expected. Business cards should be exchanged without ritual but read with genuine attention; emphasizing qualifications matters, as education is quietly held in high regard.

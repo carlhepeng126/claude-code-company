@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Supplier and customer relationships in South Korea are built on proven reliability. Korea's export-led industrialization created tightly managed supply chains where meeting deadlines, maintaining quality, and recovering well from setbacks form the foundation of trust. Contracts set the terms, but trust accumulates through repeated delivery. Performance earns credibility over time, and a supplier who consistently meets commitments will be valued beyond purely transactional measures. If you encounter a delay or quality issue, communicate it early with a clear recovery plan rather than concealing the problem. Transparency when things go wrong, paired with a credible fix, protects the relationship more effectively than silence.
+
+Personal rapport supports commercial relationships but does not replace performance. Introductions through established networks or shared contacts can open doors, particularly in chaebol-affiliated companies where supply chain decisions may reflect senior relationships as much as competitive bidding. If you are working with a chaebol, understand who holds decision-making authority and ensure you engage at the right level. Your day-to-day contact may handle operational details but lack the mandate to approve contract changes or pricing adjustments.
+
+Offering tea, coffee, or a simple meal during key meetings or site visits reflects respect and seriousness. Even modest hospitality shows that you see the relationship as more than a transaction. This is especially relevant when you are the customer, but it applies equally when managing suppliers. A foreign manager from a culture where such gestures are uncommon may see them as unnecessary formality, while a Korean counterpart may read their absence as lack of investment in the partnership.

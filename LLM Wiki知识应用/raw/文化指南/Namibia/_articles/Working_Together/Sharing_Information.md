@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+The messenger often matters as much as the message in Namibia, because communities are tightly connected across family, church, and school networks. People remember who shared what, and credibility builds up or breaks down over time. When presenting new information or making a proposal, think about who already has standing in the room and whether involving them early strengthens how others will receive what you say. A technically sound report delivered by someone with a short or unknown track record may prompt more questions and caution than the same content introduced by a colleague with local trust already established.
+
+Language choice shapes how information lands. English is the official working language and the formal language of business, but credibility can shift when local languages or Afrikaans enter the conversation. What feels official in English may feel distant in some contexts, while a point made in a local language can register as more trustworthy or intimate. If you are drafting communications that need to reach different audiences, consider which language will carry the tone you need, and where translation or bilingual delivery might matter more than consistency of format.
+
+Some topics carry more sensitivity than others. Information connected to land, benefits, or resource distribution activates deeper communal memory and identity. People may become more cautious, not because they distrust you, but because the subject touches on historical dispossession and legitimacy that remain active concerns. Approach these topics with care, acknowledge the context, and give people time to respond. Formal channels are respected, but customary leaders or church structures may hold moral authority in certain communities. Choosing who should hear what first is often as important as what you share.

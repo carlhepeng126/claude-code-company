@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+In Burkina Faso, business etiquette reflects a culture where relationships come before transactions and courtesy is more than surface politeness. Greetings are structured and meaningful. In formal settings, they begin with an exchange of pleasantries that can feel extended to someone from a culture that moves quickly to business matters. Asking about family, health, or the journey to the meeting demonstrates that you see the person, not just the agenda. Skipping these steps can come across as dismissive or transactional, weakening the foundation for any collaboration that follows.
+
+Respect for seniority shapes how meetings unfold. The most senior person in the room typically speaks first and sets the tone. Interrupting or challenging them directly, especially in front of others, risks causing embarrassment and closing down dialogue. If you need to raise a concern, do so privately or frame it as a question rather than a contradiction. In a culture where preserving dignity is central to professional relationships, how you disagree can determine whether the partnership continues.
+
+Dress expectations remain conservative, particularly outside Ouagadougou. Men typically wear suits or smart trousers and long-sleeved shirts. Women should opt for modest, professional attire that covers shoulders and knees. While younger professionals in the capital may adopt more relaxed styles, erring on the side of formality shows awareness and regard for local norms. Punctuality is valued in principle, though traffic, infrastructure challenges, and the layered nature of greetings mean meetings may not start exactly on time. Arriving late without explanation, however, still reads as disrespect.

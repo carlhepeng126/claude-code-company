@@ -1,0 +1,11 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+In Panama, shared meals often serve as the moment when surface-level friendliness shifts into something more durable. The country's transit identity, shaped by its role as a commercial crossroads, produces a quick openness in many professional settings, especially in the capital. But trust that goes deeper than first impressions usually needs time and relational space. A business lunch or dinner can provide that space, allowing colleagues to move from polite efficiency to the kind of connection that enables sustained collaboration.
+
+Where you choose to meet quietly communicates which version of Panama you are engaging with. A lunch in the canal corridor or a hotel in Panama City often signals international fluency and institutional credibility. A meal in the interior, by contrast, can foreground local continuity and community pride. Coastal or Caribbean settings may carry different social rhythms and identity markers. These are not just logistical choices. The venue shapes the relational tone and can signal whether you understand Panama as a global corridor, a rooted community network, or both.
+
+Food itself reflects layered histories. Indigenous, Spanish, Afro-descendant, and migrant influences, including a notable Chinese Panamanian presence in commerce and everyday life, all show up in the national table. What is served and how it is framed can quietly indicate which cultural lineage or community identity is being honored in that moment. Showing curiosity and respect for this dimension of the meal builds credibility, especially when working across different regions or sectors.
+
+Timing also matters. Major devotional seasons, like the pilgrimage to Portobelo's Black Christ, and regional festival periods can reshape availability and shift the emotional focus of gatherings. These are not incidental events but identity seasons that influence when and how people are present. Scheduling meals with awareness of these rhythms demonstrates respect for the deeper structures that shape professional and social life.

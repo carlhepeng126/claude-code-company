@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+In Nigeria, decisions gain legitimacy through multiple authority systems at once. Family elders, religious leaders, traditional rulers, patrons, and professional hierarchies can all influence what gets approved and how. Formal organizational charts describe one layer of authority, but rarely the whole picture. A manager presenting a recommendation may need more than her title to move things forward. Understanding which sources of legitimacy are active in a given context, and consulting across them, can prevent delays that look procedural but are really relational. When working in diverse teams or regions, map who holds influence beyond the org chart before pressing for closure.
+
+Real negotiation often happens before the meeting. Private consultation allows people to shift position, express reservations, or align support without public embarrassment. The public moment is expected to look orderly because the substantive work happened earlier. A colleague from a culture where decisions are debated openly in real time may read this as evasion or inefficiency. From the Nigerian side, skipping the backstage process and pushing for on-the-spot resolution can feel socially clumsy and risk creating friction that didn't need to exist. Building alignment through quiet pre-work protects relationships and makes implementation smoother.
+
+How decisions are framed and announced can affect whether they hold. In a federation shaped by diversity and histories of exclusion, people scan for who is being included and who is being sidelined. Distribution and recognition are not just fairness concerns, they are questions of belonging. Announcing outcomes in ways that preserve dignity and avoid winner-loser framing reduces resistance. Age also influences credibility. A younger manager instructing an older colleague may find their decisions questioned or quietly reworked, regardless of formal authority.

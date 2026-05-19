@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Haiti follows relational rather than mechanical logic. Schedules exist, but relationships and immediate human needs often take precedence. A meeting might begin late because a colleague stopped to help a neighbor, attended to a family matter, or navigated unpredictable transport. This flexibility reflects a social structure where survival and solidarity have long depended on responsiveness to others, not adherence to fixed plans. In a context where formal institutions have historically been unreliable, personal networks become the primary infrastructure, and time bends to protect them.
+
+This does not mean deadlines are ignored. In sectors with international clients or foreign partnerships, punctuality is understood as a professional expectation and is generally met. But in more locally embedded organizations, especially family-run businesses or public offices, delays are common and rarely explained in advance. A manager from a culture where schedules are tightly controlled might interpret this as disorganization. A Haitian colleague, in turn, might view rigid timekeeping as inflexible or indifferent to the realities people face daily.
+
+If you are coordinating across contexts, confirm expectations explicitly. Ask when a deliverable is realistically due, not just formally due. Build in buffer time where possible, and recognize that a delay may reflect circumstances beyond individual control. Where punctuality is critical, frame it as a shared commitment rather than a demand, and be prepared to explain why the timing cannot shift.

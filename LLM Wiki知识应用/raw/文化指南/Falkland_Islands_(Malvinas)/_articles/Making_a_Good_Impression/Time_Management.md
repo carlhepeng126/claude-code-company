@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+The Falkland Islands runs on a pace shaped by geography, self-reliance, and a small, interdependent population. Time here is functional rather than rushed. With limited infrastructure, small teams, and tasks that depend on weather, supply chains, and the availability of others, schedules are treated as frameworks, not fixed points. A colleague from a culture where punctuality reflects professionalism may find meetings starting informally or decisions postponed until the right people are present. Islanders, in turn, may see rigid timekeeping as disconnected from the realities of getting things done in a remote environment where flexibility is often the only way forward.
+
+Deadlines tend to be met, but the path to them is rarely linear. Work unfolds around competing priorities, and people expect others to understand when something more urgent intervenes. In small businesses and government offices alike, time bends around relationships and practical constraints. If a piece of equipment breaks or a supply shipment is delayed, plans shift without formality or apology. This is understood as pragmatism, not poor planning.
+
+Cross-cultural friction can arise when international partners expect rigid schedules or interpret delays as disorganization. Islanders generally value reliability over speed, and trust is built through steady follow-through rather than rapid response. If you are coordinating remotely, confirm progress informally and often, and recognize that timelines may adjust based on factors beyond individual control. Allow room for recalibration without assuming a lack of commitment.

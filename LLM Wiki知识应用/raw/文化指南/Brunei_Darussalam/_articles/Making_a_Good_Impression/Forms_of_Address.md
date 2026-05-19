@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Brunei, forms of address reflect the influence of Malay Islamic Monarchy (MIB), a foundational framework that shapes how authority, respect, and social hierarchy are expressed in everyday life. Titles and honorifics function as visible markers of this structure, and their consistent use helps maintain the balance between individual relationships and wider social harmony. This formality extends across government, business, and even family settings where age and position command deference.
+
+Addressing someone by their full title and surname is standard practice in professional contexts. Titles such as "Dato" or "Datin" signal royal or state recognition and should always be used when present. In business settings, professional titles like "Dr." or academic designations are paired with surnames until a more relaxed approach is explicitly offered. First names are reserved for peers or those who have moved into a more familiar relationship over time, and this shift is rarely immediate. A colleague from a culture where informality builds rapport quickly may read this formality as distance or reluctance to engage, while someone from Brunei might interpret rapid first-name use as presumptuous or disrespectful of rank.
+
+Written communication maintains the same level of formality. Emails and letters should open with appropriate titles and close with courteous phrasing such as "Yours sincerely" or equivalent Malay forms if the correspondence is in Bahasa Melayu. Even in internal messaging, brevity should not override respect. Using a person's title in writing reinforces recognition of their role and the institutional context in which the relationship operates.

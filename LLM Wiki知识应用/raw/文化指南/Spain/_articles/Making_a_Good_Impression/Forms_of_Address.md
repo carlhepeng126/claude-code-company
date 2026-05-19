@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Spanish forms of address work as a distance dial between familiarity and respect, and the setting between *tú* and *usted* shapes how relationships develop from the first exchange. *Usted* signals formality, seriousness, and respectful distance, particularly where age, authority, or institutional context is present. *Tú* signals closeness and ease. The shift between them is often negotiated implicitly through tone, setting, and social cues rather than announced. In professional contexts, follow the lead of the person with greater seniority or age, and stay with *usted* until invited otherwise. Switching too quickly to *tú* can feel disrespectfully casual, especially with older colleagues or in more traditional sectors.
+
+Warmth and respect are not opposites in Spain. Respect is often performed through greeting energy, attentiveness, and small courtesy markers rather than through stiff formality. A warm tone, steady eye contact, and engaged conversation can convey respect more effectively than rigid distance. This can puzzle colleagues from cultures where formality and reserve are paired, who may read warmth as overfamiliarity. From a Spanish perspective, coldness can suggest disinterest or disrespect, even when the intention is professionalism.
+
+Titles exist and are used in formal settings, particularly with professionals such as doctors, engineers, or academics, paired with surnames. However, Spain is not heavily title-driven compared to some countries. Hierarchy is more commonly managed through how people speak, how directly they disagree, and who controls the flow of conversation. Older generations may retain *usted* longer and treat the shift to *tú* as a clearer threshold. Younger urban professionals often move faster to *tú*, especially among peers, though this varies by region and workplace culture.
+
+Regional identity reshapes address norms in meaningful ways. Spain contains multiple linguistic worlds, including Catalan, Basque, and Galician, each with its own historical dignity and political weight. In these regions, language choice can signal belonging and respect beyond comprehension. Acknowledging the local language, even minimally, shows awareness and builds credibility in ways that Castilian Spanish alone may not.

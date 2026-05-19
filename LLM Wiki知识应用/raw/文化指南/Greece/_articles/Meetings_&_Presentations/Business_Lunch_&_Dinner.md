@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+In Greece, eating together is a group act. Meals are built around shared plates placed in the middle of the table, everyone reaching in, passing dishes, commenting on taste and origin. Someone who insists on ordering separately or avoids the communal plates can come across as closed or unwilling to participate. Letting Greek colleagues guide the order and showing a willingness to try what's offered opens the door to easier conversation. Even if you add one familiar dish for yourself, engage with what's shared.
+
+Food talk in Greece is rarely small talk. When someone mentions how their mother prepares a dish, or how it's made differently on their island, they're offering a piece of their story. Greece's internal diversity runs deep, shaped by Asia Minor refugee families, Pontic Greeks, islanders, and mountain villages, and food is one of the clearest ways that history surfaces in everyday life. Listening to these references helps you understand not just the person, but the regional and generational layers that inform how they see the world and their place in it.
+
+The meal unfolds in stages: meze, salad, main course, fruit, something sweet, coffee, sometimes a digestif. Leaving after the main course cuts the evening short before the more candid exchanges often happen. Budget time for the full arc. The fruit course or the coffee is when people tend to speak more openly, and important disclosures may come then, not earlier. Rushing through or treating the meal as a brief interval between meetings undermines the relational work the meal is meant to do.

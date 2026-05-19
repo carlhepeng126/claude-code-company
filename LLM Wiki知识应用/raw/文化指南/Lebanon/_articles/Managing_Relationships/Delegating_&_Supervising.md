@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+Decision-making authority in Lebanon tends to concentrate at the top, particularly in traditional family-owned firms. Major decisions come from senior leadership, and middle managers typically have limited power to act independently. This is not simply hierarchical preference. It reflects both the family business structure that dominates Lebanese commerce and the sectarian infrastructure that runs beneath it. Confessional affiliation often determines who is brought into positions of trust, and trust determines who decides. When delegating, consider that what appears to be reluctance to act may be a subordinate waiting for confirmation that they truly have authority, rather than just the appearance of it.
+
+Lebanese professionals are educated, entrepreneurial, and expect to be treated as intellectual equals. Micro-management or formulaic instruction can feel condescending and erode credibility quickly. Substance and clarity earn respect, not title alone. If you are managing across sectarian lines within a team, be aware that information may not flow evenly. Community affiliation shapes informal alliances, and these can be invisible to outsiders. Building relationships across confessional boundaries, rather than relying on a single network, widens your practical reach.
+
+Feedback should be handled with care. Public criticism risks loss of face, which has real consequences in a relationship-centered culture. Address concerns privately or frame them to a group, and avoid singling individuals out unless the relationship is strong enough to support it. Managers from cultures where directness is the norm may find this indirect, while Lebanese colleagues may view blunt feedback as unnecessarily damaging. Neither reading is wrong, but the practical cost of misjudging tone here is high.

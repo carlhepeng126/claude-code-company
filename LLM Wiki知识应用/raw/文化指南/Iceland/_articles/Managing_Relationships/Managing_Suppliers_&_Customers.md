@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Iceland's supplier and customer relationships unfold in a context where commercial transactions are only one layer of connection. The same person you negotiate with might be a rescue volunteer, a neighbor, or related to someone on your team. This overlap means that how you handle a contract dispute or a delay will be remembered and discussed in ways that reach far beyond the immediate deal. In fisheries and energy sectors especially, people recall who behaved fairly during bad seasons, eruptions, or travel shutdowns. These stories persist for decades in small towns, shaping who gets trusted when the next opportunity arises.
+
+Open communication and relationship building are expected, though this tends to happen through informal socializing rather than extended formal meetings. Deadlines will be met if you communicate them clearly and early. If something goes wrong, Icelandic suppliers and customers typically look for solutions rather than walking away. Making the effort to visit Iceland in person to discuss issues face to face rather than relying only on email demonstrates seriousness and builds the trust that sustains long-term partnerships.
+
+For anyone working in tourism-related sectors, there is a growing expectation that visitor numbers should be managed to protect fragile sites and communities, rather than maximized for short-term gain. Suppliers who push volume at any cost risk being seen as undermining shared resources. Showing concretely how your approach respects carrying capacity will strengthen your standing in a market where fairness and shared risk management are essential to staying in business over time.

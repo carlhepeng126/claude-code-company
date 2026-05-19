@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Rwanda is understood through the idea of *agaciro* (dignity): a leader's role is to preserve dignity, for individuals and for the collective, through seriousness and self-control. This expectation shapes how authority is exercised. A leader who remains composed under pressure, who keeps their tone measured, and who avoids performative dominance earns respect more reliably than one who displays charisma or verbal force. Emotional restraint is read as strength, and public discipline is taken seriously.
+
+The *imihigo* tradition adds another layer. Originally a practice in which warriors made public promises before battle, *imihigo* has been adapted into modern performance contracting: leaders set targets, own them publicly, and are evaluated on delivery. This frames leadership as "promise plus accountability," and it means that commitments are treated with care. If you commit to something, even informally, it may be remembered and measured. For colleagues from cultures where plans shift often or where under-promising is seen as prudent, this can feel uncomfortably binding. From a Rwandan perspective, a colleague who revises their commitments frequently may seem unreliable or unserious.
+
+Authority is concentrated, and hierarchy is clear. Decisions are made at senior levels, and public challenge is rare. Feedback is more likely to be shared one-on-one, diplomatically, and only when trust exists. That said, there is growing evidence of more consultative and transformational approaches, particularly in younger organizations and among leaders who have experienced international or modern management education. Female leadership is highly visible: over 70 percent of small and medium enterprises are led by women, a legacy shaped both by post-genocide reconstruction and deliberate policy focus on gender equity.

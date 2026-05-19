@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Romanian hospitality follows a quiet ritual. When a host offers food, drink, or assistance, the guest often refuses modestly at first. The host then insists, and the guest may accept on the second or third round. This back-and-forth reflects a shared understanding of dignity and politeness: accepting too quickly can seem greedy, and offering only once can feel half-hearted. If you need to decline something more than once, do so warmly and give a brief reason rather than a flat refusal, which can land awkwardly.
+
+Home carries symbolic meaning, particularly in the way people are received. Bread and salt, though less common now in urban professional settings, still frame the idea that a guest is being blessed and protected, not just accommodated. Even without the ritual, the underlying principle holds: hosting is an act of care that goes beyond convenience. Guests are expected to arrive with warmth and appreciation, greet everyone present, and avoid acting hurried or preoccupied. A colleague from a culture where informality signals ease may read this attentiveness as formal, while a Romanian host may interpret casual arrival or minimal greeting as disinterest or poor manners.
+
+Warmth does not mean instant intimacy. Home and family remain somewhat guarded spaces, and closeness builds through repeated interaction and consistent behavior rather than a single visit. Tact matters throughout. Public corrections or humor that embarrasses someone, even lightly, can damage trust quickly. Good upbringing is read through manners that protect everyone's dignity, so keep feedback private and frame gratitude concretely rather than generically.

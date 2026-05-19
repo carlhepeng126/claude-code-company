@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Even in teams that appear flat and collegial, there is usually a *jefe* or *jefa* whose opinion settles the matter. Others will debate, challenge, and shape the conversation, sometimes vigorously, but everyone understands that this person will make the final call. The consultation is real and influence flows upward, but the authority to say "vamos" (let's go) or "no va" (it's not happening) rests with one person. If you are working with an Argentine team, identify who that person is early. Directing your pitch or proposal to the wrong layer wastes time and goodwill.
+
+Decisions in Argentina are often understood as provisional. Given the country's long experience with macroeconomic shocks, regulatory reversals, and sudden political shifts, commitments tend to be framed as "we go this way until reality contradicts us." This is not indecision. It reflects a practical awareness that external conditions can change overnight, and that holding too rigidly to a course of action can be riskier than adapting. Build flexibility and review clauses into agreements from the start, so that renegotiating later is understood as sensible adjustment rather than a sign of bad faith.
+
+Decisions that look purely commercial may still require clearance from actors outside the organization. Unions, provincial governors, national ministries, and well-connected media figures can all block or complicate a decision by making implementation difficult or politically costly. Before announcing major changes, especially those affecting employment or regional operations, test the plan quietly with union representatives, key clients, and political contacts. What appears to be caution is often strategic awareness of who holds informal veto power.

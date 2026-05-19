@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Offering feedback to senior colleagues in Angola requires awareness of what many of them have endured. A generation of leaders fought in war, lost family, or survived extreme poverty during decades of conflict and instability. Being corrected bluntly by a younger foreigner or someone from the diaspora can feel like their sacrifice and hard-won experience are being dismissed. When feedback is necessary, frame it with explicit recognition of what they have built. Start from shared goals rather than pointing out shortfalls, and anchor your suggestions in respect for the journey that brought them to this point.
+
+Much of the coaching that happens in Angolan workplaces takes place behind closed doors. Senior managers may publicly praise junior staff while keeping critique strictly private to protect face and maintain team cohesion in front of outsiders. If you only see the praise and assume there is no development conversation happening, you are likely missing the fuller picture. Ask leaders directly how they prefer to develop their teams and work within that structure rather than imposing a different model.
+
+Silence from staff should not be mistaken for apathy or lack of insight. In environments where colleagues have been punished for speaking up, staying quiet becomes a protective strategy. People who have seen others face consequences for raising concerns will often hold back, even when problems are clear. To surface honest feedback, consider anonymous channels or third-party facilitators rather than putting people on the spot in group settings or in front of their managers. If you notice a pattern of silence, explore what people fear might happen if they spoke, and address that underlying concern directly.

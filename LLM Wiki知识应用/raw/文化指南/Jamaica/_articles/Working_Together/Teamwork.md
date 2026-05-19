@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Jamaican teams often build cohesion through connection as much as output. Humour, banter, storytelling, and informal check-ins are not just social rituals—they are how people test whether collaboration feels genuine and safe. This "link-up" culture means that a team's effectiveness can depend on whether members feel welcomed and seen as people, not only as roles. A manager who moves straight into deliverables without creating room for this kind of exchange may find the team slower to gel or less willing to speak openly when problems arise.
+
+Respect shapes how disagreement unfolds. Jamaican communication can be direct and spirited, and teams will often laugh, argue, and challenge each other openly. But there is a clear line around dignity, especially across age or seniority. A strong opinion delivered with respect will usually be heard. The same point delivered in a way that feels belittling, class-snobby, or dismissive can fracture trust quickly, because reputation travels and memory runs long. For a colleague from a culture where debate is expected to be sharp and impersonal, this boundary may feel unclear at first. From a Jamaican perspective, that same colleague's directness may read as disrespectful if tone and relational awareness are missing.
+
+Teams also navigate language fluidly. The register can shift between Standard English and Patwa, sometimes within the same conversation. This code-switching can signal closeness, authority, seriousness, or solidarity, and skilled teams use it to keep everyone included. A manager who stays rigidly formal may create distance; one who shifts tone carelessly may overstep.

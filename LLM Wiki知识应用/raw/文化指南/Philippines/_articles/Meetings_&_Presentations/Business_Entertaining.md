@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business entertaining in the Philippines is rarely just about the meal. Hospitality serves as inclusion work, a way to make people feel looked after and to reinforce group belonging. Food is offered, comfort checked, and the warmth extended is genuine, even if boundaries still exist beneath the surface. This blends deep pride in Filipino cuisine, which draws from South Asian, Chinese, and Spanish influences, with a social reflex rooted in extended family rhythms. Major gatherings often revolve around kinship networks and life events, meaning shared meals function as relationship continuity, not a separate category of interaction.
+
+Invitations should be accepted when reasonably possible. Declining can risk the host losing face, so if you must, do it gently and briefly. Business meals often celebrate the conclusion of a deal rather than serve as negotiation space, and the tone is warm and informal. Work is typically not discussed until after a hospitable atmosphere has been established and a couple of courses served. The gathering itself is the point. A colleague from a culture where business is addressed early in a meal may find this pace indirect or inefficient, while a Filipino counterpart may read an early shift to business as transactional or dismissive of the relationship being built.
+
+Spouses are commonly included in evening entertainment, and the person who issued the invitation usually pays. Social events often conclude with singing and dancing, and guests may be invited to participate. Drinking to excess is avoided as it risks loss of face. Plan with calendar awareness: Christmas, Easter, and Eid al-Fitr are lived commitments, and family or community obligations during these periods are often non-negotiable. Offer flexible timing rather than expecting availability to bend around external schedules.

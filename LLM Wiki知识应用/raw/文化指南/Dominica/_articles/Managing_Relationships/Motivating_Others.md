@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+In Dominica, motivation thrives when people feel they are working toward something meaningful with others they trust. Individual incentives alone rarely inspire sustained effort. What drives commitment is belonging to a team where personal relationships are genuine and contributions are recognized within the context of those relationships. A manager who acknowledges someone's effort in front of colleagues, or who involves them in something that strengthens the group's standing, reinforces both connection and purpose. When building a team, focus on creating real rapport first. Performance tends to follow naturally from that foundation.
+
+Recognition works best when it is personal and immediate. A quiet word of thanks after a meeting, or public acknowledgment of someone's role in a shared success, makes a stronger impression than a formal reward given weeks later. Dominicans respond to warmth and authenticity. Generic praise or impersonal incentive schemes feel hollow. If you are leading a project, name what someone did well and why it mattered to the outcome. That specificity shows you were paying attention, and attention itself is motivating.
+
+Tight deadlines and rigid targets, especially when imposed from outside, can dampen rather than inspire. Time in Dominica moves at a relational pace, and pushing hard against that rhythm often backfires. People are more likely to stretch themselves when they understand the reason behind the urgency and when they feel their manager respects the realities of their lives. Flexibility in how and when work gets done, combined with clear communication about shared goals, will draw out more energy than pressure alone.

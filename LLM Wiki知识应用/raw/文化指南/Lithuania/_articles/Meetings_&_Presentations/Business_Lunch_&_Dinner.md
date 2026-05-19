@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Lithuanian cuisine draws on climate and continuity. Potatoes, rye, mushrooms, beetroot, and dairy form the backbone of most meals, built for sustenance through long seasons rather than visual flair. This grounding quality shapes how meals are approached in business settings. A carefully chosen restaurant or a meal that features local ingredients reflects thoughtfulness and effort, even when presentation is understated. The seriousness of the occasion shows through the steadiness and quality of the food itself, not through spectacle.
+
+Expect to be taken to a Lithuanian restaurant. Hosts want to share what's theirs, and choosing to do so is a quiet invitation into shared identity. Dishes like cepelinai (potato dumplings filled with meat, curd, or mushrooms) or cold beet soup signal pride in local traditions. Trying these foods and expressing genuine appreciation, without overplaying the gesture, is received well. Black rye bread appears often, sometimes as an appetizer, and its presence is part of the rhythm of the meal. International cuisine is available in cities like Vilnius, but defaulting to it may come across as a missed opportunity.
+
+Lithuanians are often comfortable with drinking, and it's not unusual for shots to be offered before or during the meal. Midus, a mild honey-based spirit, may appear toward the end. Pace yourself. What feels convivial on the Lithuanian side can quickly become uncomfortable for colleagues from cultures with lighter drinking norms, and declining politely after the first round is generally understood. Seasonal moments, especially around midsummer, can shape availability and the emotional tone of gatherings, with communal feasting and ritual foods marking occasions that feel distinctly Lithuanian.

@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Bosnia and Herzegovina is layered with both formality and informality, shaped by a recent history of state socialism and the continuing influence of ethnic partition. Managers typically hold clear authority and make final decisions, but this does not mean they rule without consultation. Input is often sought, particularly from trusted colleagues or those with technical expertise, though the decision itself remains with the person in charge. This consultative pattern reflects a workplace culture where hierarchy is real but rarely rigid, and where relationships often determine how decisions are communicated and implemented.
+
+The way authority is exercised can vary considerably by entity, sector, and generation. In public institutions and traditionally structured companies, especially in Republika Srpska or more rural settings, leadership tends to be more formal and top-down. In Sarajevo's private sector or international firms, styles are often more flexible, with younger managers more comfortable delegating or inviting debate. Yet even in these environments, deference to seniority and role is expected, and openly challenging a manager in front of others would be seen as disrespectful rather than direct.
+
+For colleagues from cultures where consultation means shared decision-making, this style can feel opaque or symbolic. A manager may ask for views but proceed with the original plan, which can read as disengagement. From a Bosnian perspective, the act of asking is itself meaningful. It acknowledges contribution, maintains group cohesion, and allows authority to be exercised without alienating others. The consultation is relational, not procedural. If you want your input to influence the outcome, frame it privately and align it with the manager's priorities rather than presenting it as a challenge in a meeting.

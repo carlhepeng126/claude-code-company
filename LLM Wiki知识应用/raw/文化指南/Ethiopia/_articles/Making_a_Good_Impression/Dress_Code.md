@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional dress in Ethiopia reflects a deep respect for religious and social modesty that crosses both Orthodox Christian and Muslim communities. In most office settings, covered shoulders and non-clingy clothing are the baseline. A woman wearing a very tight dress or a man in shorts inside a business compound will draw unwelcome attention. For international colleagues from contexts where casual or body-skimming cuts are standard professional wear, this can feel unexpectedly formal. From the Ethiopian side, revealing or overly casual clothing can read as a lack of respect for the setting, particularly when dealing with government offices, traditional industries, or older colleagues.
+
+Practicality and presentation go hand in hand in Addis Ababa. You will often see officials in Western suits with slightly dusty shoes, a result of navigating unpaved compounds or construction zones. People notice if you have made an effort to look smart despite these conditions. An over-pristine outfit that clearly cannot survive a muddy compound or highland dust can look naive rather than professional. When packing, choose clothes that are both respectful and durable: fabrics that keep their shape, shoes that can handle uneven ground, and layers for the cool mornings that come with altitude.
+
+Cultural dress appears regularly during holidays like Meskel, Timkat, or Enkutatash. Many people wear traditional garments such as the habesha kemis, netela (a light cotton shawl), or gabi (a heavier wrap). Turning up to a semi-formal holiday event in loud Western party clothes can feel tone-deaf. If invited to such an occasion, asking whether it would be appropriate to wear a netela or local scarf is a gesture that bridges the gap between visitor and participant.

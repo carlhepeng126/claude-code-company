@@ -1,0 +1,11 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals in Russia follow a structure that reflects a broader cultural grammar of hospitality. Whether in a restaurant or at a festive table, the meal often begins with *zakuski* (small appetizers served communally), followed by heavier dishes, with conversation and toasts threaded throughout. This architecture allows social comfort to build gradually. The meal is as much about creating shared experience as it is about food. If you treat the occasion purely as a chance to advance business quickly, you risk signaling that the relationship itself holds little value. Instead, engage with the rhythm: share from communal plates, participate in toasts even if you're not drinking alcohol, and allow the conversation to move at its own pace.
+
+Toasting is more than ritual. It offers moments to acknowledge respect, mark progress, or simply affirm the occasion. Even if you don't drink, raising a glass and joining in shows you understand the gesture's social function. Many Russians don't drink alcohol for health, religious, or personal reasons, so non-alcoholic participation is entirely normal. The key is to engage, not decline entirely without explanation.
+
+The Russian cultural calendar shapes availability and social mood. The New Year period extends well into early January, anchored by public holidays and Orthodox Christmas. This stretch functions as a major pause for family time and gatherings. Avoid scheduling business meals during this window, and don't assume normal tempo resumes immediately afterward. Seasonal markers like Maslenitsa, marked by *blini* (pancakes) and communal festivities, also shape when and how people gather.
+
+Russia's diversity means not everyone celebrates the same calendar or observes the same customs. Offer options gracefully, follow your counterparts' lead on food and drink, and respect varied practice without making assumptions. The shared thread is attentive hosting and respectful participation, and both are read as signs of whether trust can grow.

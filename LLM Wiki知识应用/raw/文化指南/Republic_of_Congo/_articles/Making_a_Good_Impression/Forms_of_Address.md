@@ -1,0 +1,11 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Formal modes of address in the Republic of Congo reflect two overlapping systems of respect: French colonial formality and older Bantu traditions that honor seniority and lineage. Both demand careful attention to hierarchy. Titles and surnames remain standard until a colleague explicitly invites first-name use, which is rare in professional settings. "Monsieur" and "Madame" should be used consistently, and senior figures such as government officials or professionals with qualifying degrees (doctor, lawyer, engineer) are addressed by title. When speaking French, stick with the formal vous unless invited to shift to tu, which seldom happens at work.
+
+This formality stems from the hierarchical structure of the pre-colonial Kingdom of Kongo, a sophisticated state with established protocols for rank and authority. Respect for position has deep roots and predates European influence. French colonial administration then added another layer of protocol. Together, these traditions create a social architecture where titles serve as markers of both professional standing and moral worth. Moving to informal address too quickly misreads the relationship and the weight attached to status.
+
+Authority does not always follow job titles on the organizational chart. Among the Bakongo, the Republic of Congo's largest ethnic group, the maternal uncle holds higher standing than the father in matters of authority. Clan and lineage-based roles can sit outside formal structures, which means the decision-maker in a meeting may not be the most senior person by title. Pay attention to who defers to whom, and to where real influence lies. This is especially relevant when trying to understand who needs to be consulted or whose approval will actually move a decision forward.
+
+Greetings begin with a handshake and an inquiry about the health and well-being of the other person's family. Polite compliments are welcome, but avoid overstated praise. Elders are given particular deference, and this respect extends to any setting where age and experience align.

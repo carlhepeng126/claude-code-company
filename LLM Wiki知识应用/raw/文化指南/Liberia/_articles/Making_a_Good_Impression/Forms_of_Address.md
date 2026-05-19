@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In many Liberian settings, elders hold a particular kind of authority as stabilisers and moral reference points, and how you address someone reflects whether you recognise that social architecture. Age difference often shapes the register, and starting with a respectful title acknowledges the weight that experience brings. In practice, this means using "Mr" or "Ms" with a surname, or professional titles such as "Doctor," "Reverend," or "Minister" when they apply, until the other person signals a shift. Community titles like "Chief" or "Elder" hold particular legitimacy in local and rural settings, and ignoring them can read as misunderstanding who holds influence outside institutional structures.
+
+Kin terms are often used to create respectful closeness even where no literal family tie exists. "Aunty," "Uncle," "Ma," or "Pa" may be used with older colleagues or community figures, while "my brother" or "my sister" can signal warmth between peers. These are gestures of inclusion, and they work especially well across generational lines. A colleague from a culture where formality is maintained longer may read this familiarity as premature, while someone from Liberia may read sustained formality as distance or unwillingness to build trust.
+
+People may shift between Kolokwa, Liberian Kreyol, and formal English depending on setting and relationship. Kolokwa often carries intimacy and everyday realism, while formal English tends to be used in institutional or hierarchical contexts. Matching register when appropriate can reduce stiffness, but the cue to shift usually comes from the other person's tone, language choice, or use of a kin term. Waiting for that signal, rather than imposing familiarity too early, is how rapport is built without misreading the social map.

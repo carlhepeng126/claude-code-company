@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hosting in the Philippines reflects a broader social logic in which care is a visible, collective act. Guests are often folded into a protective circle that extends well beyond the household, mirroring kinship networks where godparents, extended family, and close friends move fluidly between formal and informal roles. A host's attentiveness goes beyond making someone comfortable. It also involves shielding them from embarrassment, ensuring they are never singled out or left uncertain. This attention to dignity, shaped by the cultural concept of *hiya* (a sense of propriety and concern for social face), means that a good host anticipates needs quietly, offers choices rather than direct questions, and avoids placing a guest in a position where refusal might cause awkwardness.
+
+As a guest, showing clear appreciation for the effort involved is expected. Arriving slightly after the stated time, around fifteen to twenty minutes, signals respect rather than carelessness. It gives the host room to finalise preparations without feeling rushed. If you have dietary or religious requirements, communicate them early and with gratitude, framing them in a way that lets the host accommodate you smoothly. Praising the home or hospitality is safer than overpraising specific dishes, particularly in wealthier households where food may have been prepared by staff.
+
+Regional and religious variation affects what feels appropriate. Hosting norms in Muslim communities in Mindanao, for example, may differ from those in Metro Manila, particularly around dress, timing, and ritual observance. As a host, offer flexibility and let guests guide what feels right. Small check-ins and clear directions help people settle without drawing attention to difference. The goal is inclusion that does not require explanation.

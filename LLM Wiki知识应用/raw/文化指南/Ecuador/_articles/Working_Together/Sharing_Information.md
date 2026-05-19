@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+In Ecuador, information moves most easily along lines of personal connection. Colleagues are more likely to share openly with people they know well and trust, especially within their own team or department. This loyalty to the immediate group means that updates, context, or useful detail often stay local rather than circulating widely across the organization. The reluctance to share beyond close circles reflects a protective instinct rooted in relationship-based work culture, where personal reputation and group harmony take precedence over broad transparency. If you need input from another area, going through a mutual contact or building a direct relationship first will yield better results than simply sending a formal request.
+
+Ecuadorians also tend to protect each other from embarrassment or conflict. Sharing a problem or mistake openly, especially in a group setting, risks exposing a colleague or creating tension that could disrupt relationships. As a result, sensitive information may be shared privately or withheld altogether. A manager from a culture where issues are flagged early and publicly may interpret this as evasion or lack of accountability. From the Ecuadorian perspective, however, discretion shows respect and preserves dignity. If you want honest feedback, create low-risk opportunities for it, such as one-on-one conversations or informal settings outside the office.
+
+Once trust is established, information flows more freely. Ecuadorians value reciprocity and respond well to colleagues who listen carefully, follow through on commitments, and demonstrate genuine interest in the relationship, not just the transaction. Reliability over time earns access to the knowledge that formal channels may never surface.

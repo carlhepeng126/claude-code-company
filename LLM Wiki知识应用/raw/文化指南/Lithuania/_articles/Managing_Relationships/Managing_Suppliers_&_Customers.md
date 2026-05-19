@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Trust in Lithuania grows through what might be called quiet exactness. Say what you can do, then do it without fanfare. Over-promising can read as unserious or even manipulative, while underselling and then delivering solidly builds credibility over time. A supplier who consistently meets a modest deadline earns more respect than one who offers an ambitious schedule and misses it. This preference for restraint reflects a deeper cultural assumption: reliability is more persuasive than enthusiasm.
+
+Reputation travels in ways that can surprise international partners. Lithuania is a small, densely networked society where professional circles, school ties, and hometown connections overlap in unexpected ways. Even without formal introductions, your track record may already be known or quickly discovered. This means a single unreliable delivery or unresolved complaint can become a story that shapes perception across multiple relationships. Long-term partnerships strengthen fastest when you build a pattern of realistic commitments and consistent follow-through, rather than relying on one impressive proposal.
+
+Context varies more than the country's size might suggest. Vilnius operates at an international pace, often in English, with faster decision cycles and more task-focused exchange. Regional settings can feel more personal, where accountability is tied to reputation within a known community. Borderland areas around Vilnius may bring added sensitivity to identity and language choice, while towns like Visaginas, built during the Soviet period, retain distinct linguistic and social norms. Calibrating your tone and communication style to the specific micro-context you are working in will avoid misunderstandings and signal respect for local realities.

@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Andorra's small size and tight-knit professional networks shape a culture of address that blends formality with familiarity. In initial business meetings, titles and surnames are standard. Use "Senyor" (Mr.) or "Senyora" (Mrs.) with the last name, or professional titles such as "Doctor" or "Enginyer" (Engineer) where applicable. This formality reflects a respect for role and position that remains important even in a country where people often know one another through overlapping circles of family, work, and civic life. The shift to first names usually happens quickly once a working relationship is established, but wait for your counterpart to signal the change rather than assuming it from the start.
+
+Written communication follows a more formal register than face-to-face exchange. Email openings such as "Benvolgut Senyor" or "Estimat Senyor" (Dear Mr.) and closings like "Atentament" (Sincerely) are expected, particularly in early correspondence or when addressing senior figures. This formality does not fade as quickly in writing as it does in conversation, so err on the side of structure even after you have moved to first names in person.
+
+Handshakes are common in business settings and are typically brief and firm. Among colleagues who know each other well, a kiss on both cheeks may replace or follow the handshake, especially in smaller firms or family-run businesses where personal and professional relationships overlap. If you are uncertain, follow the lead of your Andorran counterpart and match the level of warmth they offer.

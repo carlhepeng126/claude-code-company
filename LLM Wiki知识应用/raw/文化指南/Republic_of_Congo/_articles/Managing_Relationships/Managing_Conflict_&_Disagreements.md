@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Preserving dignity shapes how disagreement is handled in the Republic of Congo. If a colleague suddenly falls silent or stops greeting you, it often means something has caused offense. Because relationships take precedence over rules, the response is rarely direct confrontation. Instead, people step back, allowing space for the issue to be resolved without public embarrassment. If you notice a shift in someone's manner toward you, acknowledge it by adjusting your approach or changing the subject rather than pressing for an immediate explanation.
+
+Criticism should never be delivered in front of others. Public reprimand damages face in ways that can rupture working relationships, particularly where networks of kinship and tribal connection operate beneath the surface. These loyalties are real and consequential. A perceived slight to one person may affect how an entire group responds to you. If you need to address poor performance, do so privately and with care. Managers from cultures where feedback is expected to be direct and fast may find this approach slow, while Congolese colleagues working with someone who gives blunt corrections may see it as disrespectful and poorly judged.
+
+When a problem involves a team or two individuals, using a respected intermediary, someone senior in age and experience, can resolve the issue more effectively than a face-to-face exchange. This allows both parties to retain dignity while the matter is quietly addressed. Passive responses from a group may signal collective dissatisfaction rather than individual resistance. If you announce consequences for behavior, follow through. Inconsistency will be read as weakness and undermines your authority in a context where hierarchies are clear and expected to function.

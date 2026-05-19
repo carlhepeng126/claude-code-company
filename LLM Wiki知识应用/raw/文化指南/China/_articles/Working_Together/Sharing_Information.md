@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information moves carefully in Chinese workplaces, shaped by hierarchy, formality, and a preference for clarity over spontaneity. Sensitive views or dissenting opinions are more likely to surface in one-on-one conversations than during group meetings, where preserving collective harmony and respecting seniority guide what gets said aloud. A colleague who stays quiet in front of the full team may share candid thoughts privately afterwards, once the risk of public disagreement has passed. This means that silence during a meeting should not be read as consensus. Follow up individually to surface real concerns and build understanding.
+
+Who delivers the information affects how seriously it is received. A message introduced by a manager or recognized expert will be taken more seriously than the same point raised by a peer, regardless of the evidence behind it. When presenting ideas or updates to Chinese colleagues, consider routing key information through someone senior or respected, or framing your contribution in a way that aligns with input from established voices. Structured, data-backed reports are valued over informal verbal updates. Preparation signals professionalism, and loose or impromptu briefings may be seen as careless or unpersuasive.
+
+A practical focus runs through most exchanges. Information is judged by its link to measurable outcomes such as KPIs, client impact, or project milestones, rather than its theoretical interest. Abstract proposals without clear application may struggle to gain traction. Written follow-ups reinforce what was discussed verbally, and tools like WeChat allow quick clarification and confirmation after meetings. Economy of language is respected. Over-explaining can weaken your position, while a concise, well-formatted message backed by evidence lets the structure itself convey authority.

@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information flows through trusted relationships in Cameroon, and those relationships take time to build. The country's colonial and postcolonial history has fostered a preference for personal networks over formal channels. Many Cameroonians have learned to rely on people they know well rather than institutional systems, which are sometimes seen as unreliable or politically influenced. This means colleagues may hold back details in early meetings, not out of secrecy but because trust has not yet been established. Once that foundation exists, exchanges become fuller and more candid.
+
+Within organizations, information often stays within specific teams or departments rather than circulating widely. This reflects a desire to protect dignity and avoid exposing errors or incomplete work. Public mistakes can affect personal reputation and standing, so sharing unfinished details or admitting uncertainty feels risky. A colleague from a culture where early-stage brainstorming is routine might interpret this withholding as evasion, while a Cameroonian counterpart may read that openness as reckless or naive. Demonstrating reliability, showing discretion with sensitive material, and offering reciprocal information help build the credibility that encourages more open sharing.
+
+Personal introductions accelerate this process considerably. A recommendation from someone already trusted gives you immediate standing. Without that connection, expect to invest more time in informal conversation, follow-through on small commitments, and repeated interactions before access to deeper knowledge becomes natural. Regional variation also plays a role. Urban professionals in Douala or Yaoundé, especially in international firms, may share more freely across hierarchies and departments than colleagues in smaller towns or family-run businesses, where personal networks remain the dominant channel.

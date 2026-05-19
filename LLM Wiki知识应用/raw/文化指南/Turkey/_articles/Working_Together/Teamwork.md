@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Closeness in Turkish teams often builds through shared work rather than structured activities. Once people tackle tasks together, you see colleagues checking in, sharing information informally, and stepping up when deadlines tighten. Loyalty strengthens through consistency in these moments, not declarations. The degree of social warmth varies by workplace and industry, so watch how people interact and follow that rhythm rather than imposing a style from elsewhere.
+
+Role clarity and how hierarchy plays out can shift noticeably between settings. More traditional or family-run companies tend to value clear roles and visible leadership, where seniority guides decisions and access. International firms often lean more collaborative, with flatter structures and less visible boundaries. Either way, clarify ownership and decision rights early in a project. Titles and seniority matter, but how they shape daily work differs across organizations. A colleague from a culture where flat structures dominate might read deference to a senior figure as rigidity, while Turkish team members may view bypassing a direct manager as disrespectful or disruptive to group trust.
+
+People generally raise issues and ideas first within their immediate group or with a direct manager. Access to senior leadership can be limited, especially in more hierarchical organizations, so build strong working relationships with day-to-day leads and make it easy to surface concerns early. Managers earn loyalty by being fair, consistent, and attentive to workloads. Small habits like sharing context, responding promptly, and acknowledging effort strengthen commitment where trust and rapport shape how work gets done.

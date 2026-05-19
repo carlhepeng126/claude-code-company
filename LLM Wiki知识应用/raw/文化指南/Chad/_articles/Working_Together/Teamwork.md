@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Chad centres on networks built through kinship, ethnic affinity, and personal loyalty rather than on purely functional roles. People collaborate more fluidly when they trust the individuals involved, and that trust often develops through shared background or relationships established outside the office. A colleague from a culture where teams form around task and skill may find this relational foundation unclear or exclusive at first, while a Chadian team member may read rapid task-focused collaboration as impersonal or premature when relationships have not yet been established.
+
+Hierarchy shapes how teams function. Senior figures hold authority and younger or junior members typically defer to their guidance, even when they hold expertise. In practice, this means that decisions are often confirmed by the most senior person present, and input from others may be offered indirectly or privately rather than openly in a group setting. If you want a team to move forward on something, ensure the most senior member is consulted early and visibly aligned.
+
+The concept of a team itself can be fluid. In many settings, collaboration is less about fixed roles and more about who is available and connected at a given moment. This can mean that the same group may not reconvene in the same form for the next task, or that responsibilities shift without formal handover. Clarity around who is doing what, and when, should be confirmed more than once and restated as work progresses, especially in cross-cultural teams where assumptions about continuity differ.

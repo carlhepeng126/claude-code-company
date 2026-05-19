@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiating in Luxembourg draws on a national history in which compromise has repeatedly secured the country's survival. The 1867 Treaty of London, which declared Luxembourg neutral and dismantled the fortress, embedded a cultural logic where durable outcomes come from careful settlement rather than decisive victories. That lineage shows up in how deals are structured today: proposals that outline mechanisms, safeguards, and workable steps tend to land better than sweeping promises. The Schengen agreements, signed on Luxembourg soil, are a source of local pride and reinforce the taste for detailed arrangements that work in practice, not just on paper. If you want traction, show the architecture of the agreement, not just the headline.
+
+Because Luxembourg operates across three languages with distinct formal roles—French for legal matters, German for administration, Luxembourgish for identity—exact wording becomes culturally salient. People notice how terms land in each register, and precision in definitions is rarely pedantic; it reflects the multilingual reality of getting meaning to hold. A colleague from a culture where verbal agreements suffice may find the attention to language exhaustive, while Luxembourgers may read a loose summary as a sign that the details have not been thought through.
+
+The financial sector's emphasis on stability, investor protection, and rigorous compliance has shaped what feels credible beyond finance itself: commitments that are clearly bounded, risk-managed, and backed by process. Impatience will cost you respect. Negotiators here expect a calm, sequential approach that works through each point in turn, and stalling points are usually resolved through open discussion and logic rather than pressure. The goal is a solution both sides can live with, and that means leaving room to adjust without drama.

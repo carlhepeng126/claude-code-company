@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+In many Brazilian workplaces, information flows most naturally through conversation and trusted relationships rather than formal channels or written documentation. This preference reflects a long-standing oral tradition and the relational texture of professional life. A colleague may hold back in a meeting but share a concern over coffee, or wait until a bond is established before raising something sensitive. The reason is straightforward: relationships determine where information goes. Trust unlocks candor, and without it, people protect what they know.
+
+Hierarchy shapes the flow as well. Feedback that travels upward often arrives softened, even when the issue is serious. Raising a problem bluntly with a senior colleague can feel like risking the relationship or causing embarrassment, so people may hint, speak in general terms, or wait for a private moment. A manager from a culture where direct, upfront input is expected may hear only agreement in a group setting and assume consensus, while team members have quietly decided to address their doubts elsewhere. Meanwhile, a Brazilian colleague working in a culture where concerns are raised in writing and on record may find the process impersonal and wonder why trust seems absent.
+
+Younger professionals and those in corporate or technology sectors are more comfortable documenting decisions and sharing across teams, but relational instincts still shape how sensitive topics surface. Making it clear what information is needed, how it will be used, and that raising concerns will be received calmly helps people speak more openly. Creating informal opportunities to talk, and showing that input leads to action rather than blame, builds the trust that allows information to move freely.

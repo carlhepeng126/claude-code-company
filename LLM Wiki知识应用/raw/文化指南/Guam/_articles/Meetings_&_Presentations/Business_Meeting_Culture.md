@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Guam are often arranged informally, and it's common to receive invitations with relatively short notice. This reflects the island's small, interconnected professional community where relationships already exist or develop quickly. That said, more formal planning is becoming expected in government and larger organizations, especially when international partners are involved. Confirming details ahead of time shows respect and helps ensure the right people are in the room.
+
+Building rapport comes first. Expect the opening minutes to focus on personal connection, often through stories about family, island life, or shared acquaintances. This time establishes trust and signals that you see the person, not just the transaction. Rushing straight into the agenda can come across as transactional and may slow progress later. Once the meeting begins, the tone remains warm but purposeful. Chamorro cultural values encourage collaboration and avoiding open conflict, so disagreement is rarely stated directly. If concerns exist, they may be raised gently or held back until a private conversation. A colleague accustomed to explicit debate in meetings might interpret this as agreement, while someone from Guam might read directness as disrespectful or unnecessarily confrontational.
+
+Decisions are rarely made on the spot. Senior leaders prefer to consult with their teams or consider input from extended networks before committing. Following up in person or by phone, rather than relying only on email, reinforces the relationship and keeps momentum going without appearing pushy.

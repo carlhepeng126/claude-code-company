@@ -1,0 +1,11 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Mozambique is shaped by the knowledge that public exposure of mistakes can affect someone's standing in ways that linger well beyond the workplace. In communities where networks are dense and interdependent, respectability functions as social capital. Being corrected in front of colleagues can damage how someone is seen not only at work but also in the neighborhood, the church, or the family network. For this reason, feedback that protects dignity and avoids public embarrassment tends to be heard more readily and acted on more fully.
+
+Privacy becomes even more meaningful in contexts where initiation-linked cultural norms remain socially active. In these settings, boundaries around what can be said publicly versus privately are understood and enforced. What might seem like routine feedback in one setting can be received as humiliating exposure in another. Managers should assume that one-on-one conversations, preferably in a neutral space and framed with care, will allow the person receiving feedback to engage without the added burden of managing their public image at the same time.
+
+Authority also matters, but it does not always flow from job titles alone. Legitimacy can come from elder standing, religious or moral authority, or from long-standing relationships within a community. In some settings, feedback from someone perceived as an institutional outsider may be weighed differently than guidance from a respected elder or someone rooted in the same social or regional network. Understanding where you stand in this structure can help you deliver feedback in a way that resonates.
+
+In areas affected by conflict or displacement, including parts of Cabo Delgado, caution around admitting uncertainty or mistakes can be self-protection. People may avoid vulnerability in settings where safety and reputation are already at risk. Building trust before introducing developmental feedback is not a formality. It is the foundation that makes openness possible.

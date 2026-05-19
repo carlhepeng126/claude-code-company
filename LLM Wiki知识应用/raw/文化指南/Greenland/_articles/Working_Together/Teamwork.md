@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Greenland is shaped by a social ethic that prizes contribution without display. Teams function best when participation is invited rather than demanded, and when roles are clear but flexibly interpreted. This reflects a deeper cultural current: standing out individually can create discomfort, both for the person singled out and for the group. Collaboration works through steady presence and shared responsibility, where trust builds quietly over time and hierarchy is softer than formal titles suggest.
+
+In practice, this means team members may hold back from asserting ideas early, especially in mixed or newly formed groups. The instinct is to let discussion develop before contributing. A colleague from a culture where early input and vocal engagement are expected might read this as disengagement or lack of initiative. From a Greenlandic perspective, the same colleague's immediate assertiveness can feel rushed or self-promoting, particularly if it comes before relationships have had time to settle. Allowing space for quieter contributors and avoiding early pressure to speak will support fuller participation.
+
+Praise directed at individuals can feel uncomfortable and may even undermine group cohesion. Recognize contributions in ways that acknowledge the team, and give feedback privately when performance needs to be addressed. Public critique risks damaging trust in ways that take considerable time to repair. Team building that emphasizes shared meals, storytelling, or time spent together in natural settings tends to resonate more than structured exercises designed around competition or performance.

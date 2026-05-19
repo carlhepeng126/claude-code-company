@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Tonga is shaped by deep respect for social hierarchy and the need to protect personal dignity within a tightly connected community. Direct criticism, especially in front of others, risks causing shame that can ripple through family networks and damage working relationships in ways that are difficult to repair. Managers and senior colleagues prefer to offer guidance indirectly, often through gentle suggestions, questions that invite reflection, or even humor that softens the message. A supervisor might say, "I wonder if there's another way we could approach this," rather than pointing out an error outright. This allows the person receiving feedback to save face while still understanding what needs to change.
+
+Praise is also given carefully. Public recognition can single someone out in a way that feels uncomfortable in a culture where group harmony and collective achievement are valued over individual distinction. Acknowledging someone's contribution privately, or framing it as part of the team's success, tends to feel more appropriate. For a colleague from a culture where public praise is routine and expected, this restraint might read as lack of acknowledgment. From a Tongan perspective, the same public praise might feel awkward or even embarrassing, drawing unwanted attention.
+
+Coaching conversations often unfold over time and through trusted relationships rather than in formal one-on-one sessions. Family and community elders may also play a role in how feedback is received and acted upon, particularly for younger professionals. Change happens through consensus and social alignment, not through isolated exchanges between manager and employee.

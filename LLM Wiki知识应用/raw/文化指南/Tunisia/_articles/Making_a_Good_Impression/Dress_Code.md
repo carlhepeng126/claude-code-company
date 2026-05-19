@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Professional appearance in Tunisia reflects both Mediterranean style and Islamic norms of modesty. In urban business centers, you'll find tailored suits, neat grooming, and European-influenced fashion. Men typically wear suits in conservative colors with polished shoes, while women choose business suits or dresses that cover the arms and fall below the knee. The look aims for elegance and restraint rather than bold statement or trend. This is less about religious observance and more about what professionalism looks like in a culture where seriousness is conveyed through presentation.
+
+The standard shifts across settings. In government offices or public institutions, formality runs higher and modesty expectations are stronger. In newer sectors or private enterprises, business attire remains smart but may allow more contemporary styling. Even where dress codes relax slightly, polished presentation still counts. Arriving well put-together shows you take the relationship seriously, and colleagues read carelessness in appearance as carelessness in approach.
+
+Tunisia's hot summers and mild winters influence fabric choices but not the overall formality. Lightweight materials are practical, but shorts, sleeveless tops, or beachwear remain out of place in professional or traditional settings. In more conservative or rural areas, modest adjustments to your usual business wardrobe will go unnoticed in themselves, but their absence may create distance. A colleague accustomed to separating personal expression from professional dress may find this level of attention to appearance rigid, while Tunisian counterparts may read a casual approach as lack of investment in the partnership.

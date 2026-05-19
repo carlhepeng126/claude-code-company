@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Building professional contacts in Equatorial Guinea depends on personal networks and formal channels shaped by the country's small, tightly connected business environment. Oil and gas companies and government ministries dominate the formal economy, and access to decision-makers often comes through someone already known to them. A direct introduction from a mutual contact, whether a colleague, business partner, or family connection, opens doors more reliably than a cold email or call. This reflects a context where trust is built through proximity and shared ties, and where hierarchy and personal reputation influence who gets a hearing.
+
+Scheduling meetings requires advance notice and flexibility. It's common to arrange appointments a week or two ahead, particularly with senior figures whose schedules are unpredictable. Confirm by phone or message a day or two before. Meetings may start later than planned or be interrupted by other commitments, and priorities can shift quickly depending on who else needs attention. A colleague from a culture where punctuality and fixed agendas are expected may find this unsettling, while someone from Equatorial Guinea might see a rigidly timed meeting as impersonal or rushed.
+
+In Malabo and Bata, where most business activity is concentrated, professionals are more accustomed to formal scheduling and digital communication. In smaller towns or rural areas, personal introductions and face-to-face contact remain the norm. Younger professionals, especially those with international experience, may be comfortable moving quickly to business topics, but even then, the opening moments of a meeting are often reserved for courtesies and relationship building before work begins.

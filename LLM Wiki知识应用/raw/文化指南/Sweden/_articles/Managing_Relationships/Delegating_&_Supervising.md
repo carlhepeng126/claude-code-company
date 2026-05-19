@@ -1,0 +1,9 @@
+# Delegating & Supervising
+
+## Managing Relationships
+
+In Sweden, a manager's authority comes from facilitating good work, not from holding rank. Centuries of Lutheran egalitarianism and a post-war social model that deliberately flattened class distinctions have shaped a workplace culture where visible status-seeking or pulling rank undermine credibility. The concept of jantelagen, roughly "don't think you're better than anyone else," runs deep. The result is that Swedish managers see their role as removing obstacles and enabling employees, who are expected to be self-managing and take ownership of their work without waiting to be told what to do. Instructions are framed as invitations, and employees who need clarity are expected to speak up rather than remain passive.
+
+Lagom, meaning "just the right amount," shapes how supervision is exercised. Too much oversight feels like distrust, too little like abandonment. Direction is set clearly at the outset, then the manager steps back. Regular check-ins on progress can read as micromanagement in a culture where professional autonomy is a given. A manager from a culture where frequent updates signal engagement may be seen as overbearing, while a Swedish manager's restraint might be read elsewhere as disengagement or lack of interest.
+
+Decisions are made through genuine consensus, with input sought from all relevant stakeholders before anything lands. This takes time, but it produces strong commitment because everyone has already contributed and understands the outcome. Changing a decision after this consultative process has run its course is seen as disrespectful to the group's effort. For someone used to faster, top-down decisions, the pace can feel slow, but the implementation is typically smoother because buy-in was built in from the start.

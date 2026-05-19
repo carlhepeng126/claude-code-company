@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Danish hospitality runs on participation, not pampering. When a host sets food on the table and says "Værsgo'" (help yourself), the expectation is that you will serve yourself modestly and contribute to the rhythm of the meal. Guests are often handed a bottle of wine to pour, asked to light candles, or invited into the kitchen to help clear plates. Staying seated while others move around the table can read as disengaged or entitled. This reflects a broader Danish preference for shared responsibility over hierarchy. A colleague from a culture where hosting means anticipating every guest need may find this approach confusing or even inhospitable, while a Danish host may view elaborate service as unnecessarily formal or status-driven.
+
+Conversation can cover politics, the environment, or parenting, but typically in a measured tone. Oversharing or extended emotional monologues can make the group pull back. Danes value openness, but within a frame of restraint. Share something real about yourself, but avoid dramatic peaks or highly personal confessions unless the relationship is already close. For someone from a culture where warmth is expressed through storytelling and expressive detail, this can feel flat. In return, Danes may read high emotion as overwhelming or performative.
+
+Take reasonable portions and go back for seconds if encouraged. Commenting endlessly on dietary restrictions or treating food choices as a statement can disrupt the informal atmosphere Danes associate with hygge. If you are invited to someone's home, arrive on time and bring flowers, chocolate, or wine. Dinner parties can run late, and leaving while others are still seated at the table is considered abrupt.

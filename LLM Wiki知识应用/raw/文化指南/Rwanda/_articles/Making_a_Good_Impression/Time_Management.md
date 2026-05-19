@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Rwanda's calendar includes collective rhythms that shape availability and work life throughout the year. Umuganda, the monthly community work day enshrined in law, takes place on the last Saturday morning of each month and brings normal routines to a standstill. Scheduling key meetings or events during these hours will fail. The national commemoration period that begins with Kwibuka on 7 April and extends through early July also shapes the tone of public and professional life. This is a time of reflection and remembrance, and decisions about what feels socially appropriate during these weeks reflect the weight the period holds. Check calendars for these dates before proposing timelines or travel.
+
+In professional settings, punctuality is increasingly expected and treated as a sign of respect rather than mere efficiency. Arriving on time and prepared signals that you take the relationship seriously. Delays do happen, but when they do, communicate clearly and calmly rather than offering lengthy justifications. Confirming and reconfirming meeting details in advance reduces ambiguity and prevents the kind of confusion that can lead to loss of face on either side. Share agendas, times, and locations plainly, especially early in a working relationship.
+
+Where dignity and social safety matter, people may prioritize careful consensus over speed. This is especially true in the early stages of collaboration, when trust is still being built. Allow time for reflection and internal coordination rather than expecting immediate decisions. Building in breathing room for alignment shows that you understand the process, not that you are lowering standards.

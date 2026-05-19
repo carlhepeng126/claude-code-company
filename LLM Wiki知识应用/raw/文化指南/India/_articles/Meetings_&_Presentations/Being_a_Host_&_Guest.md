@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+Hospitality in India is anchored in the principle of *Atithi Devo Bhava* (guest as god), a phrase many grow up hearing and practicing. The idea is that guests are honored visitors who deserve generosity, comfort and care, sometimes to levels that can feel extravagant. This extends into professional life: a colleague hosting a visitor may arrange transport, repeatedly offer tea or snacks, and check in on comfort throughout the day. Refusing too directly can feel like rejecting the relationship itself, so hosts often repeat offers until they are accepted. A polite way through this as a guest is to soften your response, saying something like "I will have a little now" rather than a flat no. Accepting at least some of what is offered shows you recognize the care being extended.
+
+As a host, the same generosity is expected. Send confirmations, plan more food than you think you will need, and be prepared for guests to bring others along. Buffets work well because dietary variation is significant: some colleagues may avoid meat entirely, others will not eat beef or pork, and many do not drink alcohol. Label vegetarian dishes clearly and keep them separate from meat. When offering drinks, phrase the question so that choosing something non-alcoholic feels easy and neutral.
+
+Small gestures carry meaning. Remove your shoes before entering a home, and notice where family photos or prayer spaces are kept. These are treated with respect, and observing the norms quietly builds rapport. When bringing a gift, choose something shareable like sweets (*mithai*), fruit or home items, and avoid anything that might conflict with religious or ethical beliefs, such as beef products or leather for some Jains. Hospitality is reciprocal: expressing thanks is expected, but so is the offer to return the invitation, even if the timing is vague. It signals that the bond is valued and ongoing.

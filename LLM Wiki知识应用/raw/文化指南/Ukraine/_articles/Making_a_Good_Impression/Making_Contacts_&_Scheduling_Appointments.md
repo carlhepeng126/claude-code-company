@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Trust forms through people, not pitches. Ukraine's history of tight-knit village networks and decades of navigating uncertainty have left a lasting imprint on how professional relationships begin. A warm introduction from a trusted colleague, industry contact, or business association opens doors more reliably than any cold outreach. This is especially true outside major cities, where family reputation and reciprocal networks still shape how new contacts are assessed. In practice, this means asking a mutual connection to make an introduction rather than emailing a stranger directly, and allowing time for that relational groundwork to settle before pushing toward a formal meeting.
+
+Urban professionals in Kyiv, Lviv, and Kharkiv move quickly and are comfortable with LinkedIn, Telegram, and Viber. They expect clear, direct communication and appreciate when you state your purpose upfront without unnecessary formality. That directness should come with sincerity, though. Historical struggles have sharpened expectations around dignity and respect, so language that feels patronizing or overly transactional will close conversations before they start. If you're unclear on local conventions or unsure how to position yourself, working with a local partner or adviser can smooth introductions and help confirm the credibility of new contacts.
+
+Book meetings at least a week ahead, and avoid Orthodox Easter, Christmas, and key commemorative dates when availability drops sharply. Schedules can shift at short notice, so build in buffer time and stay flexible. Meetings typically start on time, and punctuality signals reliability. If you're delayed, send a quick message. Follow up afterward with a brief, specific note referencing something from the conversation. These gestures reinforce commitment and keep the relationship alive between meetings.

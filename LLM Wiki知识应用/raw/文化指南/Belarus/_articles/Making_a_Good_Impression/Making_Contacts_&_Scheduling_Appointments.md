@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Belarus, making business contacts relies heavily on existing networks and personal introductions. Trust develops slowly in a professional culture shaped by decades of state oversight and economic uncertainty. People prefer to work with those who come recommended by someone they already know. Cold outreach is possible, but it rarely moves quickly. A warm introduction from a mutual connection, whether a colleague, former classmate, or family member, shortens the distance considerably. If you're arranging your first meeting in Belarus, ask whether anyone in your network can make a personal introduction. That small step can shift you from unknown outsider to credible contact.
+
+Appointments should be scheduled at least one to two weeks in advance, ideally by email or phone. Confirming the day before is standard practice. Punctuality varies by context. In government ministries and state enterprises, meetings may start late or be rescheduled at short notice due to shifting priorities or last-minute instructions from senior officials. In private companies, especially those with international exposure, timing tends to be more predictable. Either way, build buffer time into your schedule and avoid tightly stacked appointments.
+
+Belarusians generally value structure and formality in initial professional exchanges. Meetings are taken seriously, and impromptu drop-ins are uncommon unless the relationship is already well established. For a colleague from a culture where informal check-ins and flexible scheduling are the norm, this may feel overly rigid. From the Belarusian side, unannounced visits or last-minute meeting requests can seem presumptuous or poorly prepared. Respecting the process and giving people time to arrange their commitments shows professionalism and earns goodwill in return.

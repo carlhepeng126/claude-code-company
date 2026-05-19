@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiation in Malawi rests on trust built through credible connections. Historically, trade along lake and caravan routes moved through reputational chains and intermediaries, with places like Nkhotakota serving as nodes in nineteenth-century networks. That legacy means negotiation today still flows more naturally through trusted introducers than purely direct bargaining. If you want to accelerate a discussion, involve someone who can vouch for you. Their endorsement shortens the path to serious conversation because it carries historical and relational resonance.
+
+uMunthu, the principle of shared humanity, shapes what counts as a fair outcome. Agreements aim to preserve dignity and relationship continuity, so pushing for a one-sided win risks damaging not just the deal but the possibility of future collaboration. Haggling is expected and culturally familiar, but it unfolds within a relational frame. Your counterpart may say yes to preserve the conversation when they mean maybe, or ask what you want to pay rather than name a figure. Both moves invite further exchange rather than force a rupture. Get commitments in writing, and leave room for concessions without weakening your position.
+
+Moral framing adds legitimacy to proposals. Where Christian and Muslim communities coexist alongside indigenous values, arguments gain traction when they align with locally recognized language around care, responsibility, and community duty. Technical logic alone may not persuade. Because many negotiations sit against a backdrop of seasonal risk and smallholder livelihoods, even when unstated, patience with timing and realistic acknowledgment of resource constraints will shape how your approach is received.

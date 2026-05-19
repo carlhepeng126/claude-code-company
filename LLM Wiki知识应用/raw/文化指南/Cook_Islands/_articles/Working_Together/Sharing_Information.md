@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information moves slowly in the Cook Islands until relationships are secure. Workplaces are small and tightly connected, which means what you say and how you use information become quickly known. People hold back until they know you personally and are confident you will handle what they share with care. This reflects the strong communal values rooted in traditional Polynesian culture, where protecting group harmony and avoiding shame are deeply important. Sharing too freely or with the wrong person can cause misunderstanding or embarrassment that ripples well beyond the workplace.
+
+Within organizations, information often stays within close circles rather than flowing openly across teams or levels. Employees may avoid sharing problems or setbacks, especially if they think it might reflect badly on themselves or others. This comes from a cultural emphasis on respect, dignity, and not putting colleagues in uncomfortable positions. A visiting manager expecting regular updates or transparent reporting may find responses vague or delayed until trust is established. From the Cook Islands perspective, a colleague who pushes for information before a relationship has formed can seem intrusive or unaware of how connection works.
+
+Building that trust takes consistency. Showing genuine interest in people, keeping confidences, and following through on commitments create the foundation for more open exchange. Informal moments, shared meals, or simply spending time together outside formal meetings allow relationships to develop naturally. Once trust is present, information flows more easily and collaboration deepens. A local colleague who knows and vouches for you can also open pathways that formal channels alone cannot.

@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Credibility in Jordan comes through composure, not force. A presentation is understood as a moment where people read your seriousness and respectfulness alongside the content itself. Audiences expect you to carry yourself with calm authority, showing you understand how the room works and that you respect its unspoken codes. A presenter who pushes too hard or appears impatient can unsettle the tone. This reflects a culture shaped by majlis traditions, where steadiness and moral weight matter as much as technical skill. If your delivery feels confrontational or overly direct, you risk losing trust before the substance is even assessed.
+
+Visual polish is expected. Audiences respond well to sophisticated materials that include graphs, images, and clear design. Brochures should be glossy and professional, ideally in Arabic or bilingual format. Personal context helps too. Introduce yourself, your role, and your organization's background. Emphasize relationships, longevity, and who will actually be working together, not just the technical specifications or timelines. Storytelling makes your message more memorable. Anecdotes or real-life scenarios anchor ideas in a way that feels culturally familiar and easier to trust.
+
+Persuasion works best when it allows people to shift position without loss. Proposals that offer phases, options, or flexible entry points make it easier for others to support you without feeling locked in or publicly exposed. This reflects a broader cultural logic around preventing escalation and preserving dignity. Reframing or adjusting course is not evasion; it is how decisions move forward without confrontation.
+
+Expect phones to ring, people to step out or join partway through, and questions to come one-to-one after the formal close. These are not disruptions. They reflect how authority and influence actually flow. The decision-maker may not even be in the room, and the most honest feedback often surfaces privately, where face can be preserved.

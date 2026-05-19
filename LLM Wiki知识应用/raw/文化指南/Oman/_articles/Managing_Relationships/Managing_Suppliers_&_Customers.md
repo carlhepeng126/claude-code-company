@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Many Omani suppliers are family-run businesses that think in decades, not quarters. Relationships are measured not by transaction volume but by reliability, fairness and memory. If you help a supplier through a difficult period or pay on time when others do not, that loyalty is remembered and reciprocated. Conversely, squeezing margins aggressively or switching suppliers without explanation can close doors that do not reopen. Visiting regularly and maintaining honest communication about constraints or changes builds the kind of trust that allows problems to be solved together rather than through legal escalation.
+
+Supplying government ministries or state-owned enterprises can be slow and bureaucratic, but the prestige involved often outweighs the frustration. Omani firms will accept tight terms or delayed payments in exchange for the reputational benefit of being an official supplier. Foreign partners working alongside them should be transparent about cash-flow timing and compliance demands, so local suppliers are not caught off guard by obligations they cannot meet. Treating contract renewals as opportunities to deepen trust rather than reset pricing can distinguish your firm from others.
+
+Omani customers are rarely isolated. An unhappy customer may know someone in your organisation, in a ministry or in local media. Complaints can escalate quickly if not handled with care. Train frontline staff to respond with genuine apology where warranted and real problem-solving, not deflection. In a relational society, how you respond to a mistake often matters more than the mistake itself. A prompt explanation and clear corrective action can restore confidence and even strengthen the relationship.

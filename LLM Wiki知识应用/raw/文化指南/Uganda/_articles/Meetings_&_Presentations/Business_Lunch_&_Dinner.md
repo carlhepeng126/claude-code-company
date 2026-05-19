@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+In Uganda, a shared meal does more than feed people. It slows the interaction down enough that trust can begin to form. Eating together makes care visible and gives both sides time to observe how the other person responds to hospitality, whether they show gratitude, and how they carry themselves when the pace is unhurried. This is especially true when the host serves matooke (steamed plantains) or luwombo, dishes often tied to banana-leaf cooking traditions that evoke home and proper hosting. These foods represent more than sustenance; they reflect identity and place. The rolex, a rolled chapati filled with eggs and vegetables, speaks to a different rhythm entirely: urban, fast-moving, and distinctly Kampala. 
+
+Conversation at these meals usually begins with general topics and social ease, then gradually moves toward more personal or candid exchanges once the relationship feels settled. Jumping straight into business early in the meal can feel abrupt, as though the relational foundation has been skipped. A colleague from a context where meetings follow tight agendas may read this gradual pace as inefficient, while a Ugandan counterpart may interpret a quick pivot to business as transactional or even dismissive.
+
+Table manners depend on reading the host's cues. Some meals are formal, others communal and flexible. What matters is following the lead on serving order, pacing, and when the tone shifts. Show appreciation clearly, for the food and the time. If you're unfamiliar with a dish, ask with curiosity and let the host guide you. The meal itself is the bridge; the business conversation follows once that relational ground feels ready.

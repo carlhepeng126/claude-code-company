@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Direct feedback is built into Israeli professional culture, rooted in a debrief tradition that treats open analysis as the fastest route to improvement. After a project closes, a pitch ends, or a product launches, teams sit down and dissect what worked and what didn't, regardless of who was involved or how senior they are. The assumption is straightforward: honest critique helps everyone get better, and protecting feelings gets in the way of that. This means feedback, both positive and critical, is delivered plainly and received as part of the work itself.
+
+Israeli colleagues expect criticism to be clear and specific. Wrapping a problem in too much diplomatic framing or using indirect language to soften the message often backfires. The extra layers make the feedback harder to decode, and the person receiving it may miss the point entirely or assume the issue is minor when it's not. If something needs fixing, saying so directly is seen as respectful of the person's time and intelligence. Positive feedback follows the same logic. When something is genuinely good, Israeli professionals say so openly and without hesitation.
+
+When Israeli colleagues receive feedback, they may argue back, question the reasoning, or offer a different interpretation of events. For someone from a culture where receiving feedback means listening quietly and accepting the point, this can read as defensiveness or even hostility. From the Israeli side, the same response signals engagement. Pushing back on feedback is a way of testing its validity and sharpening the conclusion together. The conversation is expected to be two-way, and disagreement is treated as part of getting to the right answer, not as resistance to authority.

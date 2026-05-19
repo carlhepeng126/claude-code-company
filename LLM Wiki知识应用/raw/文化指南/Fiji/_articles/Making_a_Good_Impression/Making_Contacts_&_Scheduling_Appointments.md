@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Fiji, making business contacts begins through relationship and community connection. The social structures that bind extended families and villages also shape professional life. People prefer to know something about you before committing to a formal meeting, and that knowledge often comes through a shared contact or mutual acquaintance. A direct approach can work, especially in larger organizations or urban centers like Suva, but an introduction from someone already trusted speeds things along and lends credibility from the start. If you're working with someone who has local connections, ask them to make the introduction. That warmth opens doors more reliably than a cold email.
+
+When you do reach out directly, a phone call tends to feel more personal than email, particularly outside the capital or in smaller businesses. Conversations may begin with light personal exchange before moving to the purpose of the meeting. This isn't delay, it's how trust gets established. Skipping that step can make the interaction feel transactional, which sits awkwardly in a culture where relationships underpin collaboration.
+
+Appointments should be arranged in advance, ideally with a week or more notice, and it's worth reconfirming a day or two before. Schedules can shift to accommodate family obligations, community events, or unexpected visitors, so build flexibility into your own plans. Meetings may start a little later than scheduled or extend beyond the allotted time, especially if the conversation is building rapport. Colleagues from cultures where punctuality is tied to professionalism may read this as casual, while Fijians may find rigid timekeeping impersonal and at odds with the flow of relationship.

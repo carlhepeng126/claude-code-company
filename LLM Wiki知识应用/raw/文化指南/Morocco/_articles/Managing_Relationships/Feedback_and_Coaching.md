@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Giving feedback in Morocco requires attention to dignity and setting. Hchouma norms mean that public correction risks lasting reputational damage, particularly in settings where someone's standing is visible and fragile. Being seen as improper can affect how a person is regarded in their community, so feedback that risks public embarrassment cuts deeper than the content of the critique itself. When a manager corrects a team member in front of colleagues, they may be creating a cost that follows that person beyond the office. Deliver critical feedback privately and frame it in ways that protect social standing.
+
+Composure and tone shape how feedback is received. Many Moroccan professional environments value the ability to keep interactions dignified, and emotional intensity or directness can be read as loss of control rather than honesty or engagement. A colleague from a culture where blunt feedback is seen as transparent may find that their forthrightness feels harsh or disrespectful here. In turn, a Moroccan colleague may interpret measured, calm delivery as a sign of seriousness, while someone unfamiliar with this style might mistake it for coldness or withholding. Adjust your tone to signal respect, and read calm delivery as engagement, not distance.
+
+Authority styles shift depending on the setting. In more formal, protocol-heavy environments, hierarchy and deference are expected. In contexts shaped by community or family connection, warmth and relational care carry more weight than rank. The same message may need reframing depending on whether the environment codes for formality or closeness.

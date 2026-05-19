@@ -1,0 +1,11 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+In China, access to suppliers and customers depends heavily on trusted introductions rather than cold approaches or formal proposals alone. This reflects the central role of *guanxi*, the network of personal connections that blurs the line between friendship and business. A warm referral from a mutual contact opens doors that a strong pitch on its own may not. Building these networks takes time and ongoing effort, but once established they bring opportunities that would otherwise remain out of reach.
+
+Relationships are sustained through regular, low-key contact and small acts of reciprocity. Staying in touch between transactions, making occasional introductions, or offering help with unrelated matters all reinforce the sense of mutual obligation that keeps partnerships alive. Contracts set the formal terms, but the relationship extends beyond them. If contact drops away after a deal is signed, the bond weakens, and future collaboration becomes harder to secure. For colleagues from cultures where contracts are treated as comprehensive and self-sustaining, this ongoing cultivation can feel unnecessary. From a Chinese perspective, allowing the personal connection to fade may suggest the partnership was never valued beyond its immediate utility.
+
+When working with smaller suppliers or family-run businesses, recognize that decisions are often shaped by family security and long-term stability rather than short-term financial gain alone. Framing a proposal around risk reduction or continuity will often resonate more strongly than emphasizing immediate returns. In service or dispute scenarios, protect the other party's reputation. Public criticism or abrupt escalation can damage the relationship in ways that are difficult to repair, even if the contract is eventually honored.
+
+Digital fluency is now expected. Mobile payments and online platforms are the norm, and customers in particular assume seamless integration across channels. Companies that rely solely on offline processes or slow digital adoption may find themselves at a disadvantage, especially in urban markets.

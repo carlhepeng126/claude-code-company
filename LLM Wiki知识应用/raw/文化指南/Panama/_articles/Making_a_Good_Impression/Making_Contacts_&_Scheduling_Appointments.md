@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Panama's history as a crossroads means that strangers arriving with business intentions are not unusual, especially in Panama City and the canal corridor. The country's role as a transit economy for over a century has produced a professional class comfortable with international connections and institutional dealings. At the same time, the long memory of canal zone control and external influence means that sovereignty and respect still frame how trust is built. People may be open to new contacts, but they watch for whether you understand that Panama is not simply a service platform.
+
+In the logistics, finance, and canal-related sectors, credibility often comes from being legible. Your affiliation, institutional backing, and professional track record function as trust signals in environments used to working with international standards and formal systems. Making your purpose and credentials clear early on helps smooth the path to a first meeting. A phone call can work better than email for initial contact, as it starts the relationship in a way that feels more direct. Appointments should be made a few weeks ahead and reconfirmed on arrival or the day before, especially during busy periods or holiday weeks like Carnaval, Holy Week, and early November.
+
+Outside the capital and canal belt, contact-making depends more on local reputation and community visibility. In interior towns, introductions through trusted connectors carry more weight than cold outreach, because trust circulates through social continuity and shared participation in civic or festive life. In comarcas, access often requires engagement with community authorities and respect for territorial protocols, as legitimacy is tied to collective identity rather than individual credentials alone.

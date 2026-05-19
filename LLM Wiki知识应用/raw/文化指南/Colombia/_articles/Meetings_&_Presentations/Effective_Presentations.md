@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Generic regional decks that lump Colombia into "Latin America" lose an audience fast. Colombians respond to presentations that demonstrate you understand this country's specifics: the *estratos* (socioeconomic strata) shaping purchasing power, TransMilenio's reach and constraints in Bogotá, port bottlenecks affecting supply chains, or peace implementation challenges in rural areas. A reference to local geography, infrastructure, or social reality signals you've done the work. Copy-paste slides from Mexico City or São Paulo suggest you haven't.
+
+The presentation itself should balance storytelling with hard evidence. Colombia has a strong oral tradition built on *cuentos* (stories), jokes, and analogies, and professionals appreciate a narrative arc that brings data to life. A client story from Cali or a challenge faced in a rural *vereda* (hamlet) makes abstract proposals concrete. But narrative alone won't carry the day. Colombian audiences also expect solid numbers, case studies, and credible risk analysis. One without the other feels incomplete, either too anecdotal or too dry.
+
+If you're presenting in Spanish, your accent will be heard and interpreted. A polished Bogotano register can sound distant to a coastal or Pacific audience, while a *paisa* inflection from Medellín may shift perceptions in the capital. Foreigners speaking Spanish are typically welcomed, but adapting your speed, formality, and local references to the room shows cultural attentiveness. A colleague used to presenting in Madrid or Buenos Aires may assume their Spanish translates directly. It doesn't. Regional variation in tone and vocabulary runs deep, and what feels professional in one city can feel mismatched in another.
+
+Colombian audiences are attentive listeners and rarely interrupt, but silence during the presentation doesn't mean agreement or full understanding. Questions often come afterward, and some may be asked privately to avoid exposing confusion in front of colleagues. Building in time for one-to-one follow-up allows people to clarify without risk to their standing.

@@ -1,0 +1,11 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Burkina Faso work best when they prioritize relationship and respect over immediate persuasion. Your audience will be assessing not just your content, but whether you approach them with humility and genuine interest in collaboration. Open with courteous acknowledgments, especially toward senior figures in the room, and take time to establish connection before moving into technical detail. Rushing straight into slides or data can feel transactional and disrespectful in a culture where interpersonal trust underpins professional credibility.
+
+Keep your tone calm and avoid aggressive sales language. Burkinabè professionals often view hard-sell tactics as pushy or insincere. Instead, frame your ideas as proposals open to input rather than fixed solutions. Invite questions and welcome discussion, even if it slows the pace. A colleague from a culture where presentations follow a tight schedule and end on time may feel the session is drifting, but for many Burkinabè audiences, the willingness to pause and engage signals respect and seriousness. Conversely, a Burkinabè presenter in a fast-paced environment may find the pressure to move quickly uncomfortable or even dismissive of the need for shared understanding.
+
+Prepare materials in French, and keep slides visual rather than text-heavy. Dense content can create confusion, especially if interpretation is involved. If you're working through a translator, brief them beforehand on any technical terms and allow extra time for each point to land. Silence after a question or statement often reflects thoughtfulness, not disengagement. Let pauses settle rather than filling them immediately.
+
+Don't be surprised if people step out briefly or join partway through. This reflects the fluid rhythm of many workplaces and shouldn't be read as lack of interest. Follow up individually after the session, as this is often where honest feedback and clarifying questions surface, particularly from those reluctant to challenge or question in a group setting.

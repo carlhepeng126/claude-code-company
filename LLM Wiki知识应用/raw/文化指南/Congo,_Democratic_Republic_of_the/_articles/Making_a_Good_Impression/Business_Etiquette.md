@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Greetings in the Democratic Republic of the Congo are warm, multilayered, and essential to every professional interaction. A handshake is standard, often held longer than a colleague from a task-focused culture might expect, and accompanied by direct eye contact and questions about health, family, or the journey to the meeting. These opening exchanges establish goodwill and signal that the relationship comes before the agenda. Skipping or rushing this stage can feel abrupt and may undermine trust before formal discussions even begin.
+
+Titles and forms of address reflect respect for hierarchy and social position. Use professional titles where they exist, and address senior colleagues formally unless invited to do otherwise. First names are common once rapport is established, but deference to age and authority runs deep. In meetings, the most senior person present often speaks first and sets the tone. Interrupting or contradicting them directly, especially in front of others, risks causing embarrassment and can damage the relationship. If you need to raise a concern, do so privately and with care.
+
+Dress codes tend toward formality, particularly in government, international organizations, and corporate settings. Men typically wear suits or tailored shirts and trousers; women favour modest, professional attire. In Kinshasa and other urban centers, presentation is taken seriously and reflects both professionalism and personal dignity. In regional offices or less formal sectors, expectations may relax slightly, but erring on the side of formality is rarely a misstep.
+
+Punctuality is valued in principle but applied flexibly in practice. Meetings may start late, and schedules often shift in response to logistical challenges or senior figures' availability. A colleague accustomed to strict timekeeping may find this frustrating, but impatience or visible irritation can seem disrespectful. Build buffer time into your plans and stay responsive to changes.

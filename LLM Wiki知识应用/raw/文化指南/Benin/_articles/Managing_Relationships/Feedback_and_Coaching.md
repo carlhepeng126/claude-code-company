@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Benin is filtered through a strong awareness of hierarchy, relational care, and the need to protect dignity. Managers and senior colleagues are expected to guide others, but this guidance is offered carefully and always with attention to the person's standing within the group. Direct criticism, especially in front of others, risks causing shame and damaging the relationship. Even constructive feedback is best delivered in private, using gentle language and often framed as advice rather than correction.
+
+Praise can be given more openly, but it should feel sincere and contextual. Public recognition of individual achievement may be appreciated in some settings, particularly among younger professionals or in urban workplaces, but it can also create awkwardness if it singles someone out too sharply from the group. Acknowledging effort in a way that honors the team or the collective contribution tends to sit more comfortably, especially in settings where social cohesion and mutual respect are central to daily interaction.
+
+When coaching, it helps to build the conversation relationally. Starting with a personal connection, asking about family or well-being, and offering feedback as part of an ongoing dialogue rather than a formal event makes the exchange feel less confrontational. A manager from a culture where performance conversations are scheduled and structured may find this approach indirect or inefficient. From a Beninese perspective, a colleague who moves straight to critique without first establishing relational ground may come across as cold or dismissive, regardless of intent.

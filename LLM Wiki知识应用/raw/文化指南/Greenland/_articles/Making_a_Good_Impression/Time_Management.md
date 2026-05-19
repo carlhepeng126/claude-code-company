@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Greenland is shaped by geography and survival, not by the clock. In a country where daylight can last 24 hours in summer and disappear for months in winter, and where weather determines whether a meeting happens at all, rigid scheduling often makes little practical sense. Historically, Inuit communities moved with the seasons, ice conditions, and animal migrations. That relationship to time remains embedded in daily life. A fishing trip, a family obligation, or a sudden storm can shift plans without warning, and this flexibility is understood as reality, not poor planning.
+
+In professional settings, especially in Nuuk or within international projects, formal deadlines are taken seriously and punctuality is generally respected. But outside these contexts, or when something more urgent arises, schedules adjust. A colleague from a culture where timelines are fixed may read this as unreliability. A Greenlander may read rigid insistence on a meeting time, despite changing conditions, as inflexible or disconnected from the situation at hand. The tension lies in whether time serves the task or the task serves the time.
+
+This does not mean deadlines are ignored. In government offices, mining consultations, or collaborations with Danish or international partners, agreed timelines are upheld. But expect that getting to a decision may involve waiting for the right conditions, not just the right date. If you are coordinating across teams, build in buffer time and stay in regular contact. Flexibility here is not a courtesy but a working method.

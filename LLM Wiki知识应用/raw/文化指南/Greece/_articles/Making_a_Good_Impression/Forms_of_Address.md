@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Greece, how you address someone early in a relationship reveals whether you understand the hierarchy they've earned. Starting with kyrie or kyria (Mr or Ms) followed by the first name shows you recognize someone's seniority or experience, especially when there's an age gap or clear difference in professional standing. A younger team member will typically address a senior engineer as "kyrie Dimitri" or use the professional title directly, such as "kathigita" (professor). This formality acknowledges years of effort and status. Moving too quickly to a shortened first name can feel like you're erasing distinctions that matter to the person standing in front of you.
+
+The shift to informality happens, but Greeks usually initiate it. Among peers or once a relationship has developed, you'll drop the honorific and use first names. Later still, close colleagues may begin using re before your name, a rough-sounding vocative particle that actually signals affection and trust. Wait for it to be offered. Jumping to "re Maria" before she's used it with you will sound presumptuous, even jarring. In meetings or formal moments, colleagues may still revert to kyrie or kyria when others are present, even if they're relaxed in private. Mirror how people address senior figures in front of them.
+
+Name days, the feast day of the saint you're named after, often matter more than birthdays. Remembering to send a brief "Chronia polla" (many years) on that day tells someone you've paid attention to their rhythm, and it builds goodwill in ways a longer but generic message won't. It's a small gesture that shows you're not just passing through.

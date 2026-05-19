@@ -1,0 +1,9 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Mongolian professional life rests on a foundation of warmth and physical ease that can surprise colleagues expecting more formal restraint. Handshakes are common, and among men, a hand on the shoulder or a light embrace during conversation reflects friendship and trust. Women typically greet each other and male colleagues with a handshake. Eye contact while speaking conveys integrity, and standing close to someone signals engagement rather than intrusion. This closeness extends across settings: isolation reads as odd, and proximity as normal. The challenge for a colleague from a culture where distance is equated with professionalism may be to interpret this warmth as respect, not informality. For Mongolians working with someone who keeps more physical distance, the reserve can feel cautious or disengaged.
+
+Gift-giving reflects the cultural weight placed on relationship. Small, thoughtful gifts are welcomed and understood as gestures of goodwill, not obligation. Souvenirs from your own country often land better than expensive local purchases. Avoid knives, scissors, straw sandals, clocks, or handkerchiefs, all of which connect to funerals or severed ties. Black and white wrapping follows the same logic. When offering or receiving a gift, keep your sleeves rolled down; bare arms read as too casual for the moment.
+
+Business cards are exchanged freely and often mark the start of a relationship. Cards should include Mongolian alongside your own language. Offer and receive them with both hands or the right hand, and take a moment to look at what you have been given before putting it away. Rolling up your sleeves, pointing directly at someone, or showing the sole of your foot all communicate disrespect in a culture where spatial and ritual awareness still reflects the moral geography of the ger, the traditional dwelling where movement and position encode meaning tied to cosmology and family order.

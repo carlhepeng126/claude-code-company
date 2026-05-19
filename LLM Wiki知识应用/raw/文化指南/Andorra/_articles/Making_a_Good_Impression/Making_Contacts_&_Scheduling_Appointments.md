@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Andorra's small population and tightly woven professional networks mean that making business contacts often begins with a personal connection. Many Andorrans have grown up alongside one another or share extended family ties that stretch across sectors. In this environment, trust isn't built from scratch with each new interaction; it's often inherited through existing relationships. A warm introduction from a mutual acquaintance can open doors quickly, while cold outreach may receive a polite but distant response. If you're new to the country, finding someone who can make that introduction on your behalf will smooth the path considerably.
+
+Scheduling appointments is generally straightforward once contact has been established. Andorrans appreciate punctuality and will typically honor agreed meeting times, though the pace of decision-making may feel measured to colleagues accustomed to rapid approvals. This reflects the overlap between personal and professional life in a small nation where reputations are visible and decisions can have lasting social consequences. Arrange meetings at least a week in advance where possible, and confirm a day or two beforehand. Email is widely used and reliable for professional correspondence.
+
+Professionals in Andorra's tourism, finance, and retail sectors may move more quickly, especially those accustomed to working with international partners. Younger Andorrans, particularly those educated abroad, often blend local relationship expectations with more direct communication styles. Even so, taking time to acknowledge the personal dimension of a business relationship will be noticed and valued, regardless of generation or sector.

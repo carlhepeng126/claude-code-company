@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Professional interactions in Eswatini unfold slowly and through relationship. A meeting begins with greetings that take time, often including inquiries about health, family, and well-being. These exchanges reflect the relational foundation of Swazi culture, where trust is built before business begins. Rushing past this stage to reach the agenda can suggest that the relationship holds little value. Colleagues from cultures where meetings start on time and move quickly through items may find this pace indirect, while Swazi counterparts may read fast-moving agendas as transactional or dismissive.
+
+Respect for hierarchy shapes how communication flows. Addressing senior figures by title and surname shows recognition of their standing, and deference is expected in tone and posture. Junior staff may hesitate to speak up in the presence of elders or managers, even when they hold relevant information. Challenging a senior colleague openly, particularly in front of others, risks causing embarrassment and damaging the relationship. If you need to raise a concern, do so privately and with care for how the message lands.
+
+Dress conveys seriousness and respect for the occasion. Business settings call for formal attire: suits for men, conservative dresses or suits for women. Standards are higher in urban offices and government institutions, though expectations may relax slightly in smaller towns or informal sectors. Appearance reflects not only professionalism but also regard for those you are meeting, and underdressing can be read as a lack of respect or preparation.
+
+Small gestures carry meaning. Offering and receiving items with both hands, or with the right hand supported by the left, signals courtesy. Maintaining eye contact during greetings shows attentiveness, though prolonged or intense eye contact with someone senior may feel confrontational. Observing how others behave in the room, particularly toward elders, offers reliable guidance when protocol is unclear.

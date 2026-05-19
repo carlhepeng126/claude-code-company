@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+Showing up on time in the Czech Republic reflects good manners, not anxiety about the clock. Punctuality is a social signal that the other person's time is worth as much as yours. Being late once and explaining yourself is understood, but arriving late repeatedly suggests disorganization or a hierarchy that places your schedule above everyone else's. Meetings begin when they are scheduled to begin, and that rhythm extends across most professional settings. If you are delayed, send a quick text or call with a realistic arrival time rather than appearing with an apology later.
+
+Work hours are structured, but evenings and weekends are firmly protected. Many Czechs work with focus during the day and then step away, often to spend time at the family cottage, known as the *chata* or *chalupa*, or to manage children's activities and hobbies. Sending emails at 22:30 or scheduling calls on Sunday afternoon may get a response, but it also builds quiet resentment. A culture that praises availability outside working hours risks losing credibility with people who value a clear boundary between professional and personal time.
+
+The cottage calendar matters more than many outsiders realize. Spring openings, peak summer weekends, and autumn Fridays are often spoken for months in advance. Scheduling major internal events or offsites during these periods will bring bodies to the room but not full attention. Check the national holiday calendar and be aware that mid-July Saturdays in Prague, for example, are often empty because people are elsewhere.

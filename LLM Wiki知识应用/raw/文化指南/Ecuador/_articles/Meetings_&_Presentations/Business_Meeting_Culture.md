@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Ecuador tend to begin a few minutes late, and this reflects social courtesy more than poor planning. Arriving exactly on time can feel abrupt, especially in smaller organizations or outside the capital. The opening is usually informal, with space given to personal greetings and a few minutes of conversation before settling into the agenda. Skipping this phase and moving straight to business can read as transactional or cold. For colleagues from cultures where punctuality and efficiency are tightly linked, this warm-up can feel unfocused. For Ecuadorians, it builds the relational foundation that makes collaboration possible.
+
+Once the meeting begins, expect hierarchy to guide who speaks and when. Senior figures lead the discussion, and junior colleagues typically wait to be invited into the conversation. Decisions are rarely made in the room itself, particularly if the topic involves risk or longer-term commitment. The meeting is more likely to surface concerns and gather input than to resolve them on the spot. Pushing for a conclusion before relationships have been tested or all relevant voices consulted may be met with polite delay rather than agreement.
+
+Formality varies between Quito, where business culture tends to be more reserved, and Guayaquil, where interactions are often warmer and more expressive. Dress, tone, and body language adjust accordingly, and it's worth paying attention to how your counterparts present themselves in the first meeting. This will give you a clearer sense of what's expected going forward.

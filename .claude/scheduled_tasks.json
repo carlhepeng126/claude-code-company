@@ -1,0 +1,23 @@
+{
+  "tasks": [
+    {
+      "id": "deaa9034",
+      "cron": "30 9 12 6 *",
+      "prompt": "一个月前你归档了中信建设试卷上传任务，当时记录了一个待升级事项：试卷上传依赖人工审核，尚未形成自动化流程，存在题型上传错误风险。请提醒用户考虑推动试卷上传与审核的系统自动化升级。",
+      "createdAt": 1778585489957,
+      "createdBySessionId": "4950c1ff-b890-4c94-80be-c49022c9cb19",
+      "createdByPid": 40976
+    },
+    {
+      "id": "e07174d8",
+      "cron": "42 8 * * *",
+      "prompt": "检查昨天的日日志和 Action 文件夹（3-1-Focus、3-2-Active），找出标记为 completed 或备注写明\"已完成\"的事项，自动移到 6-storage/6-1-archive-归档/项目归档/ 下对应的项目文件夹。如果没有对应的项目文件夹就新建。完成后汇报整理结果。",
+      "createdAt": 1778720912241,
+      "lastFiredAt": 1779154370106,
+      "recurring": true,
+      "createdBySessionId": "6954533b-f3fa-4801-a449-aba17f7fcf85",
+      "createdByPid": 18528,
+      "createdByProcStart": "639143446730667100"
+    }
+  ]
+}

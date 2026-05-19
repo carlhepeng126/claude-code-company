@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In many Zimbabwean professional and institutional settings, looking neat asserts dignity and seriousness. Where stability has not always been guaranteed, being put together makes self-respect visible. Appearance is read as credibility, particularly in formal institutions, and influences how quickly rapport forms and whether you are perceived as reliable. For business meetings, men typically wear suits and ties, while women choose conservative tailoring: dresses or skirts that fall below the knee, blouses with sleeves, understated accessories. Overly expensive display can feel awkward in contexts marked by visible inequality. Thoughtful, composed presentation keeps the focus on relationship and purpose rather than difference.
+
+Christianity shapes public notions of what counts as proper, and modesty expectations spill beyond religious spaces into everyday professional life. Church-influenced standards mean that choices considered neutral elsewhere, such as sleeveless tops or shorter hemlines, can read as inappropriate here. Aligning your dress to the setting reduces social risk and prevents your appearance from becoming an unintended distraction, especially in client-facing or community-adjacent work.
+
+Context drives expectations more than fashion. Urban corporate environments in Harare differ from informal trade spaces or rural communities, but institutions tend to maintain a conservative baseline. Social events, festivals, and church gatherings call for formal dress, often in traditional colors and fabrics. Bereavement spaces hold particular weight. Dress at funerals and memorial services communicates honor and solidarity, and people remember whether you showed up appropriately. These moments are moral and communal, and getting them right supports relationship continuity over time.

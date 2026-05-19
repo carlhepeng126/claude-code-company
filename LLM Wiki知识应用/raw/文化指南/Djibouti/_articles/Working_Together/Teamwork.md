@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in Djibouti typically operates through personal ties and respect for hierarchy rather than structured processes. Teams often form around clan and family connections, especially in smaller businesses and government settings, where trust is built through shared background rather than formal coordination. This means collaboration can flow smoothly within established networks but may take longer to develop with outsiders. Colleagues expect loyalty to the group and discretion in how issues are raised. Public disagreement or direct challenge to a senior figure disrupts harmony and can isolate the person who speaks out.
+
+Managers are expected to guide their teams personally, often in a paternal style that includes concern for family circumstances and individual wellbeing. Authority is clear, but it comes with responsibility to protect and support. A manager who delegates without maintaining regular contact or who focuses only on deliverables may be seen as distant or uninterested. Team members look to senior colleagues not just for decisions but for reassurance and inclusion in the broader social fabric of the workplace.
+
+Feedback is handled indirectly and privately. Praising someone publicly can create discomfort or jealousy, while criticizing them in front of others causes shame and lasting resentment. A colleague from a culture where transparency and open discussion are standard may interpret this caution as evasiveness, while a Djiboutian team member may view directness as rude or damaging. Raising concerns works best through informal conversation or through a trusted intermediary who can preserve dignity on both sides.

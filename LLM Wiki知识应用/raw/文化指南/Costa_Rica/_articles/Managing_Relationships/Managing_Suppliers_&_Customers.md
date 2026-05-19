@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Business relationships in Costa Rica are deeply personal, and this extends to suppliers and customers alike. Face-to-face contact builds the trust that sustains commercial partnerships, and maintaining presence shows commitment. Absentee management weakens these ties quickly. Colleagues from cultures that prioritize written agreements and efficiency at a distance may find this time-intensive, while Costa Ricans can read remote-only engagement as lack of serious intent. Expect to meet in person regularly, not only to finalize terms but to maintain the relationship itself.
+
+When working with cooperatives, especially in coffee or dairy, recognize they operate with dual accountability. They are both commercial partners and community institutions, answerable to farmer members with their own governance processes and legitimacy concerns. Decisions take longer because they require internal consultation, and your offer must show clear benefits to members, not just efficiency gains. Rushing or bypassing these internal steps strains the relationship and can undermine the co-op's standing with its base.
+
+Costa Rican customers and communities are alert to environmental claims, particularly around biodiversity, water use, and agrochemicals. National pride in conservation runs deep, and greenwashing is noticed. Build transparent practices into your operations and communicate them clearly, not as marketing but as part of how you work. Labor practices also shape reputation quietly but powerfully. How suppliers treat low-wage workers, including Nicaraguan migrants in agriculture or construction, influences trust with Costa Rican clients and communities, even when the concern is not voiced directly. Demonstrating fair treatment across your supply chain strengthens long-term credibility and local support.

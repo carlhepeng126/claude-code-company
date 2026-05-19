@@ -1,0 +1,11 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+In Lebanon, business relationships often become real around the table. Shared meals are where trust deepens, warmth is demonstrated, and people move from transactional exchange to genuine connection. Food brings energy and ease to a conversation in ways that boardrooms do not, and Lebanese social life is built around this understanding. Entertaining is abundant and emotionally open: insistence that you try a dish, lively debate, laughter that builds across courses. This expressive style reflects sincerity and inclusion, so if your host is emphatic about ordering more food or extending the evening, it reflects care and welcome rather than excess.
+
+Lunch and dinner are both common for business entertaining, with dinner offering more room for relaxed conversation. Beirut's restaurant scene is international and varied, though choosing Lebanese cuisine at least once shows appreciation for a culture deeply proud of its food traditions. Al-man'ouché (a flatbread breakfast staple) may not appear at a formal business meal, but the ritual behind it, shared across communities and backgrounds, reflects a broader cultural truth: eating together is how belonging is created.
+
+Conversation during meals may not touch on business at all, especially early in the relationship. The gathering itself builds the foundation. Bringing up work prematurely can feel transactional. Wait for your host to signal when that shift feels natural. Someone from a culture where business dinners are expected to deliver clear outcomes may feel the evening lacks focus, while a Lebanese colleague might read a premature pivot to business as impatient or socially tone-deaf.
+
+Context also varies. Beirut can feel globalised and cosmopolitan, while gatherings shaped by religious observance, village settings, or more conservative communities may follow different norms. Reading which Lebanon you are in, especially around alcohol, dress, or mixed-gender dining, helps you calibrate your approach accordingly.

@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+The Central African Republic's multilingual reality shapes how people greet and address one another in professional settings. French is the administrative language, and formal titles such as "Monsieur," "Madame," or professional designations like "Docteur" or "Directeur" are used with the family name in official contexts. This formality reflects the country's French colonial legacy and the lingering association between bureaucratic structures and respectful conduct. In government offices, ministerial settings, or when engaging with senior figures, these titles are expected and their omission can register as carelessness or disrespect.
+
+Sango, spoken widely across the country, shapes much of everyday interaction. In less formal workplace settings, especially among colleagues who share a regional or ethnic background, Sango honorifics and kinship terms often surface. A younger colleague might address an older counterpart using a relational title that conveys respect through age rather than rank. This shift between French formality and Sango warmth means that address conventions can vary depending on language, context, and the relationship between speakers. Watch how colleagues address each other before settling on a style yourself.
+
+In urban business environments, especially Bangui, handshakes are common during introductions. Yet the country's ongoing instability and displacement have disrupted many workplace norms, and what feels standard in one office may not hold in another. If you are working with colleagues who have spent time in neighboring countries or with international organizations, you may encounter blended practices. First names may be used more quickly in NGO or multilateral settings, but assuming informality too soon in government or traditional business contexts can undermine your credibility. Let the other person set the tone, and when in doubt, open with the formal approach.

@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in American Samoa moves through layers of consultation rooted in fa'asamoa, the Samoan way. Consensus is not a formality but a social obligation. Decisions that affect the group, whether in a village, extended family, or workplace, are shaped by matai (titled family and village leaders) and by broader discussion among those who will be affected. Moving forward without this process risks undermining relationships and social cohesion, both of which are understood as foundational to any successful outcome.
+
+Authority is respected, but it functions through relationship rather than rank alone. A manager or senior figure is expected to consult with others before finalizing a direction, particularly if the decision involves people or resources tied to family or community. This consultation often happens informally, through trusted connections, before any formal announcement. The goal is not to delay but to ensure the decision reflects collective input and will be supported once made. What may appear as hesitation to a colleague from a culture where decisions are made quickly and individually is actually the work of securing alignment. From an American Samoan perspective, a decision made in isolation, without regard for those it affects, may seem disconnected or socially careless.
+
+Flexibility is built into how decisions are carried out. A plan agreed in principle may shift in timing or emphasis depending on family obligations, church commitments, or emerging community needs. This reflects a cultural understanding that relationships and social responsibility take precedence over rigid adherence to timelines. If you are working with a team in American Samoa, expect decisions to be shaped by voices beyond the immediate work group, and allow time for consultation before pushing for closure.

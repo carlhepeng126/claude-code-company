@@ -1,0 +1,11 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Meetings in Saudi Arabia begin with the relationship, not the agenda. Extended greetings, coffee or tea service, and conversation about family or the Kingdom itself establish rapport before business is raised. This opening is not filler. It reflects a deeply held view that agreements depend on personal familiarity and trust, and that rushing into transactions before people know each other undermines the foundation for cooperation. If you are meeting someone for the first time, expect the session to be spent getting to know you rather than finalizing terms. Entering with a tightly scripted agenda or pressing to cover specific points within a set timeframe can feel impersonal and transactional to your Saudi counterpart.
+
+Introductions through mutual contacts or intermediaries help navigate formal access and build credibility before you walk into the room. Being introduced by someone already known and trusted signals that you come with a degree of assurance. Accept tea or coffee even if you do not finish it. The offer is part of how meetings are hosted, and refusing it can come across as distant or dismissive.
+
+Meetings may be interrupted by phone calls, assistants seeking signatures, or unrelated visitors entering the room. This reflects the accessible nature of Saudi professional culture, where senior figures remain open to multiple demands at once. If you are mid-sentence when this happens, pause rather than push through. The conversation will resume, and your patience will be read as respect for how the meeting is structured. A colleague from a culture where meetings follow a fixed agenda and time limits may find this disorienting and interpret it as a lack of focus. From a Saudi perspective, that same insistence on linear structure can feel rigid and disconnected from the human dimension of the interaction.
+
+Pacing and formality vary between cosmopolitan centers and more traditional settings, and between sectors. Younger professionals in large multinational firms may move more quickly to substance, but even in modern contexts, hierarchy and social grace shape how meetings unfold.

@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Written records are taken seriously in Singapore. The common refrain "if it's not documented, it didn't happen" reflects both a drive for efficiency and a concern for audit protection. Meetings are followed by detailed email summaries, decisions are logged in SharePoint or Jira, and continuity relies on thorough documentation. This habit serves practical ends, keeping projects moving when people leave or move roles, but it also provides a safeguard in environments where accountability can be scrutinized formally. When working with colleagues who prefer verbal agreements or light note-taking, this preference for full written trails can feel procedural. From the other direction, a Singaporean professional may find it difficult to act confidently when key decisions remain unrecorded.
+
+At the same time, not everything gets committed to writing. Many employees know that emails and chat logs are discoverable, and this awareness shapes what people are willing to put on record. Sensitive views, especially those touching on politics, hierarchy, or internal tensions, are more likely to be shared face-to-face or in trusted WhatsApp groups than in company-wide channels. If you need honest feedback or want to discuss a delicate topic, create space for confidential conversation rather than asking someone to formalize their concerns in writing.
+
+English is the working language, but many people think and speak in Mandarin, Malay, Tamil, or dialects outside the office. When colleagues write in formal English, some nuance may be compressed or lost. Check understanding by asking people to restate decisions in their own words rather than simply asking if there are questions. This surfaces gaps without putting anyone on the spot and ensures that clarity, not just politeness, has been achieved.

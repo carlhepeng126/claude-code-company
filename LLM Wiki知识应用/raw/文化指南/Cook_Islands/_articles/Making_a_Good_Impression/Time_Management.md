@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In the Cook Islands, time operates on relational rather than rigid terms. The small scale of professional and personal networks means that most working relationships overlap with family ties, church connections, or community roles. Arriving on time is understood as courteous, but allowing time for greetings, catching up on family news, or addressing an unexpected request from a colleague or elder takes precedence. A meeting scheduled for 9am might begin closer to 9:30, not because punctuality is dismissed but because attending to the people in front of you before the clock is what sustains relationships over the long term.
+
+This flexibility reflects a broader cultural logic in which obligations to people come before obligations to schedules. Deadlines are taken seriously when external partners or formal commitments are involved, particularly in tourism or government sectors that interact with international systems. But within locally run businesses or community projects, timelines often adjust to accommodate changing circumstances, resource availability, or the need to consult with others before moving forward. What might appear to a colleague from a deadline-driven culture as a lack of urgency is more often a way of ensuring that decisions are made with the right people and at the right moment.
+
+If you are working across this difference, be explicit about fixed deadlines and explain why they cannot move. At the same time, recognize that time given to relationship-building early on often speeds things up later, because trust and goodwill determine how smoothly work unfolds when pressure increases.

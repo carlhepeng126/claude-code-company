@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Finns expect meetings to serve a clear purpose. The format they half-jokingly call *palaveri* (from "palaver," a word suggesting drawn-out discussion) is in practice the opposite: a short opening, a run through the agenda, and a decision or set of actions by the end. A meeting that drifts without visible progress will draw rare but tangible annoyance, even from otherwise reserved colleagues. This reflects a wider cultural preference for efficiency and respect for time. If you schedule an hour, use fifty minutes and let people leave on time. Holding someone beyond the stated end point suggests poor planning.
+
+The coffee break, or *kahvitauko*, functions as an informal second half. This is where people voice half-formed concerns, test reactions, and soften positions that felt too firm in the room. A lot of fine-tuning happens at the coffee table rather than around the formal agenda. Treating the break as downtime to check your phone means missing some of the meeting's most useful exchanges. Listen during these moments for concerns that didn't surface earlier, and use the space to clarify without the pressure of the full group.
+
+Silence in group discussions is a form of contribution. People often share their view once, in a considered way, then fall quiet. They don't feel the need to perform engagement or restate support. A colleague who says little might still be one of the strongest backers if they feel the process was fair. Inviting a thoughtful contribution once is welcome, but pressing for repeated input or interpreting quiet as disengagement misreads the room. The words that were spoken matter more than the number of times they were said.

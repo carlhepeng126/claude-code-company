@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Djibouti reflects both the authority structures common across the region and the strong influence of clan-based social organization. Decisions typically rest with senior figures, and formal hierarchy is both expected and respected. This concentration of authority is not simply about control. It reflects a cultural model where leadership is associated with responsibility, experience, and the obligation to protect group interests. Leaders are expected to guide, provide clarity, and shield their teams from uncertainty, which in turn shapes how decisions are made and communicated.
+
+At the same time, consultation plays a recognized role, particularly when decisions affect the group or touch on matters of dignity. Seeking input from senior colleagues or respected figures is not unusual, though the final decision remains firmly with the leader. This consultation is less about distributed decision-making and more about maintaining cohesion and ensuring that key voices are acknowledged. For a colleague from a culture where consultation implies shared authority, this can feel symbolic. For a Djiboutian manager, it fulfills a relational obligation and reinforces trust without diluting responsibility.
+
+Clan affiliation can also influence leadership perception. Leaders may favor those from their own network when building teams or allocating opportunities, a practice rooted in loyalty and mutual obligation rather than performance alone. Recognizing this means understanding that credibility in Djibouti is often relational. Building rapport with senior figures and demonstrating respect for group norms will shape how effectively you can influence outcomes, even when you hold formal authority.

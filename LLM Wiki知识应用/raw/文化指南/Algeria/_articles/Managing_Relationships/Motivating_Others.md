@@ -1,0 +1,11 @@
+# Motivating Others
+
+## Managing Relationships
+
+Algerians give more when they believe their effort strengthens something beyond themselves. Rooted in mutual aid traditions like *twiza* (community labor exchange), reliability is admired as proof of character: you show up and you fulfill obligations. This means that recognizing steady contribution, not just high-profile wins, can motivate strongly. A manager who acknowledges someone's consistent delivery on smaller tasks is affirming reciprocity, a deeply valued principle. People want to know that their work is noticed and that it adds to the collective outcome, not just their own advancement.
+
+Artisanal heritage shapes how competence is valued. Quiet mastery, precision, and work that improves over time are respected more than self-promotion. Praise that singles out demonstrated skill rather than personal ambition tends to land well. In contrast, a colleague from a culture where individual achievement is celebrated loudly may read this as modesty or underconfidence. From an Algerian perspective, the other approach can look like showing off before the work has proven itself. Motivation increases when quality is seen and acknowledged, even if the acknowledgment is understated.
+
+Honor and belonging are communal, so motivation often ties to how someone's effort reflects on their family, team, or organization. Public recognition that positions someone as having represented the group well can be powerful, particularly when it affirms dignity and respectability. Being seen as serious and well-brought-up can function as a status driver, especially in more traditional or elder-weighted settings. Conversely, public criticism or anything that threatens reputation can demotivate sharply, because shame is a real and lasting consequence.
+
+Leadership credibility directly affects willingness to invest effort. Where authority feels fair, transparent, and protective of dignity, people give more. If leadership seems arbitrary or disrespectful, effort may be conserved as self-protection. Younger urban professionals may respond more to autonomy and visible merit recognition, while more traditional settings may weigh seniority acknowledgment and communal belonging more strongly.

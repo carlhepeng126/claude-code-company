@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+The Holy See does not operate a conventional supplier and customer economy. Its activity is fundamentally mission-driven rather than commercial. External relationships tend to involve service providers in areas such as conservation, media production, and facilities management, or institutional partners such as publishers, broadcasters, and cultural organizations. These relationships are shaped less by market negotiation and more by alignment with the Holy See's values and long-term goals.
+
+Trust and institutional continuity matter deeply. The Holy See favors established providers with proven discretion and a demonstrated understanding of its needs. A new vendor proposing a faster or cheaper solution may receive a courteous hearing but will rarely displace a long-standing arrangement unless there is a clear and serious shortcoming. Relationships are expected to endure across personnel changes, and reputation, both institutional and personal, is scrutinized closely. If you are entering a commercial or service relationship with the Holy See, expect a slow start and recognize that credibility accrues over time, not through a single proposal.
+
+Decisions are rarely made quickly or at a single meeting. Multiple layers of consultation are common, and approval may require input from various departments or advisors. What appears as hesitation is often careful coordination. If you are waiting for a response, avoid pressing for urgency or framing silence as indecision. The process itself reflects the institution's need for internal alignment and the gravity it assigns to external commitments.

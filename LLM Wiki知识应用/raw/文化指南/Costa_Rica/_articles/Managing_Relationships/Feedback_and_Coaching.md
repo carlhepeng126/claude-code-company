@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+In Costa Rica, feedback works best when the tone is calm and the content is clear. Demanding standards are fine, being rude is not. The concept of being *malcriado* (ill-mannered) runs deeper than simple impoliteness. It reflects a lack of respect for others and undermines the relational trust that most Costa Rican workplaces depend on. Feedback framed around specific behaviors and delivered in a composed, courteous manner will be heard. Blunt or emotional criticism, even if accurate, often triggers defensiveness or withdrawal because it feels like an attack on the person rather than guidance on the work.
+
+The tension between harmony and honesty shows up often. A Costa Rican colleague may respond to criticism with *todo bien* (all good) while privately feeling hurt or confused. This response doesn't mean agreement. It means the conversation has ended before real understanding could form. Follow-up one-on-one conversations create room for employees to share what they're actually thinking once the initial discomfort has passed. A manager from a culture where direct pushback is expected might read silence as acceptance, while a Costa Rican employee might read immediate confrontation as aggression.
+
+Costa Ricans tend to link personal development strongly with education and training. Feedback paired with access to a course, mentoring relationship, or stretch project feels like an investment. Feedback without that connection can feel like fault-finding. If you point out a gap in someone's work and then offer a clear path to close it, the conversation shifts from critique to growth. That shift is what makes feedback stick.

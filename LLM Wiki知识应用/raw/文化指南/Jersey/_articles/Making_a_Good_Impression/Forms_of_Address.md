@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+Jersey's approach to workplace address reflects the island's dual character: a small, close-knit community where personal connection runs deep, and an international finance center where global professionalism is standard. First names come quickly, even in formal meetings, but this ease should not be mistaken for casualness. What appears informal from the outside is actually a deliberate expression of Jersey's communal culture, where egalitarian instincts temper hierarchy and directness serves efficiency.
+
+In practice, this means you will likely be invited to use first names within the first conversation, regardless of seniority. Titles are rarely used except in the most traditional legal or financial firms, and even there, formality tends to be reserved for client-facing contexts rather than internal exchanges. Colleagues from cultures where titles and last names anchor respect may find this directness abrupt, or worry that it undermines deference. From Jersey's perspective, the reverse can also feel true: insistence on titles may read as unnecessary distance or a reluctance to engage as equals.
+
+Written communication follows the same pattern. Emails open with first names and close with straightforward sign-offs. Lengthy honorifics or elaborate courtesies are uncommon and may slow the pace of exchange in a jurisdiction where time, particularly in finance, is closely managed. If you default to formality in writing, expect a swift but friendly shift to first names in reply. The move is not meant to dismiss your gesture, but to bring the relationship into line with how Jersey prefers to work.

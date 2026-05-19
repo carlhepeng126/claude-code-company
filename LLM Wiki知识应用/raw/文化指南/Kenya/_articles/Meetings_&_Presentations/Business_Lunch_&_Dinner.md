@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals in Kenya are relational events, designed to build trust and ease formality through food, conversation, and often humor. Rushing through courses or treating the occasion as a quick transaction can feel abrupt and may undermine the rapport you're trying to establish. Expect the meal to unfold slowly, with time given to personal exchange and storytelling before any real business is raised. Kenyan colleagues use these occasions to read who you are beyond your role, so small talk about family, travel, or shared experiences is welcomed rather than seen as filler.
+
+Kenyan cuisine reflects the country's diversity, blending local staples like *ugali* (a firm maize dough) and *nyama choma* (roast meat, often goat) with coastal Swahili dishes and international options. Sharing food is common, and showing willingness to try local dishes, especially *nyama choma* or *githeri* (a vegetable and bean stew), is appreciated as a sign of openness. That said, dietary customs vary widely. Muslims avoid pork and alcohol, and many Christians may drink socially or not at all depending on personal or denominational practice. Prayer before meals is common, so pausing briefly at the start shows awareness. When hosting, always check preferences in advance and offer both alcoholic and soft drink options to avoid putting anyone in an awkward position.
+
+Colleagues from cultures where business meals follow a tighter agenda may find the pace leisurely or the personal talk prolonged. For Kenyans, a colleague who moves straight to contract details without building connection first can come across as impersonal or overly formal, which may slow trust rather than speed the deal.

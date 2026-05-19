@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Dress in Saudi Arabia often communicates respectability and regard for the setting, shaped by Islamic moral vocabulary and hospitality norms. The presentation you choose reflects how seriously you take the occasion and the people in the room. In business settings, this usually means modest, well-tailored clothing. Men typically wear suits with conservative ties for formal meetings. Women should opt for long trousers or skirts, long-sleeved tops, and clothing that sits loosely rather than tightly. For early interactions, a respect-first approach sets the right tone. Once you understand the organization's culture and the local setting, you can adjust.
+
+What feels appropriate can shift across regions and between generations, especially in urban centers experiencing visible cultural change. Cosmopolitan business districts may lean more relaxed, while other areas and sectors maintain more traditional expectations. In cities like Makkah and Madinah, and during religious seasons, public dress often becomes more conservative in response to the proximity of sacred spaces and heightened social sensitivity. Many employers now provide their own dress guidelines, which sit alongside broader cultural expectations. Checking with the host organization or following any written policy is usually appreciated and avoids missteps.
+
+Treating dress as contextual helps you navigate the variation. What works in one setting may not map neatly to another. Avoid signaling casual tourism in professional contexts. Lightweight cotton clothing works well in the heat, but shorts and sleeveless tops remain inappropriate in most public and business environments.

@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Dominica, time bends toward people and circumstance rather than the clock. This reflects an island culture where community ties, face-to-face connection, and the realities of small-scale life take precedence over rigid scheduling. Meetings may begin once the right people arrive, not at the stated hour, and conversations often extend beyond their planned scope because the quality of the exchange is valued more than efficiency. This is especially true in public sector settings, where the pace is slower and relationships carry more influence than formal timelines.
+
+Punctuality is more strictly observed in the formal private sector, particularly in tourism, finance, or businesses with international ties. In these settings, deadlines and start times are respected as a matter of professionalism. But even here, flexibility can emerge when personal matters or unexpected events intervene. A colleague from a culture where schedules are firm may read this as disorganization or lack of commitment. From the Dominican perspective, the same colleague's insistence on strict timekeeping may appear inflexible or dismissive of legitimate human needs.
+
+Younger professionals and those working in regional or international roles tend to align more closely with clock-based norms, though the underlying cultural preference for relational time remains. If you are scheduling a meeting, confirm timing closer to the date and allow room for adjusted starts. If you are working toward a deadline, build in buffer time and communicate interim checkpoints clearly, recognizing that the final push may come later than expected but will still be delivered.

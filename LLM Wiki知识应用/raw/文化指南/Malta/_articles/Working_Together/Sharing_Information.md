@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information in Malta can travel surprisingly fast. People often share overlapping circles across family, locality, political affiliation, and parish life. What is said in one setting can easily reach another, sometimes within hours. This interconnectedness shapes how Maltese colleagues approach workplace communication. They tend to be alert to who else might hear what they say, and how a comment might echo beyond the original conversation. Discretion becomes a reflex. Sensitive details stay within smaller, trusted groups. Broader announcements are phrased carefully to avoid misunderstanding or unintended consequence.
+
+Language choice also influences who feels included. Maltese and English serve different social purposes. Maltese often signals warmth, humor, and insider familiarity. English suggests formal neutrality and outward-facing professionalism. In bilingual workplaces, switching between the two can subtly shift the tone and boundaries of a conversation. A team moving into Maltese may be building closeness, but that same switch can leave non-Maltese speakers on the outside. If you notice a colleague defaulting to English in mixed settings, it may reflect awareness of that risk rather than formality.
+
+Malta's community-facing culture reinforces caution in public messaging. Festa celebrations and parish structures place reputations on display. People learn early how words can be remembered, repeated, and interpreted well beyond the moment. In professional contexts, this shows up as consistency in what is said across settings and reluctance to commit too much in writing unless the ground is clear. If you need candid input, ask in person and keep the circle small.

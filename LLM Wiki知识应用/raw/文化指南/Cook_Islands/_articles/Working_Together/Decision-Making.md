@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+In the Cook Islands, decisions in professional settings often emerge through informal consultation rather than formal process. Leaders hold clear authority, but they typically draw on trusted relationships before reaching a conclusion. This reflects the cultural centrality of community and the need to maintain relational harmony. A manager may gather views from colleagues, family members, or those with community standing before finalizing a decision, even if they hold the formal right to decide alone. The goal is to ensure the outcome sits well socially, not just operationally.
+
+This means decisions can take longer than a colleague from a culture where speed and autonomy are valued might expect. What may be read as hesitation or avoidance of responsibility is actually a process of relational calibration. From a Cook Islands perspective, a decision made quickly without consultation can feel abrupt or disrespectful, as though relationships and social context have been bypassed. Building agreement takes time, and that time is seen as necessary, not wasted.
+
+Hierarchy is present but informal. Senior figures, elders, or those with deep community ties often hold influence that does not show up on an organizational chart. Their approval may be needed before a decision moves forward, even if their role is not explicit. If you are waiting for a decision to be finalized, recognize that the delay may reflect this broader consultation. Pressing for speed can undermine the relational work that makes implementation possible. Instead, stay engaged, allow time for informal discussion, and respect the networks that shape how decisions are understood and accepted.

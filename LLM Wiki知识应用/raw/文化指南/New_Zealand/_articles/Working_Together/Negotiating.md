@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+New Zealanders generally approach negotiation as joint problem-solving rather than competitive sparring. The preference is for collaborative, interest-based discussion where both sides leave with something workable. Overtly aggressive tactics or inflated opening positions can close down the conversation quickly. This preference grows out of a small, interconnected market where reputation follows you, and from a broader cultural expectation of fairness and straight dealing. If you open with a number or term you know to be unrealistic, expecting to be bargained down, your counterpart is more likely to disengage than to play along. Frame your proposals around shared interests and be prepared to explain your reasoning openly.
+
+Negotiations are increasingly judged not only on commercial logic but on whether they support equity, sustainability, and commitments to the Treaty of Waitangi. In public and social sectors especially, be ready to address how your proposal affects Māori and Pasifika communities, regional inclusion, or environmental outcomes. These considerations shape not just whether a deal is acceptable, but whether it has social license to proceed. If you adjust your position, explain why. Changing terms without transparent reasoning can erode trust faster than holding firm from the start.
+
+People appreciate clarity about what you can and cannot move on. Rather than hedging or hinting through multiple rounds, state your constraints early and listen for theirs. This directness allows both sides to focus on the substance of what might actually work. Once terms are agreed, honor the spirit as well as the letter. Exploiting loopholes may be technically permissible, but in a small market it will damage relationships you may need again.

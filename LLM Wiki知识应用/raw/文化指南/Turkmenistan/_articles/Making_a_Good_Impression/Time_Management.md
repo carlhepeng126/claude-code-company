@@ -1,0 +1,11 @@
+# Time Management
+
+## Making a Good Impression
+
+Time in Turkmenistan moves through relationships and hierarchy as much as through the clock. Schedules exist, but they bend when seniority, state obligations, or personal ties require it. This flexibility reflects a Soviet administrative legacy layered over kinship structures that still shape how priorities are set. Formal appointments are respected in principle, but in practice they often wait on the availability of key figures or the resolution of competing demands. A meeting may start late because a senior official was delayed, or because an informal conversation that builds trust takes precedence over the printed agenda.
+
+Punctuality expectations vary sharply by sector and setting. In state institutions and enterprises with ties to government, timelines stretch to accommodate bureaucratic process and the rhythm of hierarchical approval. Decisions move when the right person is ready, and pushing for speed can read as disrespect for authority. In contrast, private businesses working with international partners tend to align more closely with global schedules, particularly in oil and gas sectors where contractual deadlines hold firm. Even here, though, relational considerations can shift timing in ways that feel unpredictable to colleagues from cultures where the calendar drives the workflow.
+
+A manager from a culture where meetings start on time and deadlines are fixed may interpret delays as inefficiency or lack of commitment. From a Turkmen perspective, however, the same manager's insistence on rigid timing can seem impersonal, even dismissive of the human factors that influence when things can realistically move forward. Time is not wasted, it is often spent building the trust and alignment that allow work to proceed smoothly once it begins.
+
+Understanding this means building buffer time into plans and confirming arrangements closer to the date. It also means recognizing that flexibility is a tool, not a failure, used to navigate a system where relationships and respect for hierarchy determine when things actually happen.

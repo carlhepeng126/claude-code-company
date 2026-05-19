@@ -1,0 +1,11 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Polite, professional outreach works well in Canada, even when the contact is entirely new. Centuries of diplomatic tradition rooted in Indigenous consensus-building, combined with British and French colonial legacies of courtesy, have shaped a culture where people expect respectful communication and clear purpose but do not require a warm personal connection before engaging. Cold emails and calls are perfectly acceptable as long as they are well-worded and explain why you are reaching out. Canadians across sectors appreciate brevity and clarity, so stating the reason for contact and what you hope to discuss makes a positive first impression.
+
+Scheduling meetings is straightforward and punctual. Book ahead where possible, propose specific times rather than leaving it open, and confirm a day or two before if the meeting was arranged well in advance. Canadians expect you to arrive on time and begin within a few minutes of the scheduled start. In major cities like Toronto, Vancouver, Calgary, and Montreal, professionals often work under tight schedules, so being late without explanation can feel dismissive. If you are delayed by more than ten minutes, call ahead and give an updated arrival time.
+
+A small amount of rapport-building before business is normal. Meetings might open with brief small talk about the weather, travel, or recent news, then move into the agenda. This pattern holds across regions, though Francophone contexts, especially in Quebec, may lean slightly more toward relationship-oriented conversation. If you are scheduling with colleagues in Quebec or other bilingual settings, consider whether to communicate in French or acknowledge the effort if your French is limited. Either approach is respected as long as it is sincere.
+
+Canadians value personal time and boundaries, so avoid overly insistent follow-up or last-minute changes unless genuinely necessary. Respect for schedules and clear agendas strengthens credibility from the start.

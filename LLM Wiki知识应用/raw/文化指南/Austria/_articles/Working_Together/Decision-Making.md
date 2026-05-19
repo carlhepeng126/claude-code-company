@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Austrian organizations are made at the top. Senior executives hold the authority and expect that responsibility to be respected. While middle managers may handle operational details, they rarely decide independently on questions of strategy, budget, or policy. If you are negotiating or proposing an idea, your real audience is the person with formal authority, even if most of your contact is with someone further down the structure. Building a case means reaching, or influencing access to, the decision-maker.
+
+The process itself is methodical and can take longer than colleagues from cultures with faster approval cycles might expect. Austrians examine the facts thoroughly. Empirical evidence, documented precedent, and well-structured analysis shape the outcome more than personal rapport or enthusiasm. A colleague from a setting where decisions follow relationship-building may find the emphasis on data impersonal. From the Austrian side, a pitch that lacks detail or relies heavily on trust and goodwill may come across as incomplete or unconvincing. Both perspectives reflect different views of what makes a decision sound.
+
+Austrians are cautious about risk. If your proposal introduces uncertainty, acknowledge it directly and offer something concrete in return: written guarantees, phased implementation, or third-party validation. Recognizing the concern and providing a clear path to reduce it can move things forward. Once a decision is made, it is formal and binding. Austrians follow through on what has been agreed, and reversals are rare. Expect commitments to be documented and expect them to hold.

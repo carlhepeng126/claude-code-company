@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+A leader's standing in Jordan is often judged less by technical skill or decisiveness than by whether they preserve people's dignity and protect the group's honour. Leadership is understood as a form of relational stewardship: someone who guides, takes responsibility, and uses influence to shield those they represent. Authority grows when a leader demonstrates steadiness under pressure, handles conflict without public blame, and maintains the group's reputation. Public humiliation of a colleague can erode a leader's legitimacy faster than poor quarterly results.
+
+This expectation has practical roots in Jordan's long traditions of tribal reconciliation and mediation. The same cultural logic that underpins *ʿaṭwa* (a formal apology mechanism) and *ṣulḥ* (reconciliation) shapes workplace leadership. A respected manager knows how to lower the temperature in a dispute, involve the right intermediaries, and restore working relationships without leaving anyone shamed. This is read as strength, not avoidance. A colleague from a culture where conflict is tackled head-on in open meetings may interpret this indirectness as evasion, while a Jordanian manager may view the direct approach as needlessly damaging and likely to entrench the problem rather than resolve it.
+
+Amman's diverse professional environments mean leadership styles vary. Start-ups, international NGOs, ministries, and family businesses each have their own norms. A multinational may operate with flat structures and transparent decision-making, while a family firm may center authority in the founder. Even where leadership is consultative or modern in structure, dignity cues usually remain. Acknowledge contributions in ways that maintain respect, correct privately, and recognise that a leader's social credibility is continuously evaluated through networks where reputations travel quickly.

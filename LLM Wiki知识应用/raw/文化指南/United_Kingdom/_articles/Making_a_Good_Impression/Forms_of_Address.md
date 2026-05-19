@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+The British workplace often defaults to first names faster than many international professionals expect. This reflects a cultural preference for understatement and informality as markers of egalitarianism, even in hierarchical organizations. Titles and surnames are used selectively, usually in formal client-facing settings, legal or financial sectors, or when addressing senior executives for the first time. In most internal meetings, even junior staff address directors by first name. For colleagues from cultures where honorifics and surnames signal respect for authority, this can read as overly casual or disrespectful. From the British perspective, insisting on titles in a first-name environment may come across as stiff or unnecessarily formal. Watch for cues in email signatures and introductions, and mirror the level of formality your counterpart offers.
+
+That said, the shift to first names is rarely immediate with external stakeholders. Initial emails and formal correspondence often open with "Dear Mr. Smith" or "Dear Dr. Jones," particularly in sectors like law, academia, or finance. The move to first names is typically signaled by the other person, either in their sign-off or by saying "please, call me John." Jumping to first names too early, especially in writing, can feel presumptuous.
+
+Generational and regional variation exists. Older professionals and those in traditional industries are more likely to maintain formal address longer. In younger, creative, or tech-driven sectors, first names are often used from the first interaction.

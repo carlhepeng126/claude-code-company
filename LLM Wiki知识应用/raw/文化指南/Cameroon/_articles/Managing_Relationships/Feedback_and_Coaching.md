@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Cameroon is shaped by respect for hierarchy, concern for dignity, and the layered social relationships that define professional life. Criticism, especially in front of others, risks public embarrassment and can damage not only the working relationship but the broader social network the person belongs to. Managers typically deliver corrective feedback in private, often softened through indirect language or by framing the issue as a shared challenge rather than individual fault. A manager might say, "We need to find a way to improve this process," even when addressing one person's mistake. This approach protects the person's standing while still making the expectation clear.
+
+Positive feedback is valued, but the way it's given varies by setting and seniority. Public praise can motivate and build group morale, but singling out younger or junior staff too directly may create discomfort or be seen as elevating one person above the collective. In contrast, recognizing effort in a way that acknowledges the team or the support of others tends to land more comfortably. Feedback also moves through informal channels. A colleague may hear about concerns or praise through a trusted peer or senior figure before the manager speaks directly. This allows the person time to adjust without losing face.
+
+Foreign managers working in Cameroon should avoid performance conversations that feel transactional or formulaic. Written performance reviews without prior relational context can seem cold or punitive. Building trust through regular, informal check-ins makes later corrective feedback easier to deliver and more likely to be received constructively. If feedback must address a serious issue, framing it as guidance for the future rather than judgment of the past helps preserve the relationship and opens the door to real change.

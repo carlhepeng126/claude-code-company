@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Direct criticism in the Republic of Congo, particularly when delivered in front of others, does more than embarrass the person receiving it. It damages their standing in the group and disrupts the relational fabric that holds teams together. Dignity is maintained through community, and public critique fractures that connection. Feedback is therefore given through suggestion, careful framing, and diplomatic language that allows the recipient to receive the message without losing face. A manager might raise a concern by describing what went well before gently noting what could be reconsidered, or by using a third-party example that mirrors the issue without naming the person directly.
+
+The expectation of indirectness is reinforced by a long history of authoritarian rule, in which open disagreement with those in positions of power has often carried real consequences. Employees have learned that speaking up, especially upward, can be risky. This context shapes how feedback flows in both directions. A manager from a culture where blunt, immediate correction is seen as helpful may find that their directness in Congo-Brazzaville prompts silence or withdrawal rather than dialogue. In return, a Congolese colleague may interpret that same directness as disrespectful or hostile, signaling a disregard for relationship and rank.
+
+Creating space for honest conversation requires deliberate effort. It will not happen simply by asking for openness in a meeting. Build trust first through consistent, private dialogue and by modeling restraint in how feedback is given. When addressing performance concerns, frame them around shared goals and group outcomes rather than individual shortcomings, and always do so away from the wider team.

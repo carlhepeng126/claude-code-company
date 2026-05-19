@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+In Kazakhstan, the meal table is where relationships are built and social order is quietly enacted. Rooted in nomadic hospitality traditions, business meals are less about transactional efficiency and more about showing care, establishing trust, and demonstrating respect. The abundance of the table, known as the *dastarkhan* (a spread of food offered to guests), reflects the host's capability and goodwill. For guests, praising the food and the effort behind it completes a reciprocal exchange that goes beyond politeness. This dynamic means that arriving ready to appreciate what's offered, and expressing that appreciation warmly and specifically, builds the foundation for productive collaboration.
+
+Seating and service often follow hierarchy, with elders or senior figures seated in places of prominence and served first. This is visible even in contemporary business settings, where age and status shape the rhythm of the meal. A colleague accustomed to egalitarian table etiquette may find this formality unexpected, while a Kazakh counterpart might read an overly casual approach as a lack of awareness or respect. Following the host's lead on when to begin eating and where to sit avoids missteps.
+
+Meals are relationship-building moments, not just logistical breaks. Launching into business talk too early can feel abrupt. Let conversation flow naturally and allow the table to do its relational work before shifting to agenda topics. In traditional settings, certain dishes carry symbolic weight. *Beshbarmak* (boiled meat with dough), for instance, is reserved for significant occasions and explicitly linked to honouring guests. If it's served, recognize the gesture for what it is: a mark of respect and an invitation into deeper connection.

@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Clothing in Malaysia conveys respect, modesty, and identity in ways that shift considerably across state lines and social settings. In more conservative states like Kelantan and Terengganu, public modesty holds more moral weight, and what reads as appropriate dress there can feel quite different from the mixed, globally styled norms of Kuala Lumpur or Penang. This variation reflects Malaysia's pluralism and the different levels of Islamic public presence across regions. Misjudging the "moral climate" of a place can affect how seriously you're taken before a word is spoken.
+
+In business settings, men typically wear dark trousers with a light, long-sleeved shirt and tie, often without a jacket given the heat and humidity. A short-sleeved shirt without a tie is increasingly common, but read the room before easing into that. Women are expected to dress modestly: covered upper arms, no visible cleavage or midriff, and skirts or trousers that fall below the knee. This isn't about religious imposition for non-Muslims but about shared norms of respectability in professional space. For formal events or official functions, a batik shirt for men signals cultural fluency and respect.
+
+Traditional textiles like songket, a UNESCO-recognized heritage fabric, appear at ceremonies and formal occasions. Wearing them signals not just formality but cultural pride and tradition. During festivals like Hari Raya, Lunar New Year, Deepavali, or Kaamatan, festive dress becomes a visible expression of Malaysia's plural identity. Participation through clothing is less about individual style and more about showing respect within a shared public rhythm. Yellow, associated with royalty, is fine in everyday life but best avoided during royal events or when meeting royalty.

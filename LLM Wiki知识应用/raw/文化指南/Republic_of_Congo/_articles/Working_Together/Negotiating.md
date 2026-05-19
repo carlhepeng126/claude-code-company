@@ -1,0 +1,9 @@
+# Negotiating
+
+## Working Together
+
+Negotiations in Republic of Congo are understood as the deepening of a relationship rather than the closing of a transaction. The relationship has to be in place before the deal can move forward, which means several early meetings may focus on connection rather than contract terms. Congolese counterparts do business with individuals, not companies, so keeping your negotiating team consistent strengthens trust. The decision maker should be present as much as possible, since someone standing in for them can be easily overruled, and progress made with a subordinate may not hold.
+
+There is a long cultural memory of what principled negotiation looks like. The Kingdom of Kongo negotiated with the Portuguese as sovereign equals in the fifteenth century, and the contrast with later exploitation has not been forgotten. Today, the French commercial presence in oil, timber, and construction is widely felt as extractive. Foreign negotiators who appear to maximize their own position with minimal investment in the relationship tap into a deep cultural wariness. High-pressure tactics fit a pattern that Congolese counterparts have seen before and learned to distrust. Demonstrating genuine orientation toward mutual benefit and giving the process time to unfold shows that you understand what kind of relationship you are trying to build.
+
+The foreign partner is typically expected to make the first concession or commitment to signal seriousness. Only after this happens are Congolese counterparts likely to negotiate the finer details. Ask for a detailed explanation of how they will deliver their side of the agreement, and be clear about the checks and balances you have in place. A strong sense of face means immediate agreement may reflect politeness rather than commitment, so distinguish genuine friendship from opportunism and follow up to confirm what has been agreed.

@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Disagreements in Ivory Coast are rarely addressed head-on. Open confrontation risks causing a loss of face, which can fracture relationships and damage reputations in ways that linger well beyond the original issue. This creates a workplace culture where problems are often signaled indirectly. A colleague may begin to ignore you, become suddenly unavailable, or you may hear through a third party that tension exists. Reading these cues requires attention to shifts in tone and access, especially for colleagues from cultures where concerns are raised directly in the moment.
+
+When a problem does surface, resolution typically flows through intermediaries rather than across the table. Bringing in a respected third party, ideally someone of higher rank, allows both sides to preserve dignity while working toward a solution. Framing the conversation through stories or hypothetical scenarios rather than blunt statements of fault helps keep the exchange constructive. The goal is not to assign blame but to find a way forward that lets everyone leave the room with their standing intact.
+
+Ivoirians express emotion freely in many contexts, but this openness does not extend to workplace conflict in the same way. Anger or frustration may be felt deeply, yet the professional response is often measured and oblique. For a colleague accustomed to clearing the air through direct exchange, this can feel evasive. From the Ivorian side, launching straight into criticism without giving the other person room to adjust may come across as aggressive or disrespectful, especially if hierarchy is involved.

@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Dress expectations across the three islands are shaped by climate, tourism infrastructure, and strong ties to the Netherlands. Bonaire, with its dive-focused economy and year-round heat, runs more casually than the other two. Business meetings often happen in smart casual attire: neat collared shirts, clean trousers or skirts, closed-toe shoes. Full suits are rare outside of formal government interactions or legal settings. The informality reflects the island's small size and the outdoor, service-oriented nature of much of its work. On Sint Eustatius and Saba, where public sector roles dominate and communities are even smaller, dress leans slightly more conservative. A buttoned shirt or blouse signals professionalism, even if a tie or jacket isn't expected.
+
+Arriving underdressed to a first meeting can create doubt about how seriously you take the relationship. People judge readiness and respect partly through presentation, especially when dealing with counterparts from the Netherlands or other formal business cultures. If you're unsure, err toward tidier and more covered. Shorts and flip-flops belong at the beach, not in an office or town hall.
+
+Evening events or dinners hosted by local officials may call for something dressier, particularly on Saba where social occasions carry more formality. A tailored dress or pressed trousers with a smart shirt will fit the tone. In contrast, casual beach bars and dive shops across all three islands welcome relaxed clothing, though neatness still registers. The balance across settings is practical modesty paired with awareness of context.

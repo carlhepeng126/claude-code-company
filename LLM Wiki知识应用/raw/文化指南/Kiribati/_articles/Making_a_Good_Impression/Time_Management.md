@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Kiribati, time follows the rhythm of tides, not schedules. This is a culture shaped by atoll life, where fishing, planting, and gathering depend on natural cycles rather than fixed hours. Time is measured in relationships and shared obligations, not deadlines. Rushing is seen as a lack of respect for the people you are with, and punctuality as understood in industrial economies often feels secondary to ensuring that everyone involved feels acknowledged and included.
+
+Meetings rarely start at the stated time. Gatherings begin when enough people have arrived and the social conditions feel right, a reflection of the communal decision-making embedded in Kiribati's *maneaba* (community meeting house) tradition. This is not disorganization. It reflects a belief that collective presence and consensus matter more than clock time. For colleagues from cultures where meetings begin promptly and agendas are followed closely, this can feel like indifference to efficiency. From a Kiribati perspective, insisting on starting before everyone is ready can seem dismissive and transactional.
+
+There is also a practical reality. Infrastructure challenges, irregular transport, and limited telecommunications mean that rigid scheduling often breaks down. Flexibility becomes a necessity, not a preference. If you set a hard deadline without building in time for these realities, you may create frustration on both sides. Instead, confirm timing more than once, allow buffer room, and recognize that delay does not mean disinterest. It often means someone is managing competing priorities within a tightly interconnected community where saying no is culturally difficult.

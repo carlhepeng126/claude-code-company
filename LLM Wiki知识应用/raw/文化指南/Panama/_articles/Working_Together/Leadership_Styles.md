@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Panama's history with the canal produces a recurring question about legitimacy: can this person protect Panamanian control and decision-making authority? Leaders are often evaluated on whether they uphold agency, particularly when international actors or strategic interests are involved. In canal-corridor workplaces and institutions, this translates into a preference for operational competence. Authority is earned through system awareness, the ability to anticipate constraints, and the capacity to deliver under pressure. If you lead in these settings, demonstrate that you understand the complexity and can act on it. Competence anchors respect.
+
+Away from Panama City, leadership often blends capability with representation. In interior towns, leaders may be custodians of local pride and continuity, mobilizing people through shared identity and family connection. Being "from here" and understanding the social fabric can shape legitimacy as much as formal credentials. In Afro-descendant communities, leadership may be read through how someone holds identity and community memory, especially where history involves resistance and resilience. In Indigenous comarcas, authority is frequently collective, territorially grounded, and protocol-led. Recognition comes from within the community, and governance structures operate on their own terms. External credentials alone do not confer standing.
+
+Formality remains a thread across settings. Senior figures are addressed with *usted* (the formal "you"), and age and experience are respected. Younger leaders may face skepticism unless they demonstrate both capability and awareness of hierarchy. A manager who knows their team's family situations and shows concern beyond the task builds loyalty, but deference to rank remains visible. In multinationals, structures may flatten, but the instinct for formality persists.

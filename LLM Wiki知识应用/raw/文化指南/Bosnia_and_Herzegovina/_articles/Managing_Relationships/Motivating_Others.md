@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+Motivation in Bosnia and Herzegovina grows from the strength of personal relationships and a sense of shared trust, not from targets alone. People give more when they feel genuinely connected to their manager and to the team around them. A leader who takes time to understand someone's family commitments, who offers a word of thanks in the moment, or who acknowledges effort in front of colleagues builds the kind of loyalty that formal incentive schemes rarely achieve. Recognition works best when it feels personal and sincere, and when it reflects the reality that professional life does not sit apart from home and community.
+
+Rigid deadlines and top-down pressure tend to backfire. The war and its aftermath left a deep wariness of formal structures and a preference for flexibility over control. People are more likely to disengage than push through if a timeline feels arbitrary or if it forces them to sacrifice time with family. Managers who adapt schedules when circumstances shift, and who frame expectations as part of a collaborative effort rather than a demand, will see steadier commitment.
+
+What energizes someone often depends on age, location, and sector. Younger professionals in Sarajevo or in international companies may respond to opportunities for training or career advancement. In smaller towns or public institutions, stability and the respect that comes with a secure position may matter more. Across all settings, the drive to uphold family reputation runs deep, and decisions about how hard to work or which opportunities to pursue are shaped by what those choices mean for the people closest to them.

@@ -1,0 +1,162 @@
+[
+  {
+    "id": 1,
+    "h1Section": "Making a Good Impression",
+    "h2Article": "Making Contacts & Scheduling Appointments",
+    "displayOrder": 1,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 2,
+    "h1Section": "Making a Good Impression",
+    "h2Article": "Forms of Address",
+    "displayOrder": 2,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 3,
+    "h1Section": "Making a Good Impression",
+    "h2Article": "Dress Code",
+    "displayOrder": 3,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 4,
+    "h1Section": "Making a Good Impression",
+    "h2Article": "Business Etiquette",
+    "displayOrder": 4,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 5,
+    "h1Section": "Making a Good Impression",
+    "h2Article": "Time Management",
+    "displayOrder": 5,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 6,
+    "h1Section": "Meetings & Presentations",
+    "h2Article": "Business Meeting Culture",
+    "displayOrder": 6,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 7,
+    "h1Section": "Meetings & Presentations",
+    "h2Article": "Effective Presentations",
+    "displayOrder": 7,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 8,
+    "h1Section": "Meetings & Presentations",
+    "h2Article": "Business Entertaining",
+    "displayOrder": 8,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 9,
+    "h1Section": "Meetings & Presentations",
+    "h2Article": "Being a Host & Guest",
+    "displayOrder": 9,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 10,
+    "h1Section": "Meetings & Presentations",
+    "h2Article": "Business Lunch & Dinner",
+    "displayOrder": 10,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 11,
+    "h1Section": "Working Together",
+    "h2Article": "Teamwork",
+    "displayOrder": 11,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 12,
+    "h1Section": "Working Together",
+    "h2Article": "Leadership Styles",
+    "displayOrder": 12,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 14,
+    "h1Section": "Working Together",
+    "h2Article": "Sharing Information",
+    "displayOrder": 13,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 15,
+    "h1Section": "Working Together",
+    "h2Article": "Negotiating",
+    "displayOrder": 14,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 16,
+    "h1Section": "Working Together",
+    "h2Article": "Decision-Making",
+    "displayOrder": 15,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 17,
+    "h1Section": "Managing Relationships",
+    "h2Article": "Feedback and Coaching",
+    "displayOrder": 16,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 13,
+    "h1Section": "Managing Relationships",
+    "h2Article": "Delegating & Supervising",
+    "displayOrder": 17,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 18,
+    "h1Section": "Managing Relationships",
+    "h2Article": "Motivating Others",
+    "displayOrder": 18,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 19,
+    "h1Section": "Managing Relationships",
+    "h2Article": "Managing Conflict & Disagreements",
+    "displayOrder": 19,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  },
+  {
+    "id": 20,
+    "h1Section": "Managing Relationships",
+    "h2Article": "Managing Suppliers & Customers",
+    "displayOrder": 20,
+    "isActive": true,
+    "createdAt": "2026-04-15T11:10:16.000Z"
+  }
+]

@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information in Turkish workplaces moves through relationships and hierarchy, not just formal channels. Decisions and strategic detail typically rest with senior managers, particularly in family-run or traditional firms, before filtering downward. Day-to-day operational information flows freely among peers, but who knows what is often tied to role and rank. This structure reflects both respect for authority and the practical reality that senior leaders hold responsibility for outcomes and therefore control the context others need to act on.
+
+Personal trust opens doors that org charts cannot. A colleague who knows you, trusts your discretion, and believes your intentions are sound will share far more readily than any reporting line requires. Building credibility with key intermediaries accelerates access to informal networks where much of the real context lives. If you bypass relationship-building and rely only on formal requests, expect slower responses and less nuanced information. Rapport comes first; detail follows.
+
+Multinational firms in Turkey tend to layer structured updates, documentation, and broader transparency onto this relational foundation, while local companies may favor direct manager-to-manager conversation for anything sensitive. The practical implication is to confirm early who owns a decision, who needs to be informed, and what can be shared widely. A colleague from a culture where information is distributed evenly across teams may find the gatekeeping frustrating, while a Turkish counterpart working abroad may perceive open-access systems as chaotic or careless with sensitive knowledge.

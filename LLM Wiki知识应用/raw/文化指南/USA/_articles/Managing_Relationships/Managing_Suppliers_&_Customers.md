@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+High staff turnover shapes how supplier and customer relationships are built in the USA. While personal connections with individual contacts remain useful, they cannot be relied on as the foundation. The person you worked with may move on within a year or two, so the relationship must also exist at the company level. This means documenting agreements clearly, maintaining multiple points of contact, and ensuring continuity through systems rather than individual memory. For colleagues from cultures where business relationships are deeply personal and continuity is expected, this can feel impersonal or transactional. From the American side, investing too heavily in one relationship without institutional backup can seem risky given the likelihood of change.
+
+Americans expect to be actively sold to. Presenting your offering with confidence, clear value propositions, and strong communication skills is standard practice, whether you are pitching a product or defending a contract renewal. Diplomacy and tact still apply, but understatement or waiting to be asked rarely works. At the same time, results matter more than charm. Many companies formalize this through feedback loops, treating suppliers and customers as partners and consulting them on service improvements or product design. This collaborative framing reflects a pragmatic focus on mutual benefit rather than deference or formality.
+
+Customer service varies sharply by context. In face-to-face settings like restaurants, enthusiasm and attentiveness are common. On the phone or online, cost-cutting often leads to frustrating automated systems and limited human support. The culture leans increasingly toward self-service, which can surprise visitors expecting more direct assistance. This unevenness reflects a broader tension between efficiency and personalization, with the former usually winning in high-volume environments.

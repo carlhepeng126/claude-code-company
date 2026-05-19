@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Zambia gain legitimacy through consultation and alignment, often more than through formal procedure alone. The logic draws from *insaka* traditions, where counsel and collective listening precede public resolution. Agreement is built behind the scenes, so that when a decision is announced it reflects shared understanding rather than individual assertion. This means that clarity on next steps often comes after quiet discussion, not within the meeting itself. A colleague from a culture where decisions are made quickly in a single session may read this as slowness or avoidance, while a Zambian colleague may read the other approach as disregard for input and a risk to group cohesion.
+
+Formal authority exists and is respected, but influence often sits outside the organizational chart. In some contexts, particularly in community-linked sectors or regions such as Western Province, traditional structures including chiefs can be meaningful reference points. Mapping who needs to be involved means looking beyond job titles and understanding informal networks. Rushing to a public yes or no can create discomfort, because it leaves no room for private reflection or realignment. Allow space for consideration, and avoid forcing closure before the group is ready.
+
+Feasibility filters are strong. Infrastructure constraints, distance, and resource availability shape what feels realistic. Proposals are tested against local workability, so framing options with practical constraints in mind shows you understand the context. Confirm decisions clearly once reached, and follow up with agreed actions to ensure shared interpretation.

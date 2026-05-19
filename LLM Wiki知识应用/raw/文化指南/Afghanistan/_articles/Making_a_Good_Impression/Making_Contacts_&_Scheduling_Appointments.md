@@ -1,0 +1,11 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+In Afghanistan, professional relationships are built on personal trust developed through family, tribal, or community networks. Decades of conflict and political instability have deepened reliance on these established ties. Before any formal business discussion begins, people need to know who you are connected to and whether your word can be relied on. That's why a personal introduction from a mutual contact opens doors in ways that cold emails or phone calls rarely do. The intermediary is providing a form of assurance, linking your reputation to theirs, and that shared accountability forms the basis for engagement.
+
+Scheduling meetings works best when arranged through these same trusted channels. Confirm appointments well in advance, then follow up the day before. Expect timings to shift. A meeting scheduled for ten in the morning may begin at eleven, or it might be moved entirely if family obligations or community matters arise. This flexibility reflects deeply held values around family and social duty, which take precedence over work schedules. Building buffer time into your calendar and arriving prepared to wait shows understanding of these realities.
+
+Younger professionals in Kabul, especially those working in international organizations or NGOs, may be more comfortable with direct contact and tighter scheduling. But even in these settings, the introduction still matters. In rural or more traditional areas, initiating contact without an intermediary can be met with caution or polite delay. Gender also shapes access. Men typically arrange and attend meetings with men, while women may find it easier to connect through female colleagues or community leaders, depending on the sector and region.
+
+If you're already in the country and a contact is nearby, an in-person visit accompanied by a trusted colleague can move things forward faster than weeks of remote correspondence. Showing up demonstrates commitment and gives people a chance to assess you directly, which remains the most credible form of introduction.

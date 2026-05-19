@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Brunei Darussalam is given carefully, with close attention to dignity and the preservation of harmony. Direct criticism, especially in front of others, risks causing shame and damaging relationships in ways that are difficult to repair. Managers typically frame developmental conversations indirectly, often through suggestion or by asking questions that allow the person to arrive at the insight themselves. A supervisor might say, "Perhaps we could look at this approach again," rather than pointing out an error outright. This indirectness reflects the importance of face and the expectation that professional relationships remain smooth and respectful.
+
+Negative feedback is always delivered in private, and usually only after trust has been established. Even then, it will likely be softened with appreciation or framed as a shared reflection rather than a personal shortfall. Positive feedback, by contrast, is given more freely, though it too is often understated. Public praise can feel uncomfortable if it singles someone out too sharply, as this may disrupt group cohesion or create awkwardness among peers.
+
+For colleagues from cultures where feedback is expected to be direct and immediate, this approach can feel vague or incomplete. They may leave a conversation unsure whether a concern has been raised at all. From a Bruneian perspective, a blunt style can seem unnecessarily harsh and may be read as a lack of respect or emotional intelligence. Recognizing this difference means adjusting both how feedback is given and how silence or indirectness is interpreted during coaching conversations.

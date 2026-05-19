@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+Disagreement in Uganda is rarely aired openly, especially in professional settings where harmony protects both reputation and ongoing relationships. Conflict can spread beyond the immediate parties, affecting networks and standing in ways that take time to rebuild. This makes containment and indirect resolution socially intelligent, especially where community and workplace overlap. Addressing tensions early and privately helps prevent escalation, while public disagreement risks embarrassment that may harden positions rather than resolve them.
+
+When tensions do surface, the language used affects how quickly they can be defused. Calm, face-protecting phrasing that focuses on the issue rather than the person allows room for adjustment without accusation. Switching into a local language during a difficult conversation can soften the tone and signal belonging, though it can also sharpen meaning depending on the relationship and context. A colleague from a setting where disagreements are resolved through direct, one-to-one exchanges may read this indirectness as evasion, while someone from Uganda may experience that directness as confrontational or destabilizing, particularly where trust is still being built.
+
+Third-party mediation is a recognized and legitimate approach. Elders, faith leaders, or other respected intermediaries are often brought in to help parties move forward without loss of dignity. This is grounded in long-standing practices of communal problem-solving, and can be especially steadying in contexts shaped by past insecurity, where unresolved conflict can feel more threatening than procedural. After resolution, relational repair through brief check-ins, respectful resets, and clear agreements helps restore working trust.

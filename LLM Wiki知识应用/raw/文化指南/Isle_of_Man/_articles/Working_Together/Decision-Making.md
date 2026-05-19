@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making on the Isle of Man reflects the island's small size and strong relationship culture. Most significant decisions involve consultation with people whose judgment is trusted, and this process often happens informally before any formal meeting takes place. The goal is to arrive at a shared view that takes account of how a decision will affect the people involved, not just the business outcome. In a community where professional and personal networks overlap, a decision that disrupts relationships or overlooks local sensitivities can create friction that lingers well beyond the boardroom.
+
+Senior figures tend to guide the direction of decisions, but their authority is exercised through influence rather than directive control. A managing director or department head will typically sound out key individuals privately, testing ideas and adjusting plans based on what they hear. By the time a decision is formalized, the real work of alignment has already been done. This can leave colleagues from cultures where decisions are made quickly and transparently in meetings uncertain about when input is genuinely welcome and when the outcome has already been shaped.
+
+For those working with Manx counterparts, the practical implication is clear: if you want to shape a decision, engage early and relationally. Waiting for a formal discussion means you are joining a conversation that has already moved forward. At the same time, Manx professionals working with colleagues who favor rapid, top-down decisions may find the lack of consultation abrupt, even dismissive, particularly when it affects people they know well.

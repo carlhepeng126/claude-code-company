@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+The language of "reto" — being told off by a boss — still echoes in Chilean workplaces, though its meaning is shifting. Older managers may default to scolding or irony when something goes wrong, treating correction as a form of discipline. Younger professionals, by contrast, expect structured, respectful feedback and tend to see harshness as unprofessional. The gap reflects a generational transition in how authority and development are understood, and it shows up in how people receive criticism and whether they stay engaged afterward.
+
+Face protection runs deep in Chilean professional life. Being made to look "chanta" — incompetent or unreliable — in front of colleagues is remembered long after the moment passes, replayed in jokes and stories. Even mild public correction can damage credibility and trust. For this reason, tough conversations should happen one-on-one, framed around what happened, what the effect was, and what needs to change. Once the issue is being addressed, public acknowledgment of progress helps restore standing without dwelling on the mistake.
+
+Chileans value being seen as "serios y responsables" — serious and reliable — and this self-image shapes how they respond to feedback. While national self-critique is common, individuals often deflect personal blame, pointing instead to unclear instructions, missing resources, or "the system." This reflects a desire to protect competence in the eyes of others, but it also suggests that responsibility may genuinely be shared. Before concluding that motivation or ability is the issue, check whether expectations were clear and support was adequate. Framing feedback as a two-way review of what worked and what didn't makes space for honest reflection without triggering defensiveness.

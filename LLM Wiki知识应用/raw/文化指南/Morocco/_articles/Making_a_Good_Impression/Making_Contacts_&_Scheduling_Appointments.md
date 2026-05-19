@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Making contact in Morocco often works best when someone can place you. A warm introduction through a mutual acquaintance, colleague, or existing partner gives your approach immediate credibility, grounding you in a network rather than arriving as a name in an inbox. This reflects a wider social tradition where reputation and relationships have long been assessed through who can vouch for you, how you are known, and where you sit within existing circles of trust. Cold outreach can succeed, especially in international firms or younger professional networks, but a connection that arrives with context usually moves more smoothly.
+
+When arranging a meeting, confirm the appointment a day or two beforehand and build space into your schedule. Meetings may start later than planned, extend beyond their allotted time, or include unscheduled visitors. Avoid booking appointments tightly back to back. Friday holds particular weight as a day of communal prayer, and during Ramadan the rhythm of work shifts noticeably, with shorter or adjusted hours common across public and private sectors. Plan around these cycles rather than assume a uniform calendar.
+
+The opening of a meeting often includes tea and unhurried conversation. This is neither formality nor delay. Sharing mint tea and exchanging personal remarks before business begins establishes warmth and mutual regard, qualities that make the commitment feel real. For a colleague from a culture where appointments begin with the agenda, this opening might feel indirect, even inefficient. From a Moroccan perspective, moving straight to business without this relational grounding can feel abrupt, as though the person matters less than the transaction.

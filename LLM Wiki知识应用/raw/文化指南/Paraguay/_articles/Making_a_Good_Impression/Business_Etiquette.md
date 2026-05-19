@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+Business interactions in Paraguay begin with warmth and formality in balance. Titles and polite forms of address open the door, but tone shifts quickly toward personal connection once comfort is established. The transition from courtesy to closeness can feel fast to colleagues from cultures where professional distance is maintained longer, but in Paraguay's high-overlap networks, where reputational memory runs long, that early warmth is relational scaffolding. Small talk about family, football, or cultural events is not filler. It establishes whether someone is approachable, considerate, and socially fluent before business detail is introduced.
+
+Indirectness protects dignity in public settings. Paraguayans avoid blunt disagreement or visible confrontation, especially in groups where embarrassment can leave lasting impressions. Messages are often conveyed through tone, pauses, or careful phrasing rather than stated outright. A colleague from a culture where decisions are debated openly and disagreement voiced directly may read this as evasion or lack of clarity. From the Paraguayan side, that directness can feel unnecessarily harsh, even risky, in a context where protecting face and preserving harmony allow for smoother collaboration over time. Reading what is unsaid requires watching for shifts in body language, steady but softer eye contact with seniors, and changes in conversational rhythm.
+
+Tereré sharing, Paraguay's ritual of passing cold yerba mate in a communal cup, is structured social infrastructure in many workplaces. It follows a turn-taking order and functions as both refreshment and trust-building, rooted in Guaraní herb knowledge and a broader ethic of sharing as social glue. Accepting when offered, even briefly, shows willingness to participate in the group. Declining repeatedly can feel like choosing distance.
+
+Business cards are exchanged with attention to form. Present them with your right hand or both, text facing the recipient, and take a moment to read what you receive before putting it away. Cards printed in Spanish on one side, English on the reverse, show preparedness. Clean, unbent cards reflect professionalism in a culture where first impressions and careful presentation still hold meaning.

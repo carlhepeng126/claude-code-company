@@ -1,0 +1,11 @@
+# Motivating Others
+
+## Managing Relationships
+
+Eritrea's workplace culture is shaped profoundly by decades of conflict, compulsory national service, and tight state control. Many professionals have spent years in national service roles with little autonomy or reward, creating a widespread sense of exhaustion and resignation. In this context, motivation cannot rely on appeals to ambition or long-term career growth alone. What energizes people is a sense of immediate fairness, visible recognition from someone they respect, and the feeling that their contribution is noticed and valued by those who have authority over their daily reality.
+
+Financial incentives have real impact, especially given the economic strain many families face, but they work best when paired with genuine acknowledgment. A manager who thanks someone by name in front of colleagues, or who gives credit for a well-executed task in a meeting, taps into the deep respect for honor and personal reputation that runs through Eritrean society. Public recognition affirms standing, and it reassures the individual that their effort has meaning beyond the task itself.
+
+Strict timelines or aggressive targets often backfire. After years of obligatory service with little personal return, many people are wary of pressure that feels imposed from above without explanation or relationship behind it. A colleague from a culture where tight deadlines drive performance may read this as disengagement, while someone from Eritrea may read relentless urgency as dismissive of their dignity and circumstances. Framing goals collaboratively, explaining the why behind a deadline, and adjusting expectations where possible will generate more commitment than pushing harder.
+
+Younger professionals working in international organizations may respond to opportunities for skill development or exposure to new contexts, particularly if those pathways feel achievable and not contingent on political connections. Across settings, what sustains effort is the combination of respect, fairness, and the assurance that loyalty and contribution will be remembered.

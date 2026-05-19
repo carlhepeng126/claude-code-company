@@ -1,0 +1,11 @@
+# Teamwork
+
+## Working Together
+
+Teamwork in the Philippines is shaped by *kapwa*, a core relational orientation sometimes translated as "shared personhood." This idea runs deeper than cooperation. It positions the group as part of the self, with *pakikisama* (smooth getting-along), *hiya* (face or dignity sensitivity), and *utang na loob* (reciprocal care) acting as everyday practices that maintain belonging and moral balance. Cohesion is felt less as a preference and more as a responsibility. Any workplace group quickly takes on the warmth and expectations of extended family. Colleagues share personal news, check in on each other's relatives, and expect managers to remember birthdays and ask after sick parents. Interpersonal skill often ranks as high as technical ability when hiring.
+
+Because the Philippines is an archipelago with many ethnolinguistic regions and religious communities, including Catholic majorities and Muslim populations in the south, teams are often quietly multi-cultural. What feels normal in Manila may read as too direct in other regions, and humor or hierarchy may land differently depending on someone's background. Treating diversity as expected rather than incidental helps teams function well across these differences. Clarifying unstated assumptions and avoiding "one Manila style" as the default makes space for the full team to contribute.
+
+The widespread experience of overseas work has made asynchronous collaboration familiar. Many Filipinos maintain family closeness across continents using messenger apps and staggered communication. This shows up in the workplace as comfort with handoffs, short summaries, and distributed coordination. Distance is not treated as a breakdown in connection but as a normal condition to design around.
+
+Public disagreement or visible correction can trigger *hiya*, so input often comes more easily through side channels than in open meetings. Inviting contributions through chat, written follow-up, or one-on-one check-ins alongside group discussion gives people who avoid public conflict a safe path to voice. Shared credit and inclusive language support the relational foundation teams depend on.

@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Fiji is deeply shaped by traditional structures of chiefly authority and communal obligation. In many parts of the country, particularly in iTaukei communities, chiefs hold inherited positions grounded in genealogy and custom, and their authority extends beyond the ceremonial into everyday decision-making. This hierarchical pattern influences workplace expectations, where leaders are often seen as guardians of group harmony and welfare rather than simply decision-makers. Respect for seniority and position runs deep, but it comes with an implicit expectation that leaders will act in the collective interest and look after those in their care.
+
+At the same time, consultation is valued, though it often takes place informally and behind the scenes. A leader who makes unilateral decisions without engaging key stakeholders, particularly elders or senior team members, risks being seen as disrespectful or disconnected. Input may be sought in private conversations or through trusted intermediaries rather than in open forums, and the final decision will still rest with the person in authority. For a colleague from a culture where decisions are made quickly and independently, this can feel slow or opaque. From a Fijian perspective, a leader who moves too fast without soundings may appear reckless or dismissive of the relational fabric that sustains the team.
+
+There is also growing variation across sectors and generations. Younger professionals, particularly in urban centers and private companies, may expect more participative styles and direct communication, while older or more traditional settings continue to prioritize deference and indirect influence. Understanding where your team or organization sits on that spectrum will shape how openly input is invited and how decisions are communicated.

@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In Croatia, professionalism shows up in how carefully people present themselves. Appearance reflects attention to the relationship, and turning up to a meeting looking crisp and well-groomed tells your counterpart that the occasion warranted effort. In Zagreb and in formal sectors like banking, government, or larger corporates, smart business or business-casual dress is the norm: shirts, blouses, jackets, neat trousers or skirts. The standard is restraint rather than flash, and neatness rather than luxury. On the coast, particularly in summer, fabrics lighten and formality relaxes slightly, but the expectation of looking put-together remains. Even in hospitality or creative industries, where dress leans more casual, people still avoid appearing careless. If you're meeting executives or attending a session in a ministry, add a jacket even if others seem slightly more relaxed. The gesture won't go unnoticed.
+
+Sector and setting shape expectations. In tourism or younger industries, the look is more laid-back, but professional settings across the country still expect you to avoid anything that reads as touristy. Flip-flops and beachwear belong on the beach, not in the office, even when the office is ten minutes from the sea.
+
+For events tied to the Homeland War or national ceremonies, dress becomes noticeably more formal, often including subtle national symbols. Looking too informal at a commemoration will stand out for the wrong reasons. If your visit coincides with a war anniversary or state event, ask your host what's expected and err toward respectful formality.

@@ -1,0 +1,11 @@
+# Leadership Styles
+
+## Working Together
+
+Authority in Algeria is treated with formal respect, but influence is earned through demonstrated fairness, consistency, and the protection of people's dignity. This dual reality has roots in older governance patterns, including Amazigh traditions where leaders were chosen for mediation skill and accountability to councils, not simply inherited power. That cultural memory sits alongside more recent experiences of centralized structures, creating a workforce that respects hierarchy while quietly evaluating whether a leader is competent, just, and trustworthy.
+
+A respected leader manages disputes without exposing anyone to humiliation. Public correction or blame can trigger deep mistrust, because leadership is judged not only by decisiveness but by whether it preserves group honor and cohesion. This means feedback should be given privately, and recognition framed collectively. In workplaces shaped by restorative logic, a leader who wins by shrinking others is seen as dangerous rather than strong. For colleagues from cultures where direct challenge or visible individual accountability is expected, this can feel like avoidance. From an Algerian perspective, a leader who humiliates is failing a moral test.
+
+Competence can outweigh title when it becomes visible. Leaders who demonstrate capability, calm judgment, and quality outcomes build credibility faster than those who rely on rank alone. Track record is watched closely. Where leadership trust has been historically disrupted, people may comply with authority while waiting for proof that promises are kept, decisions are fair, and power is not used arbitrarily. This creates a leadership environment where rhetoric alone does not convince.
+
+Regional variation matters. In areas with strong self-governance memory, such as Kabylie and Aurès, expectations of consultation and accountability can be sharper. Urban, state-linked environments may hold stronger hierarchical formality while still assessing credibility privately.

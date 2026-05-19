@@ -1,0 +1,9 @@
+# Time Management
+
+## Making a Good Impression
+
+In Eswatini, time management reflects social priorities rather than clock-driven precision. Relationships take precedence over schedules, and lateness is rarely interpreted as disrespect. This stems from a culture where maintaining harmony and attending to people in the moment holds more value than rigid adherence to timetables. A meeting may start late because a senior figure is still engaged in conversation elsewhere, or because greetings and informal exchanges need to happen before formal business can begin. Rushing past these rituals to protect the schedule can read as cold or dismissive.
+
+Punctuality expectations vary by sector and setting. International companies, NGOs, and government offices with donor-funded projects often operate on tighter timelines, and colleagues in these environments will usually arrive close to the scheduled time. In contrast, meetings in more traditional or rural contexts may begin significantly later, and deadlines may shift if family obligations or community events arise. Urban professionals with international exposure may hold themselves to stricter timelines, while those in smaller towns or family-run enterprises may view flexibility as both practical and courteous.
+
+For colleagues from cultures where schedules are firm and delays are seen as inefficiency, this fluidity can feel ambiguous. A counterpart from Eswatini, in turn, may find rigidly time-bound behavior transactional, as though the relationship matters less than the agenda. Building in buffer time, confirming meetings closer to the date, and focusing on progress over speed will make collaboration smoother without imposing an external rhythm that doesn't fit the local context.

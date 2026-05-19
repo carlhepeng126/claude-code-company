@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Appearance in Turkmenistan is governed by deep conservatism and a strong sense of what is appropriate to the setting. People dress formally in nearly all professional contexts, and the expectation is that you will do the same. Men typically wear dark suits and ties, women favour conservative dresses or tailored suits, and both avoid anything that draws attention through bright colour or casual styling. This reflects a culture where modesty and restraint are valued far more than individual expression, and where how you present yourself is read as a measure of your seriousness and respect for others.
+
+The government sector and state-linked industries maintain the most formal standards, and even in private companies or joint ventures, the baseline remains conservative. Arriving in business casual or anything too relaxed can signal a lack of regard for the occasion, even if that's not your intention. A colleague from a culture where dress codes have relaxed in recent years might read this formality as stiff or outdated, while a Turkmen counterpart may see informality as a failure to prepare or a sign that the meeting doesn't merit effort.
+
+Traditional clothing, especially at ceremonial or cultural events, often includes embroidered fabrics and headwear that reflect regional and ethnic identity. These are not everyday wear in business settings, but noticing and respecting them when they do appear can open conversation and show awareness of local pride. Women's dress leans heavily toward modesty in all contexts, and covering shoulders and knees is expected, particularly in any setting with religious or ceremonial significance.

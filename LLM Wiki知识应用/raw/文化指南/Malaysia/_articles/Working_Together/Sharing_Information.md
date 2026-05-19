@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information moves through layers in Malaysian workplaces, shaped by long-standing concerns about face, appropriateness, and relationship safety. What gets shared, when, and with whom reflects pengurusan air muka, the careful management of dignity that protects both the person speaking and the person being spoken about. Information that might expose someone to embarrassment or criticism is often softened, delayed, or routed through private channels instead of shared in open forums. The logic is relational. The right audience is part of respect, and sharing too broadly can violate that even when the facts themselves are accurate.
+
+Budi, a moral framework that evaluates communication through intention and tone, means the how matters as much as the what. A colleague might hold back not because they distrust you, but because the setting feels too public or the phrasing too blunt. In meetings, questions that could imply someone made a mistake or didn't know something often go unasked. To a colleague from a culture where open debate signals engagement, this can read as disengagement or lack of accountability. From a Malaysian perspective, a rapid-fire questioning style can seem aggressive and socially careless, prioritizing speed over the quality of the relationship.
+
+These patterns coexist with newer expectations, especially in knowledge-driven sectors where cross-functional collaboration is part of the job. Younger professionals and multinational teams may share more openly, but the underlying preference for dignity-safe channels remains. If you need honest feedback or sensitive updates, create space for it in smaller settings or one-on-one conversations. Broadcasting a problem in a large group chat or all-hands meeting will often produce silence, not because the information isn't valued, but because the forum doesn't fit the content.

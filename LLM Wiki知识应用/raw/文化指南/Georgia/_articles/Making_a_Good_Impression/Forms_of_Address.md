@@ -1,0 +1,9 @@
+# Forms of Address
+
+## Making a Good Impression
+
+In Georgia, formal titles and respectful forms of address reflect the enduring influence of hierarchy and age-based respect in professional relationships. This approach stems from both Soviet-era workplace structures and older Georgian traditions that place emphasis on seniority and social standing. In business settings, people typically use a first name combined with a patronymic (a name derived from the father's first name). For example, a man named Giorgi whose father is Irakli would be addressed as Giorgi Iraklievi, while a woman named Nino whose father is Levan would be called Nino Levanovna. This form signals both familiarity and respect, and is standard in meetings, emails, and introductions.
+
+Shifting to first names alone happens gradually and often only after a relationship has been established over time. Younger professionals in international companies may move to first names more quickly, especially when working with foreign colleagues, but this remains less common in traditional sectors like banking, government, or state-owned enterprises. Colleagues from cultures where first names are used immediately may interpret the continued use of patronymics as distant or overly formal, while Georgians may read the rapid shift to first names as presumptuous or lacking in respect for the relationship-building process.
+
+Professional titles such as "Professor" or "Doctor" are used consistently and with genuine regard, particularly in academic, medical, or scientific fields. Dropping a title once it has been introduced can feel dismissive. In written communication, even informal emails often retain a level of formality in salutations and closings, especially when addressing someone senior or outside your immediate team.

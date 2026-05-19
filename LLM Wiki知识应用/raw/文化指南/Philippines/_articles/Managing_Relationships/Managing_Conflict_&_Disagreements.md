@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+In the Philippines, conflict threatens two things at once: a person's dignity and the relationship itself. *Hiya* (the visceral fear of shame) and *pakikisama* (the norm of getting along) discourage open confrontation, especially in front of others. Within the *kapwa* frame, where personhood is understood as relational, a public disagreement can feel like an attack on shared identity rather than a technical difference. This means issues are often softened, routed through indirect signals, or held back entirely in the hope they will resolve without escalation.
+
+Managers may learn of problems only after they have grown serious, because raising them earlier would risk causing embarrassment. When conflict must be addressed, it should happen privately and with language that focuses on impact and next steps rather than personal fault. Framing concerns as shared responsibility using "we" rather than "I" reduces the sense of individual blame and reinforces group continuity. Reprimanding someone in view of colleagues inflicts *hiya* and can damage trust across the team, not just with the person involved.
+
+In situations where direct conversation feels too charged, a respected intermediary such as a senior colleague or mentor can de-personalize the exchange and create room for adjustment without loss of face. This is especially useful in mixed regional or faith contexts, where blunt handling can map a workplace disagreement onto deeper identity sensitivities. The goal is not simply to resolve the issue but to restore smoothness and allow everyone involved to stay in the group with dignity intact.

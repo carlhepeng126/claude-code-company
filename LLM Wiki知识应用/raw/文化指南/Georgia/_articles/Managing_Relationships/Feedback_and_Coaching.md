@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Georgia tends to be direct, but framed with personal warmth and delivered in private to protect individual dignity. Georgian professionals generally say what they think, especially among trusted colleagues, but the relationship around the conversation often determines how openly someone can speak. A manager might point out a mistake clearly, but will usually do so one-on-one and with enough personal context to soften the tone. Public criticism risks damaging someone's standing in front of the group, which can be hard to repair. If you need to raise a performance issue, schedule a separate conversation rather than addressing it in a team setting.
+
+Coaching often works best when it's informal and tied to relationship rather than process. Georgians may be wary of formal performance review systems that feel imported or bureaucratic, particularly if they seem disconnected from the human reality of the work. A structured rating form can come across as impersonal in a culture where trust is built through personal connection. Instead, ongoing, conversational guidance that acknowledges both the person and their contribution tends to resonate more deeply. A short check-in over coffee may carry more weight than an annual appraisal.
+
+Praise is appreciated and can be shared more publicly, especially when it reinforces group morale. Recognizing someone's effort in front of their colleagues shows respect and builds goodwill. But even positive feedback should feel genuine and grounded in the relationship, rather than formulaic or transactional.

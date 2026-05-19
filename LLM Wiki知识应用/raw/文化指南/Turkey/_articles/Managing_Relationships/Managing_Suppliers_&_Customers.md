@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Lasting commercial relationships in Turkey rest on personal connection and responsive service, often more than on price or contract terms. Customers expect a real contact person who answers quickly and follows through consistently. Suppliers judge whether you are reliable by how you behave between transactions, not just during negotiations. This emphasis on the quality of the relationship reflects a broader expectation that business partners show up for each other. A company offering the best price but slow responses or rotating account managers will lose ground to a competitor who is present and accessible.
+
+Turkey's consumer base varies sharply by region, income, and urban setting. International brands find ready acceptance in Istanbul, Ankara, and Izmir, while smaller cities and rural areas prioritize practical value and local reputation. A single marketing message or distribution model rarely works across the country. Segment by geography and tailor your offer accordingly. What succeeds in one city may need rethinking fifty kilometers away.
+
+Supplier negotiations often unfold over several rounds as both sides clarify terms and ownership. Agreements may be reached verbally before documentation catches up, so confirm decisions in writing and set simple reporting rhythms. Issues surface more quickly when accountability is visible and escalation routes are agreed in advance. A local partner or representative can manage language, documentation, and the informal checks that keep supply chains moving, but even with a team on the ground, regular touchpoints from your side maintain the relationship. Face-to-face meetings accelerate trust, yet steady follow-up between visits often determines whether the partnership holds.

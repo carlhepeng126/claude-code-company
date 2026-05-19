@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Ecuador's professional life is deeply shaped by a tradition of personalised authority. Leaders are expected to take responsibility for their people, not just coordinate tasks. This means decisions flow from the top, but the best leaders consult widely before deciding. The model is more paternal than purely directive: a good manager knows their team, shows concern for personal circumstances, and earns loyalty through care as much as competence. This style has roots in both hacienda-era social structures and ongoing expectations of how authority should be exercised with warmth and personal accountability.
+
+What can appear to outsiders as slow decision-making often reflects this consultative layer. A manager from a culture where speed and clarity are prized might see the rounds of informal conversation as delay. But from an Ecuadorian perspective, skipping that relational groundwork risks appearing cold or autocratic. The consultation isn't always about changing the outcome, but it does serve a real function: it maintains group cohesion, signals respect, and allows the leader to assess mood and readiness before moving forward.
+
+Younger professionals and those in multinational firms may expect more participation and transparency, especially in urban centres like Quito or Guayaquil. But even in these settings, leadership remains relational. Delegating without staying visibly involved can be read as disinterest. If you manage Ecuadorian colleagues, stay present, check in regularly, and frame decisions with context. If you report to an Ecuadorian leader, expect access but understand that final calls will likely rest with them.

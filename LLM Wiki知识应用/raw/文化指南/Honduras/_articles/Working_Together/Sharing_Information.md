@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Information sharing in Honduras flows more freely within trusted relationships than through formal channels. Personal connection drives access to knowledge. A new colleague from a culture that prioritizes transparency across organizational levels might interpret this as inefficiency or gatekeeping. From a Honduran perspective, routing sensitive updates through someone well-known to the recipient ensures the information will be received well and used appropriately. Trust determines who knows what, and that trust is earned through consistent behavior, not job title alone.
+
+Hierarchies shape what gets shared and when. Junior staff may hesitate to pass difficult news upward, particularly if it involves admitting mistakes or challenging timelines. This reflects a broader cultural emphasis on respect for authority and preserving harmony within the team. A colleague who values directness might read this hesitation as avoidance, while a Honduran colleague might view blunt escalation of problems as disrespectful or poorly timed. Building rapport with team members and checking in informally makes it easier for people to raise concerns before they become crises.
+
+Regional and generational differences affect openness. Younger professionals in Tegucigalpa or San Pedro Sula, especially those working in multinational firms or tech sectors, are generally more comfortable with transparent cross-departmental communication. In smaller towns or more traditional industries, information still tends to stay within close networks. Acknowledging this variation means adjusting your approach depending on where and with whom you are working, rather than assuming one communication style fits every setting across the country.

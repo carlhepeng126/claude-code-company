@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+In French Guiana, professional dress reflects the formality of French administrative culture combined with adaptation to a tropical climate. In government offices, regional agencies, and established businesses, formal attire remains expected even in high heat and humidity. Men typically wear long trousers with a collared shirt, often adding a tie or lightweight suit jacket for meetings with officials or senior figures. Women choose tailored dresses, blouses with skirts, or business trousers. The emphasis rests on looking neat and composed, signaling that the interaction warrants preparation and seriousness.
+
+The climate shapes how formality is interpreted. Light fabrics and paler colors appear more often than in mainland France, and short sleeves are widely accepted in most office settings. Removing a jacket after formal introductions is common, especially in buildings without consistent air conditioning. Still, the instinct leans toward overdressing rather than underdressing. A colleague accustomed to business casual in warmer regions may find the level of formality surprisingly persistent, while someone from French Guiana working in a more relaxed coastal setting elsewhere might read informality as lack of commitment to the relationship.
+
+Coastal towns and smaller communes tend to be less formal than Cayenne, and younger sectors like ecotourism or digital services allow more flexibility. Even in these contexts, arriving at a first meeting in shorts or overly casual wear risks appearing dismissive. If you are uncertain, dress one level more formally than feels necessary. The effort itself communicates respect for the person and the occasion, and adjusting downward later is easier than recovering from a first impression that felt too relaxed.

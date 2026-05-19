@@ -1,0 +1,11 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Eating together is how relationships move forward in Malaysia. Meals provide the setting where trust is built and character observed, often more effectively than formal meetings. Invitations to lunch or dinner, especially once initial rapport has been established, should be taken seriously. Accepting when you can strengthens the bond, because sharing food is one of the main ways belonging and goodwill are expressed. Your counterparts will be forming a picture of you during these occasions, watching how you interact, what you ask about, and how you respond to hospitality.
+
+Restaurants are the most common venue, and the choice of setting often reflects the importance of the relationship. A Chinese host may organize a multi-course banquet with several tables if the occasion is significant, while Malay or Indian hosts might prefer a more intimate gathering where the quality of the meal and the warmth of the conversation take center stage. Bringing a small gift, particularly for a formal dinner, is a thoughtful gesture. Alcohol may or may not be served depending on who is present. Many Malaysians drink socially, others abstain for religious reasons. Wait and follow your host's lead rather than ordering ahead of the group.
+
+Halal certification is treated with considerable seriousness, especially in majority-Muslim contexts. It is not simply a dietary preference but a trust system tied to religious authority and public legitimacy. If you are hosting, check quietly that the venue is halal-certified or ask your Malaysian colleagues for guidance. Getting this wrong, even unintentionally, can undermine the relationship you are trying to build.
+
+Do not push to discuss business unless your host opens the door. The gathering itself is often the point. Conversation may range widely and business may come up only briefly, or not at all. Reciprocating the invitation, either during your visit or on a future occasion, is expected and appreciated.

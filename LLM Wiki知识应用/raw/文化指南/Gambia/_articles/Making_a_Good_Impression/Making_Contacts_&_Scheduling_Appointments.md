@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Building a professional contact in The Gambia begins with relationship, not agenda. In a society where extended family, community networks, and long-standing personal ties shape most aspects of life, the idea of doing business with a stranger feels incomplete. People want to know who you are, who you know, and whether you can be trusted before any formal engagement takes shape. A personal introduction from someone already known and respected can open doors that a cold email never will. In practice, this might mean a colleague arranging an informal meeting over tea, or a mutual contact bringing you along to a gathering where connections form naturally before any business is discussed.
+
+Appointments should be made in advance, ideally a week or two ahead, but flexibility is essential. Meetings may start later than scheduled, run longer than planned, or be joined by colleagues who weren't originally mentioned. This reflects a relational rather than transactional approach to time. A colleague from a culture where schedules are tightly controlled may read the late start as disorganization, while a Gambian counterpart may read rigid timekeeping as a lack of interest in the people in the room. Both are working from different ideas about what respect looks like in a professional setting.
+
+Urban professionals in Banjul, particularly younger people working in international firms or NGOs, may adopt more structured scheduling and respond well to email. Outside the capital and in smaller towns, face-to-face contact remains the preferred route, and patience with process will serve you better than pushing for speed.

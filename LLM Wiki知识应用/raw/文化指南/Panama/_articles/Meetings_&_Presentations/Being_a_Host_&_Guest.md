@@ -1,0 +1,9 @@
+# Being a Host & Guest
+
+## Meetings & Presentations
+
+In Panama's interior towns, hosting reflects family pride and community standing. Where public celebration and craftsmanship have long been identity engines, being a good host means showing that you represent your people well. When you are hosted in these settings, appreciation is read as respect for that identity work. A visiting manager who engages thoughtfully with food, asks about local tradition, or acknowledges effort is understood to recognize what is being offered. Those from cultures where hosting is kept minimal or purely functional may read this as elaborate or formal, while colleagues from interior Panama may interpret a lighter or more casual approach as disengagement.
+
+In Panama City's canal corridor, hosting is often pragmatic and smooth. Mobility and diversity are normal here, and people tend to be skilled at welcoming newcomers and managing mixed groups without fuss. Warmth and ease should still be understood as professional courtesy, and friendliness does not mean boundaries are absent.
+
+In Indigenous comarcas, visiting follows protocol. Being a guest means recognizing territorial authority, following community rules, and understanding that legitimacy is collective. Respect is shown through process, including proper introduction and acknowledgment of local governance, rather than through tone alone. In Afro-descendant communities, hosting can be expressive and welcoming, but also identity-protective. Respect includes listening carefully and exercising care with representation, rather than assuming familiarity.

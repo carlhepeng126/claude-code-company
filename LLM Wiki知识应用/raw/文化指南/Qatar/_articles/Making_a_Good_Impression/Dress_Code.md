@@ -1,0 +1,9 @@
+# Dress Code
+
+## Making a Good Impression
+
+Clothing choices in Qatar reflect modesty and dignity as public virtues. In an Islamic state, how people present themselves in professional and citizen-facing settings tends toward composure and restraint rather than individual expression. This aesthetic isn't simply about following rules. It reflects a shared moral grammar where visible modesty signals respect for the community and the setting. Choose conservative silhouettes with good coverage, especially in government buildings, formal meetings, and any context where Qatari nationals are hosting. That means shoulders and upper arms covered, skirts or trousers that reach below the knee, and colors that stay muted rather than eye-catching.
+
+National dress also functions as an emblem of identity. Many Qatari men wear the thobe (a white ankle-length shift) and ghutra (a head cloth held in place by the agal). Qatari women often wear the abaya and shayla in public. For them, these garments represent heritage and belonging, particularly in formal or official spaces. Expatriates are not expected to adopt national dress, and doing so can feel performative. Instead, aim for tailored business wear that communicates professionalism without drawing attention.
+
+Doha's cosmopolitan surface can be misleading. Expectations shift by zone. International hotels or mixed expatriate environments allow more flexibility, but government offices, family-hosted gatherings, and religious periods like Ramadan call for a more conservative visual register. Treat the setting as the variable and adjust without making a show of it. The climate adds a practical wrinkle: outdoor heat encourages light fabrics, but indoor air-conditioning runs cold. Packing a jacket or shawl prevents discomfort and keeps focus on the conversation, not the temperature.

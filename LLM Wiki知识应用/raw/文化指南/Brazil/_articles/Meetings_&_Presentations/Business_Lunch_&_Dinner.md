@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals in Brazil serve a social function that goes well beyond the exchange of information. Shared food builds connection, and the quality of the relationship often determines whether collaboration will move forward. Regional cuisines vary widely, from moqueca (a seafood stew from the coast) to feijoada (a hearty pork and bean dish with African and Portuguese roots) to churrasco (grilled meat). Choosing a restaurant that reflects local pride can signal respect, and showing curiosity about what you're served tends to be well received. While Brazil has no widespread dietary restrictions, some Evangelicals avoid alcohol, so it's worth checking preferences discreetly in advance.
+
+Conversation during meals typically weaves together personal updates, humor, and lighter business topics. Launching straight into negotiation or sticking rigidly to the agenda can feel transactional and may slow trust-building rather than speed it up. A colleague from a culture where meals are brief and task-focused may read this conversational range as unfocused or inefficient. From a Brazilian perspective, the same colleague's directness at the table may come across as distant or overly formal, making it harder to assess whether the person is genuinely committed to the relationship.
+
+Meals often last two to three hours, especially lunch, which is traditionally the main meal of the day. Dinner may start late and run even later. Trying to wrap things up quickly or signaling impatience can undermine the rapport you're there to build. Let the conversation move at its own pace, particularly at the start and end of the meal, and follow your host's lead on when to shift to business discussion.

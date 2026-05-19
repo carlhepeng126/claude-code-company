@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+When nsima appears at a business meal in Malawi, it does more than fill a plate. Made from maize flour and water, nsima is eaten daily in many households and functions as what Malawians describe as an emotional link within the family. Serving it in a professional setting acknowledges that everyday dignity and continuity, rather than presenting "local cuisine" as a curiosity. The meal is culturally incomplete without ndiwo, the relishes that accompany it: vegetables, beans, fish, or meat. The choice of ndiwo often reflects what a household grows, can afford, or prefers, so asking about the accompaniments shows awareness of where hospitality effort actually shows up.
+
+Fresh fish from Lake Malawi, particularly chambo, anchors much of Malawian cuisine and often comes with a layer of lakeshore pride and connection to place. In cities, international restaurants offer Chinese, Indian, and other cuisines, but a meal built around lake fish and nsima situates the conversation differently. It treats the food as a real meal rather than a marker of difference, and appreciation tends to land more firmly because it's tied to everyday life rather than performance.
+
+Malawians typically drink wine or beer at formal restaurant dinners, with South African wines common, though expensive. People do not get drunk when dining for business, and evenings are unlikely to move to nightclubs, though some hotels and restaurants feature live or recorded music. Tea is popular throughout the day, and thobwa, a sweet traditional drink, may also be offered. These smaller shared moments, particularly tea, create relational ease without formality.

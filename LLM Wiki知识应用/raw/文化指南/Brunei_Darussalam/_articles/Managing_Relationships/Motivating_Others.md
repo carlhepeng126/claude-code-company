@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+Motivation in Brunei flows through recognition that respects hierarchy and reinforces belonging. Public acknowledgment from a senior figure gives weight to someone's contribution in a way that peer praise or written feedback alone cannot replicate. When a manager takes the time to thank someone in front of the group or highlights their effort to a director, it affirms both the individual's competence and their standing within the team. Loyalty deepens when people see that their work strengthens the reputation of the group and the relationships within it.
+
+Financial reward alone rarely sustains commitment. Brunei professionals respond more strongly to environments where respect, harmony, and personal connection are maintained alongside fair compensation. A manager who checks in personally, who remembers family circumstances, and who invites input rather than issuing instructions will draw out more discretionary effort than one who leads through targets and oversight. Trust is built through consistency and care, and once it exists, people will stretch themselves to meet expectations.
+
+Rigid deadlines and performance pressure often backfire. Work in Brunei follows a more relational and adaptive rhythm, where family obligations and the unpredictability of daily life shape how time is used. Pushing for speed or imposing fixed timelines without flexibility can be read as disrespect for what people are managing outside the office. A manager from a culture where urgency drives execution may interpret this as lack of drive, while a Bruneian colleague may see that same urgency as disregard for balance and relationships. Flexibility, paired with clear direction, brings people along more effectively than urgency alone.

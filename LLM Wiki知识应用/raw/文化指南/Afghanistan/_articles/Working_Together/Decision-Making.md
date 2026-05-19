@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decisions in Afghanistan unfold through multiple layers of consultation, often involving family, tribal elders, religious figures, and trusted advisors. Even when a formal leader has final authority, they rarely announce conclusions without first testing the ground through these networks. This reflects a cultural logic rooted in collective responsibility and social interdependence. A decision that bypasses consultation risks being seen as illegitimate, regardless of its technical merit. In professional settings, this means that even after a meeting appears to have reached agreement, the real work of securing buy-in may still be taking place through private conversations and informal channels.
+
+The process can feel slow to colleagues from cultures where decisions are made quickly by individuals or small groups. What may read as delay or indecisiveness is actually a form of risk management, ensuring that decisions have broad support and will not fracture relationships or destabilize group cohesion. From an Afghan perspective, a rapid decision made without consultation may seem reckless or disrespectful, bypassing the social fabric that gives any plan its chance of success.
+
+Authority remains concentrated, particularly among senior men, but that authority functions through facilitation more than unilateral command. A leader's role is to listen, synthesize input, and arrive at a conclusion that reflects collective thinking while maintaining their formal position. Understanding this means allowing time for consultation, engaging key figures early, and recognizing that influence often flows through informal channels before it surfaces in formal ones.

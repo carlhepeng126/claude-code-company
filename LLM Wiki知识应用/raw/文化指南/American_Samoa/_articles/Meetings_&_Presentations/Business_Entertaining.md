@@ -1,0 +1,9 @@
+# Business Entertaining
+
+## Meetings & Presentations
+
+Business meals in American Samoa are less about the formality of the occasion and more about demonstrating genuine respect for fa'asamoa, the Samoan way of life. When a business contact invites you to share food, the invitation itself acknowledges the relationship and creates an opportunity to strengthen it outside the structure of a meeting. These gatherings may take place at a family home, a local restaurant, or a community setting, and the location often reflects the host's intention to include you in their wider circle.
+
+Conversation during meals ranges broadly and may touch on family, church involvement, or local events before any mention of work. Business topics typically arise only after the relationship has been affirmed through shared experience, and the host usually decides when and whether to introduce them. Raising work matters too early can feel transactional in a context where the quality of the relationship determines the success of the partnership. If the host keeps the conversation on personal ground, the meal is doing its work.
+
+Food itself is often abundant, and hosts may encourage guests to eat more than they might expect. Accepting what is offered with visible appreciation shows respect for the effort involved. If the meal takes place in a home, it may include extended family members or community figures, reflecting the collective nature of decision-making and trust-building in American Samoan professional life. Reciprocating the invitation, whether during your visit or on return, acknowledges the care taken and reinforces the relationship.

@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leadership in Guinea-Bissau is shaped by a deep respect for seniority and an expectation that decisions flow from the top. Authority tends to be concentrated, and most managers prefer to maintain clear control over key choices. This reflects both the legacy of hierarchical governance structures and the influence of elder-led social systems, where age and position determine who speaks and when. In professional settings, particularly in government ministries and older state institutions, leaders are expected to guide firmly and be the final voice on major matters.
+
+At the same time, consultation happens more often than outsiders might assume. Leaders typically listen to input from senior colleagues and long-serving staff before deciding, especially on issues that affect team cohesion or community ties. This is less about shared decision-making and more about preserving relationships and honoring those whose loyalty and experience have earned them a hearing. A manager may ask for views around the table, acknowledge contributions warmly, and still reach the conclusion they had in mind from the start. For colleagues from cultures where consultation implies real influence over outcomes, this can feel hollow. From a Guinea-Bissau perspective, the process itself affirms respect and belonging, even when the decision was never in question.
+
+Younger professionals, particularly those with experience abroad or in NGOs, sometimes expect more collaborative styles. But challenging a senior figure openly, or pressing for a decision to be revisited based on group input, risks being read as disrespectful. If you need to offer a different view, frame it privately and position it as support rather than critique.

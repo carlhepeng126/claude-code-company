@@ -1,0 +1,9 @@
+# Feedback and Coaching
+
+## Managing Relationships
+
+Feedback in Guinea-Bissau is shaped by the need to protect dignity and maintain group harmony in a society where reputation and social standing are closely guarded. Criticism, even when constructive, can be interpreted as a personal affront, particularly if delivered publicly or in a way that isolates the recipient. Managers and colleagues tend to approach difficult conversations with care, often framing concerns indirectly or using a third party to soften the message. This reflects a broader cultural emphasis on preserving face and avoiding open confrontation, especially in settings where relationships extend beyond the workplace into family and community networks.
+
+Coaching conversations often happen informally rather than through structured performance reviews. A manager might raise an issue in passing, use humor to deflect tension, or ask a trusted colleague to speak quietly with the person involved. This approach can feel vague to someone from a culture where feedback is expected to be direct and documented, but in Guinea-Bissau it allows the recipient to reflect and adjust without feeling singled out or shamed. Understanding that the indirectness is intentional, and that it serves to keep the working relationship intact, helps avoid misreading the exchange as evasive or unclear.
+
+Positive recognition is welcomed, especially when shared within the group. Public praise reinforces contribution without creating resentment, and it strengthens team cohesion. If negative feedback is necessary, it should be given privately, framed gently, and focused on the situation rather than the person. Patience with the pace of change is also practical, as adjustments may be discussed with family or peers before being acted on.

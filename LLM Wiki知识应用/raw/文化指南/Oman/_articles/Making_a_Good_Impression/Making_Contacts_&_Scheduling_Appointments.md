@@ -1,0 +1,9 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Access in Oman often runs through majlis networks and trusted figures rather than corporate front doors. The majlis, a traditional gathering space where families and communities meet, remains the social architecture for introductions, referrals, and endorsements. A respected sheikh, senior merchant, or long-standing official may quietly decide whether your approach is worth supporting. A warm introduction through one of these networks opens doors that cold emails and LinkedIn messages rarely reach. Ask Omani partners which families, tribal figures, or majlis circles are relevant to your project and work through them. Referrals from someone experienced and successful in the market create a foundation of trust that speeds the entire process.
+
+Oman is not a single network. Muscat-based circuits, where ministries, state-owned enterprises, and large corporates operate, function differently from interior Ibadi and tribal networks around Nizwa, Ibri, and Bahla, and from Dhofari networks centered on Salalah and the frankincense trade. Each has its own elders, business families, and ways of assessing risk. If your project involves the interior or Dhofar, plan your contacts accordingly and recognize that the routes to credibility may look very different from the capital.
+
+Strategic access usually lies with Omani citizens in government, family firms, or royal and tribal circles. Expat managers often sit in front-of-house roles and can serve as useful bridges, but invest time in building relationships with the Omani decision-makers who hold long-term influence. When scheduling, expect appointments to remain loose until you arrive in the country. Confirming times by day rather than hour is common, and meetings may be joined by others or shift in focus. Keep your schedule flexible and avoid back-to-back bookings.

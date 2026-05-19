@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+Decision-making in Switzerland reflects the country's deeply rooted political culture of consultation and consensus. Just as referendums and public debate shape national policy, workplace decisions involve gathering input from those who will be affected. This is more than politeness. It reflects a belief that those closest to a task hold insight that improves the outcome, and that wide consultation reduces the risk of decisions being overturned or resisted later. The process can feel slow, especially to colleagues from cultures where speed and authority are prioritized, but the trade-off is durability. Once a decision has been reached, it stands.
+
+Colleagues are expected to contribute their views, but this happens within clear roles and structured frameworks. Senior leaders still hold formal authority, and final decisions rest with them, but they consult before concluding. Pushing a decision through without input, or using pressure tactics to accelerate the process, will damage your credibility. If you want to shape the outcome, involve yourself early in the project and contribute substantively to the discussion. Staying silent until the end and then objecting will not be well received.
+
+Risk aversion also shapes the pace and depth of deliberation. Switzerland's tightly regulated environment and low tolerance for uncertainty mean that new ideas are scrutinized carefully before being adopted. This does not mean innovation is unwelcome, but it will be tested against what is already known to work. Proposals that acknowledge existing structures and demonstrate thoroughness are more likely to gain traction than those presented as urgent or disruptive.

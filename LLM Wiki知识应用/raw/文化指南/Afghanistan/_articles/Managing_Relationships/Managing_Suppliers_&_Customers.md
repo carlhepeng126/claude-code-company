@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Business relationships in Afghanistan rest on personal connection before contractual commitment. Suppliers and customers expect to build trust through repeated face-to-face meetings, shared meals, and expressions of loyalty that extend well beyond the formal scope of a transaction. A contract alone offers little reassurance if the relationship itself has not been properly established. This means investing time in getting to know your counterpart, asking about family, and demonstrating through your presence that the partnership holds value beyond price or delivery timelines.
+
+Decisions about suppliers or agreements with customers often involve senior figures whose approval reflects not just commercial logic but considerations of kinship, regional affiliation, and long-standing obligation. A procurement choice that appears straightforward on paper may be deferred or redirected because the decision-maker has inherited responsibilities to a particular family or community. A colleague from a setting where supplier selection follows transparent competitive processes may find this opaque. From the Afghan perspective, the colleague's focus on process over person can seem transactional and disconnected from the realities that sustain trust in uncertain conditions.
+
+Expect timelines to shift and terms to be revisited as circumstances change. Flexibility in the face of external pressures, whether political, economic, or social, reflects pragmatism rather than unreliability. Contracts may be honored in spirit more than letter, with adjustments negotiated quietly and personally rather than through formal amendments.

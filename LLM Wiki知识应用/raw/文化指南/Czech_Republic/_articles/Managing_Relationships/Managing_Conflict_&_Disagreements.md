@@ -1,0 +1,9 @@
+# Managing Conflict & Disagreements
+
+## Managing Relationships
+
+When tensions rise, many Czech colleagues pull back rather than confront directly. Frustration often shows up first as withdrawal, dry sarcasm, or meticulous but cold compliance with rules. By the time someone raises their voice, the issue has usually been building quietly for weeks. This restraint reflects both a cultural preference for keeping emotion out of the workplace and a longer history in which open complaint was risky or ineffective. The result is that conflict can simmer under the surface until it either resolves informally or boils over suddenly.
+
+When a directive feels absurd, some people shift into what is known as *Švejk* mode, named after the fictional character who obeys foolish orders to the letter to expose their impracticality. They comply with exaggerated literalness, all the while swapping stories about past reforms that failed. If you notice initiative draining away or hear colleagues rehearsing past disasters, ask directly what will happen if the plan is followed exactly as written. That question can surface unfiltered objections and give you room to adjust before passive resistance sets in.
+
+Formal mediation sessions or emotional "clear the air" meetings tend to make people more guarded. Real reconciliation more often happens over beer in a smaller circle, where someone can say "We overreacted" without an audience. If you sense a rift, a quiet coffee or a walk may repair it faster than an official process. Keep the tone steady and the focus specific. People open up more when the conversation feels structured and respectful, not theatrical.

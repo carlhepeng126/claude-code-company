@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+In Denmark, motivation rests on a tacit social contract that mirrors the country's broader civic bargain. People accept high taxes because they receive security, services and genuine say in how things run. The workplace equivalent is clear: effort in exchange for stability, real influence over how work gets done, and a life outside the office. When that balance breaks, so does motivation. A manager who expects weekend responsiveness or quietly rewards those who skip vacation will find engagement drop sharply. Security here means predictable contracts and transparent terms. Autonomy means genuine input on process and timing, not just symbolic consultation.
+
+Overt internal competition tends to fall flat. Leader boards, aggressive sales rankings and public comparisons can feel childish or damaging to many Danes, who respond better to intrinsic drivers like solving a meaningful problem, improving a system or being trusted to deliver without micromanagement. Team goals and visible craftsmanship matter more than individual glory. A colleague from a culture where public recognition and competitive rankings fuel performance may read this as low ambition or weak accountability. From the Danish side, constant tournaments can look like a failure to trust people to care about their work without being prodded.
+
+Leisure is not a perk to be bargained away for extra commitment. Time for the summer house, sailing, choir, children's football or simply a protected Friday afternoon is central to what it means to be a functioning adult. A role that regularly eats into that time will be experienced as an attack on identity, not just inconvenience. Younger Danes especially are motivated by employers who take climate action, equality and inclusion seriously, but only when the commitments are backed by concrete choices. Surface claims are spotted quickly and punished with disengagement.

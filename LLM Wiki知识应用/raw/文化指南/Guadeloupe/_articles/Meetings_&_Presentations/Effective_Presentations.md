@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Presentations in Guadeloupe succeed when they prioritise connection over precision. French is the professional standard, and your delivery should balance clarity with warmth. Audiences respond to presenters who show genuine interest in collaboration rather than pushing a predetermined outcome. This reflects a relational culture where trust develops through conversation, not polish. A heavily rehearsed pitch may come across as impersonal or overly transactional, while a more conversational tone invites engagement. If you're presenting to colleagues who value relational depth before commitment, plan time for dialogue rather than rushing through slides to a conclusion.
+
+Hierarchy shapes how questions and feedback surface. Senior figures may listen quietly and speak sparingly during the presentation itself, while mid-level colleagues gather detail to share upward later. Don't interpret silence as disinterest or agreement. It often reflects respect or the need to consult before responding. Build in pauses and invite reflection rather than expecting immediate reaction. If key decision-makers aren't in the room, treat attending colleagues as trusted intermediaries, not passive listeners.
+
+Supporting materials should be visually clean and available in French. Dense text or jargon-heavy slides create distance and may slow comprehension. Use real examples or case studies to anchor your points in recognisable contexts. Guadeloupean professionals appreciate storytelling that illustrates intent and builds rapport, not just data that supports a business case. This approach reflects the value placed on understanding the person behind the proposal, not only the proposal itself.

@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Leaders in El Salvador tend to be directive and paternalistic, with decision-making centralized at the top. This style reflects both historical patterns of authority and a social structure where age, position, and family background shape credibility. Employees expect clear direction and often wait for explicit approval before acting, even on matters within their remit. A manager who distributes responsibility too quickly may find that team members hesitate or seek repeated confirmation, not because they lack capability but because they have been conditioned to defer to hierarchy as a mark of respect.
+
+Authority is rarely challenged openly. Disagreement, when it happens, is expressed indirectly or taken offline. Public contradiction of a leader can be read as personal disrespect rather than constructive input. For colleagues from cultures where debate is encouraged in meetings, this restraint can be mistaken for disengagement. From the Salvadoran perspective, a colleague who voices dissent too directly may seem confrontational or unaware of social codes that prioritize group harmony and the leader's standing.
+
+That said, many Salvadoran leaders also adopt a relational, personalized style. They take time to know their teams, show concern for family circumstances, and build loyalty through personal connection rather than process alone. This warmth coexists with formality. A leader may be affectionate and approachable in tone while remaining firmly in control of decisions. Younger professionals and those in multinational settings may push for more participatory approaches, but the default remains one where leadership is visible, protective, and centered.

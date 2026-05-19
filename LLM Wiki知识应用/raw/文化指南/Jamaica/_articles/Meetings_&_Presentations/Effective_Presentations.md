@@ -1,0 +1,9 @@
+# Effective Presentations
+
+## Meetings & Presentations
+
+Jamaican audiences respond to presenters who speak clearly and mean what they say. Storytelling helps ideas land, a reflection of how narrative works across Jamaican life to demonstrate understanding and build credibility without sounding preachy. A well-told example can prove a point as effectively as a slide full of data, especially when it shows you understand the reality on the ground. But the story must feel grounded, and your delivery needs to match. People read quickly whether you're being genuine or performing a role, and over-polished corporate language can raise doubt rather than confidence. If you can't say it simply, the argument may not be trusted.
+
+Practical benefits need to be stated upfront and tied to real outcomes. Audiences want to know what the proposal delivers over time and whether you're committed to showing up beyond the pitch. Someone presenting from a culture where abstract frameworks or principles take priority may find their Jamaican colleagues asking pointed questions about implementation, local impact, and follow-through. From the Jamaican side, a presentation heavy on strategy but light on specifics can feel like it's avoiding the substance.
+
+Register also shifts how you're heard. Standard English signals formality and professionalism, while more local phrasing can create ease and connection. The strongest presenters adjust depending on who's in the room, showing they can read context without code-switching awkwardly. Audiences will typically listen attentively without interrupting, but questions afterward are a good sign. Silence at the end may mean the case wasn't convincing or the connection didn't hold.

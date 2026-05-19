@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+Business meals on the Isle of Man tend to be straightforward and functional, though their informality shouldn't be mistaken for unimportance. The island's small size and close-knit business community mean that lunch or dinner meetings often serve a dual purpose: they move work forward while reinforcing the personal familiarity that underpins professional trust here. Colleagues from cultures where meals follow more formal protocols may find the tone relaxed, but the expectations are still there. Arriving late or treating the occasion casually can stand out in a place where reputation travels quickly.
+
+Venues are typically pubs, hotel restaurants, or cafes, especially in Douglas. The food itself is uncomplicated: seafood, meat dishes, and traditional pub fare feature regularly. Alcohol may be offered, particularly at evening meals, but there's no pressure to drink. What tends to define these occasions is the conversational rhythm. Discussion moves easily between work and personal topics, and business points are often introduced casually rather than signaled with a formal shift in tone. This blending reflects the island's preference for building relationships alongside getting things done, rather than separating the two.
+
+Manx colleagues generally expect meals to wrap up within a reasonable timeframe. Lingering for hours isn't the norm, and efficiency is valued even in social settings. That said, rushing through courses or steering every pause back to business can feel abrupt. The balance lies in being engaged but not overbearing, and in recognizing that even informal settings help establish whether someone is approachable and reliable over the long term.

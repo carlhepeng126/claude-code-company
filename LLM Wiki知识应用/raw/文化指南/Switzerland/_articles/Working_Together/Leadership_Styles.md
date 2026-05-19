@@ -1,0 +1,9 @@
+# Leadership Styles
+
+## Working Together
+
+Authority in Switzerland tends to look like stewardship rather than command. Shaped by direct democratic habits and a political tradition of concordance — where major forces are included and compromise is reached — leadership often feels more like coalition-building than unilateral decision-making. Leaders who make their process visible, explain how decisions were reached, and integrate different perspectives are more likely to be seen as credible. A charismatic vision presented without consultation can feel unearned, while careful guardianship of fairness and procedure reassures.
+
+This preference for integration is practical, not ceremonial. A manager from a culture where speed and clarity of direction are valued may find the emphasis on including stakeholders time-consuming or overly cautious. From a Swiss perspective, that same manager's decisiveness may seem dismissive or risky, bypassing the input needed to make a decision durable. The trade-off is deliberate: time spent building alignment reduces the likelihood of resistance later.
+
+Competence earns authority more reliably than personality. Switzerland's vocational and apprenticeship system reinforces the idea that credibility comes from demonstrated mastery and training, not confidence alone. Leaders are expected to arrive well-prepared, use evidence, and avoid overselling. Modesty often reads as seriousness. A measured, precise tone tends to carry more weight than expansiveness or storytelling. If you lead by example and show your reasoning, you are more likely to be followed.

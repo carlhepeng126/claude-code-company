@@ -1,0 +1,9 @@
+# Sharing Information
+
+## Working Together
+
+Lithuania's history of occupation and surveillance left a lasting imprint on how information moves. Decades of repression, where a misplaced word could bring serious consequences, created patterns of discretion that outlasted the Soviet period. Privacy and careful disclosure still feel like sound judgment, not evasion. This shows up in workplaces where colleagues may keep views contained until they know the room is safe, particularly in mixed settings where identity or politics could be interpreted in different ways.
+
+Brevity carries credibility. Speaking too much, especially early in a relationship, can read as unreliable or self-promoting. Colleagues tend to offer measured responses until trust develops, and pushing for rapid disclosure often slows the process rather than speeding it. A manager from a culture where immediate transparency builds trust may find a Lithuanian counterpart withholding detail, while the Lithuanian colleague may find the manager's openness premature and hard to assess. This restraint is not about concealing information, but about confirming that the other person will use it appropriately. Once that confidence is in place, sharing becomes more direct.
+
+Regional context shapes what feels safe to say and in which language. In the Vilnius region and in cities like Visaginas, where linguistic and social history differ from much of the country, the composition of the room can shift how openly people speak. Leaders working across Lithuania benefit from being attentive to audience and allowing time for trust to form before expecting full candor. Structured check-ins, clear confidentiality, and follow-through on commitments all help colleagues move from caution to collaboration.

@@ -1,0 +1,11 @@
+# Business Etiquette
+
+## Making a Good Impression
+
+In Tuvalu's small, relationally grounded professional environment, business etiquette flows from the understanding that everyone is connected. With a population of just over 11,000 spread across remote atolls, most people are related by blood or marriage, and trust is built through familial and community ties rather than formal credentials. This means that business interactions begin with establishing who you are in relation to others. Greetings are warm and unhurried, often involving inquiries about family and shared connections. Skipping this step to jump straight into business topics can seem transactional and disrespectful. A colleague from a culture where meetings begin with agenda items may find this pace inefficient, while a Tuvaluan counterpart may read a direct opening as dismissive of the relationship itself.
+
+Respect for hierarchy and elders shapes how meetings unfold. Deference is shown through tone, listening, and allowing senior figures to speak first and guide the direction of conversation. Interrupting or openly disagreeing with someone older or more senior, even if you hold a technical role, risks damaging the relationship. If you need to raise concerns, do so privately and indirectly, framing your point as a question or observation rather than a correction.
+
+Formality in dress and demeanor reflects the seriousness with which Tuvaluans treat professional settings. Conservative clothing is expected, and casual dress can be read as a lack of respect for the occasion. Punctuality, while valued in principle, is often flexible in practice due to logistical realities like boat schedules and community obligations. What appears as lateness is usually a reflection of the practical constraints of island life, and reacting with visible frustration will undermine goodwill.
+
+Gift-giving is not a formal part of business protocol, but small gestures of generosity, especially when visiting someone's office or home, are appreciated. These should be modest and offered with humility, as anything overly expensive can create discomfort or the appearance of obligation.

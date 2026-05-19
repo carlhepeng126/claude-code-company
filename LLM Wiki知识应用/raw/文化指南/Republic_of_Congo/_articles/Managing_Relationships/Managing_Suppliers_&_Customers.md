@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Supplier and customer relationships in the Republic of Congo are built on personal connection, earned through consistent presence and proven reliability over time. Loyalty attaches to individuals, not institutions. This means that if your main contact leaves a company, the relationship begins again with their replacement. A contract outlines intent, but the trust to make it work comes from repeated, face-to-face engagement and from demonstrating that you will follow through on what you say. Treating these partnerships as purely transactional will leave them brittle when difficulties arise.
+
+Foreign businesses often begin at a disadvantage. A long history of extractive commercial relationships, from French concessionary companies through to more recent oil and timber operations, has left a residual wariness of outsiders arriving to extract value and then leave. Countering this requires more than contractual fairness. It means showing up in person, investing time beyond the immediate deal, and demonstrating through your behavior that you are building something mutually beneficial. Email and phone calls can maintain a relationship once established, but they will not create the foundation.
+
+Clarity about expectations is equally valued, especially when working with suppliers who may lack resources you might assume are standard. Setting achievable deadlines with room for delay, explaining why timing matters, and offering training where needed all help build capability without undermining dignity. Close supervision is expected and appreciated when framed as partnership, not oversight. The goal is to create relationships that survive setbacks, and that only happens when the person you are working with trusts that you see them, not just what they can deliver.

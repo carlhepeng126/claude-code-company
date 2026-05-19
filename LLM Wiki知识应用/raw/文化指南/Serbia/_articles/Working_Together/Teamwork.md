@@ -1,0 +1,9 @@
+# Teamwork
+
+## Working Together
+
+Serbian teams are built on a social instinct that goes deeper than shared tasks. Kolo, the traditional chain dance performed at gatherings across Serbia, offers a useful frame: belonging is created through participation and shared rhythm, not simply by being in the same space. In workplace teams, this translates into a need for visible inclusion. People join the circle through small invitations, shared moments, and deliberate signals that they are part of the group. A colleague added to a project without those relational gestures may remain technically present but functionally outside.
+
+Warmth and seriousness coexist easily in Serbian teams. Kafanas, the civic-social spaces that have long served as Belgrade's commercial and social heart, are places where people eat, argue, celebrate, and mourn in the same evening. That emotional range shows up in how teams bond. Conversations can move quickly between humor and gravity, and trust forms through lived interaction rather than structured icebreakers. For a manager accustomed to keeping work and personal life cleanly separated, this can feel unfamiliar. From the Serbian side, a team that stays narrowly task-focused may seem distant or transactional, missing the relational foundation that makes collaboration sustainable.
+
+Serbia's census data highlights substantial minority language communities, including Hungarian and Bosnian speakers, and regional identities remain live. A team in Belgrade may include people whose first language, faith, or regional background differs noticeably. Checking language comfort quietly and avoiding assumptions about shared cultural reference points will prevent exclusion that might otherwise go unnoticed.

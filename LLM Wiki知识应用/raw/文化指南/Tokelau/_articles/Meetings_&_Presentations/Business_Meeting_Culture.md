@@ -1,0 +1,9 @@
+# Business Meeting Culture
+
+## Meetings & Presentations
+
+Formal business meetings are not part of traditional life in Tokelau. The three atolls—Atafu, Fakaofo, and Nukunonu—operate through village councils (*fono*) and communal decision-making structures where everyone who will be affected by an outcome has a voice. These gatherings are consensus-driven, often lengthy, and guided by elders. Decisions emerge through discussion and agreement rather than being imposed by a single authority, so the idea of a structured meeting with a fixed agenda and a clear endpoint may feel unfamiliar or rushed to someone rooted in this way of working.
+
+If you are arranging a meeting with a Tokelauan counterpart, especially one who has spent time in New Zealand or Samoa, expect some blend of communal practice and more linear meeting styles. Give plenty of notice and be clear about who should attend. In a culture where collective input is valued, inviting only one person to decide on behalf of others may create discomfort. If the topic affects a broader group, expect that person to consult widely before committing, even if that means the meeting itself does not produce an immediate answer.
+
+Allow time for relationship-building at the start. Tokelauans place high value on knowing who they are working with, and this is done through conversation, not presentations. Avoid pushing for quick decisions or treating silence as hesitation. What may seem like delay to someone from a culture used to fast turnarounds is often the space needed to reflect, consult, and honor the collective process that underpins trust and commitment in Tokelau.

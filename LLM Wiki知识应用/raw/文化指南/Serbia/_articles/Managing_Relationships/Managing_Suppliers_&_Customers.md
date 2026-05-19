@@ -1,0 +1,9 @@
+# Managing Suppliers & Customers
+
+## Managing Relationships
+
+Trust in Serbia spreads through networks and rests on reputation. People remember who honoured commitments, who showed up when it counted, and who treated others with respect. This has roots in Slava, the family saint's day tradition, where hospitality and reciprocal care are passed through generations and social circles. In business, that same logic applies: reliability becomes your calling card, and inconsistency gets noticed. If a deadline slips or a promise breaks, expect the news to travel. Build credibility by delivering what you say you will, communicating early when delays loom, and following through without chasing reminders. Referrals and repeat business often flow from this kind of consistency.
+
+Warmth and human presence often matter as much as speed. The kafana, the traditional tavern where community life has long unfolded, reflects a broader expectation that service should feel relational, not stripped down to pure efficiency. A supplier who responds quickly but coldly may be judged less favourably than one who takes slightly longer but stays engaged and respectful. Small gestures register: a personal check-in, a brief conversation before diving into business, an acknowledgment of effort. These communicate sincerity and signal that the exchange is between people, not just systems.
+
+Serbia's cultural diversity means customers across regions and communities may hold different expectations around formality, calendar rhythms, and what respectful service looks like. Don't assume one uniform customer profile. Check local calendars for religious observances and adjust communication style to the setting. In some contexts, a more formal tone may be expected; in others, directness and warmth work better. Taking the time to understand these differences shows respect and builds smoother working relationships over time.

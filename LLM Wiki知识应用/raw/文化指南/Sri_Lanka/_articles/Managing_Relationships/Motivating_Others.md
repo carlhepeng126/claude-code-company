@@ -1,0 +1,9 @@
+# Motivating Others
+
+## Managing Relationships
+
+Feeling respected, included, and valued as a capable contributor often does more to energize people in Sri Lanka than material rewards alone. Dignity and belonging run deep. When someone's effort is acknowledged clearly but without fuss, when they are invited to take on responsibility because they are trusted rather than because a deadline is looming, motivation grows. The goal is recognition that affirms competence, not public praise that forces someone into the spotlight. Many Sri Lankan professionals value modest capability and feel uneasy when asked to self-promote loudly. A manager who thanks someone specifically for their contribution in a quiet conversation, or who frames new responsibility as an expression of confidence, will often see stronger engagement than one who relies on performance bonuses or competitive rankings.
+
+For many people, work is tied closely to family wellbeing. Motivation can be linked to educating a sibling, supporting aging parents, or sustaining relatives through remittances. This does not mean everyone shares the same story, but where goals can be connected to collective benefit, without making assumptions, the sense of purpose deepens. A colleague from a culture where individual achievement is celebrated openly might read this focus on family as a lack of personal ambition. From a Sri Lankan perspective, a colleague who emphasizes only their own success might seem disconnected from the networks that sustain them.
+
+Religious festivals, Poya days, and the rhythm of the New Year bring both joy and obligation. Motivation can shift with these seasons, and bandwidth may naturally ebb when cultural or family commitments intensify. Planning around these rhythms, rather than treating reduced availability as disengagement, shows an understanding of how people balance work with the rest of life.

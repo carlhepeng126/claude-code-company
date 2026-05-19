@@ -1,0 +1,9 @@
+# Decision-Making
+
+## Working Together
+
+In Israeli organizations, particularly in the startup and tech sectors, decisions move fast. The cultural value of bitzuism — getting things done, making it happen — means that waiting for complete information is often viewed as overcaution rather than diligence. Israelis are comfortable with ambiguity and expect to course-correct as new information arrives. A decision made quickly and adjusted later is generally preferred to a slow, methodical one. This reflects a broader cultural comfort with risk and improvisation rooted in both national experience and the entrepreneurial ecosystem that has shaped much of Israeli professional life.
+
+Consensus still plays a role, especially in larger or more traditional organizations, but the process tends to be faster and more informal than in many European or Asian settings. Discussions are direct, opinions are voiced openly, and the goal is usually to move forward rather than to eliminate all uncertainty before acting. If you need a decision, ask clearly and state the timeline. Hinting or waiting for the right moment will slow things down more than the culture itself would.
+
+For colleagues from cultures where thorough analysis and consultation are standard before finalizing a decision, the Israeli approach can feel rushed or incomplete. From the Israeli side, a more deliberate process may come across as indecisive or overly cautious. Understanding that both approaches manage risk differently — one through speed and flexibility, the other through preparation and planning — helps clarify what each side expects and why.

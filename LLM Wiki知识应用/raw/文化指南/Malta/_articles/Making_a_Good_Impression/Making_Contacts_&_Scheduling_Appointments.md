@@ -1,0 +1,11 @@
+# Making Contacts & Scheduling Appointments
+
+## Making a Good Impression
+
+Malta's small size and dense social fabric mean that people are rarely anonymous for long. Social life overlaps across family, community, parish, and professional networks, and impressions circulate quickly through these webs. This creates a culture where being known and being vouched for genuinely shape how quickly trust forms. A warm introduction from someone already trusted often opens doors faster than cold outreach, not because formality is rejected but because being placed in a social web allows people to assess credibility without having to start from zero.
+
+When making first contact, offer light anchors about your connections and context early on. Mentioning a shared contact, a previous collaboration, or how you came across the organization helps others locate you socially. In a society where people can be linked through just a few degrees of separation, this kind of context allows your contact to place you within a wider network, which accelerates trust. Cold emails can work, particularly in global companies or with younger professionals, but a brief reference to who referred you or why you're reaching out to them specifically makes the approach feel more grounded.
+
+Discretion matters in early exchanges. Malta's high-visibility social environment means stories can travel through overlapping networks, so people tend to keep first contact calibrated to preserve dignity and avoid exposure. This means you should keep early commitments realistic and public statements careful. Overpromising or speaking too freely before a relationship has settled can affect how you're seen not just by one contact, but across the circles they move in.
+
+When scheduling, allow time for the small social rituals that make interactions feel safe. Meetings may begin with a few minutes of personal exchange or a coffee, and rushing straight to business can feel abrupt. Flexibility around timing also helps, as priorities can shift and relationships need space to settle before formal agreements take shape.

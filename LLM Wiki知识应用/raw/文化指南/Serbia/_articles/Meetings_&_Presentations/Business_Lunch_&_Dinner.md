@@ -1,0 +1,9 @@
+# Business Lunch & Dinner
+
+## Meetings & Presentations
+
+A business meal in Serbia confirms inclusion more than it closes a deal. Meals function like small-scale communities: eating together renews bonds and signals that a guest is worth bringing into the fold. This logic has deep roots in traditions like *slava*, the family saint's day feast, where food and ritual bind people together. Even in a restaurant, the same principle holds. The meal creates shared experience, and your willingness to stay present during that experience tells your Serbian colleagues how seriously you take the relationship.
+
+Conversation often expands beyond the business topic at hand, and the atmosphere can be more expressive than in cultures where meals are kept quiet and functional. Influenced by *kafana* culture—traditional taverns where music, toasts, and emotion sit naturally alongside food—a business meal may feel open-ended rather than tightly timed. Discussion might move between project deadlines, personal stories, and historical or identity themes without any sense that the conversation has veered off course. If topics feel unexpectedly personal or politically charged, respond with genuine interest rather than trying to redirect or debate. Dignity and tone register more strongly than agreement.
+
+Participation shows respect. If your host offers a toast or suggests sharing a dish, join in warmly. The gesture itself matters more than polish. A colleague used to meals as brief, transactional intervals may find the length or emotional range surprising, while a Serbian counterpart might read hurried eating or narrow conversation as a sign that the relationship remains purely instrumental. If you're hosting, pay attention to inclusion: consider non-drinkers, dietary needs, and comfort. Hospitality is often judged by how well everyone at the table is looked after.
