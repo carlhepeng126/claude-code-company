@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-The template for Emirati leadership draws from two sources: the Bedouin sheikh who listened in the majlis before making a final, firm decision, and Sheikh Zayed, the state-builder who protected and provided for his people. Senior Emirati leaders today are still expected to be guardians, responsible not only for outcomes but for the wellbeing of staff, citizens, and reputation. In government and large organizations, the Diwan model—the ruler's court where petitions are heard and decisions emerge from a small inner circle—sits beneath formal corporate structures. When presenting to an Emirati leader, frame proposals not only around business results but around how the decision fulfills their duty as protectors of their teams and the wider community.
-
-Many Emirati leaders also carry obligations that extend beyond the organization: hiring requests from extended family, contracts tied to tribal networks, scholarships for community members. These are real responsibilities, often unspoken, that shape how opportunities are allocated and where pressure builds. A manager from a context where decisions are made purely on merit may see this as favoritism, while the Emirati leader may experience the same pressure from their own network as unreasonable inflexibility. Recognize that some choices are constrained by Emiratization policy and deeper loyalties, and help leaders find solutions that satisfy both organizational goals and these commitments rather than pushing back directly.
-
-Emirati women now lead ministries, banks, and space programs, but often within a leadership style that balances authority with visible loyalty to family, religion, and nation. They navigate both international expectations and close community scrutiny. Treat them straightforwardly as decision-makers, and be aware that public undermining or awkward social settings can bring gendered scrutiny they cannot afford.

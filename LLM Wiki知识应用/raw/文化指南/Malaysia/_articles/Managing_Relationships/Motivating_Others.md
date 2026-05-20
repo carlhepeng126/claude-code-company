@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-In Malaysia, motivation rises when people feel they are contributing to something shared and doing so in a way that earns respect. The concept of *gotong-royong* (mutual help and communal effort) runs deep in Malaysian workplaces. Framing a project as something that benefits the team or the organization, rather than just advancing individual performance, aligns with this logic. When someone can see their effort visibly strengthening the collective, energy and commitment tend to follow. A manager who acknowledges contributions in terms of the group's success, or who highlights how a person's work helped others, taps into a more powerful source of drive than individual recognition alone.
-
-Respect and inclusion also function as strong social rewards. The cultural emphasis on *budi* and *budi bahasa* (decency, consideration, and respectful conduct) means that being treated with dignity and included in the social circle of the workplace can be as energizing as formal incentives. A leader who remembers a team member's family situation, who checks in personally rather than only through email, or who makes sure quieter voices are heard in meetings, sends a clear signal that the person belongs. This kind of recognition often motivates more sustainably than pressure or targets alone.
-
-Malaysia's cultural calendar, shaped by major festivals across Malay, Chinese, and Indian communities, creates rhythms of energy and obligation throughout the year. People may feel stretched or socially committed in the lead-up to Hari Raya, Chinese New Year, or Deepavali, and more open and engaged at other times. Managers who work with these seasons, rather than against them, will find teams more responsive and willing to go the extra distance when the timing feels right.

@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-In Tonga, personal connection comes before professional business. The kingdom's social fabric is woven through extended family networks and village ties, and these relationships shape how work gets done. Cold outreach rarely leads anywhere. What opens doors is a shared connection, preferably someone with standing in the community or kinship ties. If a trusted intermediary can introduce you or vouch for your character, the path becomes clearer. Without that link, even well-crafted emails may go unanswered, not out of discourtesy but because the relationship foundation hasn't been laid.
-
-Face-to-face contact builds trust in ways that remote communication cannot. A colleague from a culture where email scheduling is standard may find this time-intensive, while a Tongan counterpart may view reliance on written messages alone as impersonal or even evasive. If you're based outside Tonga, consider timing a visit to coincide with initial discussions. Being present shows commitment and allows for the informal conversations that help people assess your intentions and reliability.
-
-Scheduling works best when you allow for flexibility. Appointments are typically arranged a week or more in advance, but confirmations closer to the day are common. Meetings may start later than planned or extend beyond the scheduled time, especially if the conversation turns to family or community matters. This isn't a sign of poor time management. It reflects the priority given to the quality of the interaction over the clock. Build buffer time into your schedule and avoid booking multiple commitments back to back on the same day.

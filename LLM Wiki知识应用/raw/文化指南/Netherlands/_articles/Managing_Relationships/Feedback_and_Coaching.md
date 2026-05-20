@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Directness defines how feedback works in the Netherlands. People expect honesty delivered without softening or detour, and they expect the same of themselves. Critique is treated as a practical tool for improvement, stripped of personal weight. The idea is that withholding clear feedback prolongs the problem and shows disrespect for someone's ability to handle the truth. A manager might say plainly, "This section wasn't clear. Here's what needs to change," without prefacing it with praise or apology. The assumption is that adults can distinguish between a comment on their work and a judgment of their character.
-
-This straightforwardness extends into public settings. Feedback shared in a team meeting or group setting is considered acceptable if the tone stays respectful and the purpose is constructive. The Dutch see this as efficient and egalitarian. Everyone hears the same information, and no one is shielded from the conversation. But someone from a culture where critique is always delivered privately might read this as humiliating, while a Dutch colleague might view a reluctance to speak openly as evasive or unnecessarily protective.
-
-Younger professionals in particular value coaching that is clear, specific, and actionable. Vague encouragement or abstract observations don't register as useful. If the feedback doesn't point clearly to what should change and why, it's seen as a missed opportunity. At the same time, people appreciate being invited into the conversation. Two-way dialogue is expected. A coach or manager who only delivers judgments without asking for the other person's perspective risks being seen as inflexible or disconnected.

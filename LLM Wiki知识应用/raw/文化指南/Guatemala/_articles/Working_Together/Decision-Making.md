@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-When a Guatemalan colleague says "I need to think about it," they often mean "we need to talk about this at home." Major decisions are rarely made in isolation. A field coordinator may need to consult a spouse, parents, or a respected uncle before accepting a risky assignment. A mayor might check with a priest or a local business patron before backing a controversial project. This reflects the deep integration of family, faith, and trusted networks into professional life, where individual choice and collective obligation are not separate.
-
-In organized communities, important choices are typically ratified in general assemblies. A local leader who commits without this backing risks being seen as acting alone or selling out. They may hesitate, even after personal agreement, until they have tested the waters in smaller conversations. This preference for shared ownership has roots in both communal organizing traditions and a real wariness of exposure. Because targeting by gangs, political enemies, or the military in the past has often focused on visible leaders, people avoid being the only face attached to a controversial decision. Shared signatures and collective visibility offer both legitimacy and protection.
-
-For colleagues from cultures where decisions are made quickly by individuals, this process can feel drawn out or unclear. From a Guatemalan perspective, a counterpart who commits on the spot without consulting others may seem reckless or disconnected from their own support network. If you need buy-in, plan for pre-assembly conversations followed by a formal assembly decision. Give counterparts time and privacy to consult their networks, and structure responsibilities so no single person bears all the risk. Committees, co-signatures, and visible support help leaders feel secure enough to move forward.

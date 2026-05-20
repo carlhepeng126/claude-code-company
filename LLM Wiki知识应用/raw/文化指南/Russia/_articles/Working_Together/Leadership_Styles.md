@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-In Russia, leadership draws much of its legitimacy from the ability to create order and predictability, particularly in environments that feel uncertain or changeable. This expectation reflects a historical experience shaped by powerful institutions, where authority is trusted when it provides stability rather than disruption. For many people, a leader who defines roles clearly, maintains calm under pressure, and delivers consistent direction is demonstrating care. A manager who shifts approach frequently or delegates ambiguously may be read as unprepared or disconnected, even in contexts where flexibility is the intent.
-
-Formality in leadership is encoded in language. The use of first name and patronymic is a mechanism for maintaining what might be called dignified distance. It reflects a wider expectation that leaders manage closeness carefully and do not rush familiarity. Informality introduced too early can feel like a misreading of the professional relationship rather than warmth. Trust builds through demonstrated competence and consistency over time, not through casual language or attempts at immediate intimacy. In practice, this means that a new leader in Russia should maintain respectful forms of address until the team signals otherwise, and should allow warmth to emerge naturally rather than performing it.
-
-Leadership culture varies sharply across regions. What authority looks like in Moscow or St. Petersburg may differ meaningfully from expectations in the Volga region or the North Caucasus. Russia's ethnic and regional plurality means that there is no single template. A leader working across multiple locations should treat local norms as distinct and check expectations with trusted colleagues rather than assuming one approach will transfer.

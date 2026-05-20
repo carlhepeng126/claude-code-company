@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-In Timor-Leste, information sharing moves through established relationships rather than formal channels alone. The country's history of occupation and resistance created patterns where trusted networks provided safety and survival. People learned to be careful about what they shared and with whom. That caution persists in professional settings today. Colleagues often wait to assess trustworthiness before offering detailed updates or sensitive information. Building that trust requires time, consistency, and demonstrated respect for the relationships involved. A manager expecting immediate transparency in team meetings may find responses polite but general until trust deepens through repeated interactions.
-
-Within organizations, information often stays within small circles rather than spreading freely across departments. This reflects both the strong personal networks that shape Timorese society and a preference for avoiding exposure before decisions are settled. Someone may hold back on sharing challenges or uncertainties until they feel confident the information will be received with understanding rather than criticism. For international colleagues accustomed to early and wide information flow, this can feel like working with incomplete visibility. From a Timorese perspective, sharing too soon or too broadly can feel premature or even disrespectful to those closest to the issue.
-
-Creating conditions where people feel comfortable sharing requires sustained effort. Leaders who treat mistakes as learning moments, who invest in relationships outside formal meetings, and who protect confidentiality when asked will find information begins to move more openly. Regular face-to-face check-ins and informal gatherings build the relational foundation that makes transparency possible. Once trust is established, colleagues often become generous with their knowledge and deeply committed to shared goals.

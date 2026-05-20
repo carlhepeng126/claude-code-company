@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Hong Kong professionals dress knowing they will sweat outside and freeze indoors, which shapes how clothing is chosen and layered. In the city's corporate core—Central, Admiralty, Quarry Bay—the standard is dark, well-cut suits or sharp business casual, even through summer humidity. Blazers often stay at the office, light layers go on and off in lifts, and immaculate tailoring with breathable fabrics is more than aesthetic preference. It's a practical response to moving between extremes, and arriving in thick wool or without a layer at all suggests you haven't read the rhythm of the place. In more creative pockets like Sheung Wan, Wong Chuk Hang, or Sham Shui Po, the look is tidier casual—neat sneakers, Japanese or Korean brands, streetwear layered over basics—but still deliberate, never sloppy.
-
-Status is communicated through fit, fabrics, and grooming, not loud logos. A battered backpack paired with a perfect suit reads as odd; immaculate tailoring with subtle accessories is the norm among serious professionals. This restraint reflects the city's commercial pragmatism and its aesthetic leanings toward Japan rather than Europe or North America. If you're meeting clients in finance, law, or government, conservative and sharp works. For agencies, tech, or NGOs, smart casual is acceptable, but the threshold for "well-kept" is high. Hong Kong reads both beach-casual and blinged-out influencer styles as unserious.
-
-Polished shoes, breathable fabrics, and looking physically at ease all register. The effort you put into your appearance is taken as a measure of the respect you bring to the meeting.

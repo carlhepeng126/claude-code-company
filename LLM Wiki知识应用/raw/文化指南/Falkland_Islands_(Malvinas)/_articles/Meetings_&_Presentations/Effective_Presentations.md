@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Presentations in the Falkland Islands work best when they are straightforward and grounded in practical detail. Islanders tend to be skeptical of overpolished delivery or anything that feels like it prioritizes style over substance. What you say and how directly you say it will be judged more closely than how slick your slides look. A conversational, no-nonsense tone will serve you better than formal corporate language. The goal is to come across as credible and trustworthy, not impressive. People appreciate presenters who get to the point, answer questions plainly, and avoid overselling.
-
-Keep your presentation concise and avoid unnecessary complexity. Dense slides or overly technical jargon can come across as patronizing in a small community where many people have deep hands-on expertise, even if they don't work in corporate environments. If you're introducing a new idea or proposal, be prepared to explain not just what it involves, but why it matters locally and how it fits with existing ways of doing things. Islanders value pragmatism and are more likely to engage with material that feels relevant to their context rather than imported wholesale from elsewhere.
-
-Expect questions to be direct and sometimes blunt. This reflects a communication style shaped by small-town directness and a preference for clarity over diplomacy. A colleague from a more indirect culture may read this as confrontational, but in the Falklands it usually signals genuine interest and a desire to understand the details before committing. If you hedge or dodge a tough question, it will be noticed. Answer as openly as you can, and if you don't know something, say so and follow up later.

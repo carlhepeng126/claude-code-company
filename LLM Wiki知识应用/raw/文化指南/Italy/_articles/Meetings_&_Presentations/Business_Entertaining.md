@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Shared meals are a central part of professional life in Italy, and invitations to lunch, dinner, or aperitivi (pre-dinner drinks, often accompanied by small plates) are genuine opportunities to deepen relationships. These gatherings allow colleagues and clients to assess personal compatibility and build the trust on which Italian business depends. The setting itself is part of the message: regionally distinctive dishes and local wines reflect pride in heritage and identity, and hosts will often choose restaurants that showcase what the region does well.
-
-Conversation during the meal tends to roam widely, and business may be raised lightly or not at all until coffee or liqueurs arrive near the end. The meal is a chance to understand how someone thinks, speaks, and interacts, and it is usually the host who signals when work-related topics are appropriate. A colleague from a culture where decisions are made in short meetings may feel the pace is meandering, while an Italian counterpart may find it abrupt to introduce a negotiation before the secondo has been cleared. Letting the rhythm unfold and engaging with the meal itself builds rapport far more effectively than steering toward outcomes early.
-
-Alcohol is common, but moderation is expected. Being visibly drunk is frowned upon in most professional settings, where style and self-presentation are valued. Politely choosing a non-alcoholic option is acceptable when done with ease. Showing genuine interest in what is being served, whether a specific wine or a regional dish, and reciprocating invitations when appropriate, are both understood as signs of respect and engagement.

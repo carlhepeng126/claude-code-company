@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-In Albania, punctuality is often aspirational rather than absolute. Relationships and immediate context shape how time is allocated, particularly in settings where personal trust still governs much of professional life. A meeting scheduled for 10:00 may begin closer to 10:20, especially in smaller firms or public institutions where hierarchy and relational priority determine the order of attention. Deadlines are treated as open to negotiation if circumstances shift or if a more pressing relational obligation emerges. This flexibility reflects a practical reality: in an environment where personal networks unlock opportunities and solve problems, attending to the person in front of you can be more productive than keeping to a printed schedule.
-
-In larger private companies with international clients or foreign ownership, punctuality tightens noticeably. Adherence to deadlines becomes a marker of professionalism and reliability, and managers expect meetings to start on time. Even here, though, the rhythm can loosen internally. Internal meetings may begin late or run over if a senior figure is still occupied, reflecting a norm where authority determines flow. A colleague from a culture where schedules are fixed may experience this as inefficiency. An Albanian colleague may read rigid timekeeping without relational context as impersonal or transactional.
-
-Younger professionals, particularly those educated abroad or working in tech and finance, often align more closely with timed workflows. Generational differences are visible: a startup founder in Tirana may run meetings with tighter discipline than a family business in Shkodër, where time bends more readily around hierarchy and kinship. If you are coordinating across these settings, clarify whether a deadline is firm or flexible, and follow up closer to the date rather than assuming silent agreement means confirmed readiness.

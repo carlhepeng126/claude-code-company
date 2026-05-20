@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Australians move to first names fast, often within the first email or phone call, and this applies across levels. Calling a CEO, professor, or doctor by their first name feels natural once they sign off that way. Using Mr, Ms, or Dr beyond the opening moments can feel formal to the point of awkwardness. This reflects a broader discomfort with visible hierarchy and a preference for functional rather than status-based relationships. The exception comes in narrow, highly formal contexts like courtrooms, academic ceremonies, or military settings, where titles still hold. But in everyday business, the default is first name plus role: "This is Jo, she runs our operations."
-
-Nicknames and shortened names appear frequently, especially in male-dominated or blue-collar workplaces. Robbo, Macca, Jules—these signal familiarity and inclusion within a group. But using them too early, or imposing them on colleagues you don't know well, can feel presumptuous. Let nicknames emerge organically rather than adopting them as a shortcut to rapport. A colleague from a culture where titles and surnames express respect throughout a relationship may read the quick shift to first names as overly casual or even dismissive. From the Australian side, continued use of formal titles after an invitation to first names can register as distancing or unnecessarily stiff.
-
-There is growing emphasis on learning and pronouncing non-Anglo names correctly, particularly in multicultural teams. Older habits of anglicizing names persist in some settings, but getting someone's name right is increasingly seen as basic respect and a signal that you are safe to partner with. When introducing colleagues, highlighting their role rather than just their name helps Australians place people functionally, which aligns with how working relationships are often understood.

@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Brazil bends for people, and that has deep roots. Traditional communities organised life around seasons, daylight, and relationships rather than the clock, and much of that logic still runs beneath the surface of modern professional life. Conversations often expand beyond the agenda to include personal stories and rapport-building, because relationships inform decisions as much as spreadsheets do. A colleague from a culture where meetings follow strict timings may read this as inefficiency or lack of focus. From a Brazilian perspective, rushing past the relational work can feel transactional, even dismissive, as though the project is being prioritised over the people who will deliver it.
-
-Geography and sector shape the picture considerably. In São Paulo's financial district or in multinationals and tech firms, punctuality and scheduling precision align closely with international norms. A meeting in a smaller city or a more informal sector may start later and allow more room for conversation to unfold. Pushing for clockwork discipline in settings where flexibility is the norm can come across as impatience or a lack of interest in building trust. Colleagues may wonder whether the relationship is valued at all.
-
-That fluidity means deadlines agreed in conversation may shift without announcement. Monitoring progress works better when woven into informal exchanges over coffee rather than framed as formal check-ins. Arriving on time for a scheduled meeting shows respect, even if others arrive later or if the discussion drifts. Building buffer time into timelines and confirming next steps in writing helps anchor expectations without forcing a style that sits awkwardly in the local rhythm.

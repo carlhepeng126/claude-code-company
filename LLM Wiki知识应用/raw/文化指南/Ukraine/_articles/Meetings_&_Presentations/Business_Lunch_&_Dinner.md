@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Ukrainian business meals are social experiences that build trust through generosity, warmth and shared time. The food itself reflects this approach. Dishes like borshch (beet soup often served with sour cream), varenyky (dumplings with various fillings), and salo (cured pork fat, usually eaten with rye bread and garlic) are tied to land, seasons and heritage. Expect multiple courses and portions large enough to signal care. When a host offers seconds, accepting shows respect for the gesture behind the food. Commenting positively on a dish or asking about an ingredient helps deepen the connection.
-
-Business dinners are the preferred setting for building relationships, while lunch tends to be shorter and more functional during the week. At dinner, conversation flows more freely, often including storytelling and humor. This is the time to listen, contribute and relax into the rhythm. Pressing hard on a negotiation point during the meal can feel intrusive. A colleague from a culture where meals are brief and agenda-focused may read the longer format as inefficient. For a Ukrainian colleague, that same pace allows trust to develop naturally before decisions are made.
-
-Toasts may appear at dinner, though they are less common at lunch. Alcohol is often offered, but declining politely or drinking moderately is perfectly acceptable. Generational differences show up here too. Younger professionals may favor quicker, café-style meals, while older colleagues often prefer a more extended, traditional format. Adapting to the setting and the people involved helps maintain rapport across both styles.

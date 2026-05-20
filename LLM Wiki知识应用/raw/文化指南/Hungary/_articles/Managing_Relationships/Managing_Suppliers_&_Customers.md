@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Trust in Hungary is built slowly through personal contact, but it is tested most sharply when conditions worsen. Suppliers and customers, particularly in smaller towns and family-owned firms, remember who paid on time during periods of high inflation, who honoured contracts when the forint spiked, and who disappeared the moment things became difficult. These memories outlast any single deal. The foreign company that left without explanation becomes a cautionary tale told for years. If you want a lasting commercial relationship, your reputation will be shaped less by your pitch and more by whether you kept your word when the economic situation turned ugly.
-
-Hungarians do business with people they know, and remote management rarely works. Emails and phone calls go unanswered when there is no established personal connection. Visits matter, and the tone and formality of those visits will vary considerably depending on which Hungary you are dealing with. A Budapest tech client, a German-owned automotive plant in Győr, a family-run factory in Békéscsaba, and a rural cooperative represent four distinct professional worlds with different expectations around communication style, payment terms, and the role of hierarchy. A single template will not serve them all.
-
-Working with state ministries, municipalities, or state-owned companies introduces another layer. Procurement processes are shaped by EU project requirements, but also by local patronage networks and shifting political influence. Locals understand that a change of government can reshuffle priorities and relationships overnight. Legal and political understanding at the local level becomes essential, and assuming that Brussels rules alone will protect you is a miscalculation.

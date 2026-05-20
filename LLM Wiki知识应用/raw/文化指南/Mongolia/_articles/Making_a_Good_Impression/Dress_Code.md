@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Presentation decisions in Mongolia follow climate logic before fashion. Winter gear is a competence signal, worn from September through May when temperatures drop to minus 40 and wind chill pushes further. Arriving properly equipped for extremes is read as realism and preparedness, not just personal preference. In business meetings, conservative suits remain the norm for men, and women favor tailored suits or dresses with muted colors and minimal decoration. Sleeveless tops still raise eyebrows, and skirt length sits at or below the knee. Overdressing causes less friction than casual wear, particularly when meeting senior counterparts or state-linked partners.
-
-The deel, a one-piece woolen robe tied at the waist, has become visible again since Mongolia's 1990 democratic transition. While rarely worn to office meetings, it appears at Naadam, national celebrations, and formal cultural events as a deliberate identity marker. The garment now comes in modern fabrics and tailored cuts, blending heritage symbolism with contemporary aesthetics. Recognizing when and where the deel appears helps gauge the formality and cultural weight of the occasion.
-
-Ulaanbaatar's visual culture combines global fashion influence with post-1990 heritage revival, creating mixed dress codes that shift with context. Tech and creative sectors lean toward business casual, but even here, clothing looks intentional rather than improvised. Government offices and traditional industries still expect dark suits and formal tailoring. Being well-kept registers as respect for the setting, so appearing unshaved, in creased clothing, or with rolled-up sleeves undermines the impression you're trying to build. Match the effort your counterparts show, and align your wardrobe to the season.

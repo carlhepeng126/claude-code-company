@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Disagreements in Luxembourg are typically managed through process and quiet negotiation rather than open confrontation. The country's history of navigating geopolitical pressure through structured agreements has shaped a workplace instinct to contain conflict within calm, rule-based frameworks. When tension arises, the first move is often to slow things down, identify a procedural route, and look for a solution that preserves working relationships. If you are accustomed to addressing conflict head-on or escalating quickly to force clarity, this preference for containment may feel evasive. From a Luxembourg perspective, however, rushing to confront or demanding immediate resolution can feel reckless in a setting where most colleagues will cross paths again.
-
-The memory of wartime occupation adds a quiet moral dimension to how pressure is perceived. Forced Germanisation, conscription, and the 1942 general strike remain part of living memory, and heavy-handed tactics or attempts to force alignment can land badly as a result. Disagreements are more effectively resolved by framing the issue as procedural or structural rather than personal, and by offering room for compromise. Mediation is a respected option, and referring upward is not seen as weakness but as appropriate escalation when a line manager lacks the authority to resolve the matter.
-
-In a small, densely networked environment, tact protects future coexistence. Public confrontation or forcing colleagues to take sides can be socially costly in ways that outlast the immediate issue. Handling disputes privately, preserving dignity for all involved, and aiming for a pragmatic outcome that both parties can accept will typically move things forward more effectively than insisting on a definitive win.

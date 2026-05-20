@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Botswana move at a pace shaped by consensus and relationship. Decisions are rarely made in the room itself. The meeting is where ideas are introduced, discussed, and referred back to senior leadership or consulted on more widely within the team. A colleague accustomed to real-time decision-making may leave feeling progress was slow, while a Batswana counterpart may view the same meeting as appropriately thorough, with outcomes still unfolding through proper channels. Pushing for immediate answers can come across as disrespectful of hierarchy or dismissive of the need to consult.
-
-Tone during meetings is courteous and measured. Directness is softened, and open disagreement with a senior person is unlikely. Junior staff may speak less, not because they lack insight but because deference to seniority is a consistent cultural expectation. If you're leading a meeting and want input from the room, consider inviting contributions individually or following up one-on-one afterward rather than expecting spontaneous challenge or debate.
-
-Small talk at the start is more than politeness. It establishes trust and signals that the relationship extends beyond the transaction. Skipping this stage or moving too quickly into the agenda can feel transactional in a context where personal connection underpins professional credibility. Allow time for greetings, inquiries about family or travel, and a gradual shift into substance. This isn't delay, it's how trust is built and how the meeting becomes productive on terms that work for everyone in the room.

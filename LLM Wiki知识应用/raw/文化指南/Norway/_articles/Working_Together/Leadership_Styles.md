@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Norwegian leadership draws credibility from fairness and process rather than force or personal charisma. The country's constitutional and democratic traditions place high value on authority that is rule-bound, explainable, and publicly defensible. This produces a leadership ideal that looks less like command and more like stewardship of a fair process. Decisions strengthen trust when they can be explained by reference to shared rules or transparent reasoning, rather than by the leader's own judgment or status. A manager from a culture where seniority or expertise alone justify direction may find that Norwegian colleagues expect fuller explanation, and may interpret unilateral decisions as overreach.
-
-Equality is treated as a moral expectation, so leaders avoid visible displays of privilege or superiority. Janteloven describes the social pressure against over-assertion, where competence is expected to speak without theater. A leader who stays calm, listens openly, and occupies space modestly tends to be read as safe and serious. Emotional intensity or pressure tactics can be interpreted as instability or coercion, especially where equality norms resist personal dominance. A colleague from a culture where emotional conviction strengthens authority may read Norwegian restraint as disengagement, while a Norwegian manager may view high-energy persuasion as uncomfortable or inappropriate.
-
-Norway's tripartite traditions, structured cooperation between employers, unions, and the state, normalize negotiation and shared rules as a path to stability. This makes dialogue and bargaining feel culturally routine rather than adversarial. Even in highly international environments such as Oslo's global sectors, where status signals may be more visible, there remains an expectation that leaders show restraint and avoid overt displays of superiority.

@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Professional relationships in Tanzania begin with formal titles and deliberate respect, especially when age differences are visible. Using "Bwana" (Mr.) or "Mama" (Mrs.) with a surname signals awareness that seniority holds moral and social meaning. Age represents accumulated wisdom and social balance, and this shapes how people expect to be approached, even in business contexts where efficiency might seem to favor faster familiarity.
-
-The greeting itself often takes time. A handshake might shift into gripping thumbs before returning to the original clasp, or begin with a fist bump followed by a hand to the chest. Let your counterpart lead. Once rapport begins to form, expect questions about health and family before the formal agenda starts. This exchange builds mutual comfort and confirms that the relationship extends beyond the immediate task. Skipping this stage can leave colleagues from Tanzania feeling the interaction lacks substance, while someone accustomed to quick transitions into work topics may wonder why a meeting hasn't yet begun.
-
-Tone and restraint matter as much as the words chosen. Indirect phrasing protects dignity and keeps exchanges smooth, particularly when navigating disagreement or unfamiliar territory. In mixed-age or public settings, formality often stays in place longer. First names come later, once comfort has been established and the relationship feels genuinely mutual. Pushing for casual address too early can be read as impatience or disregard for the respect that anchors professional trust in Tanzania.

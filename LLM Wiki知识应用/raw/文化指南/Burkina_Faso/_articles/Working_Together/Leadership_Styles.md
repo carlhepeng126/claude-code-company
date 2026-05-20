@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Burkina Faso is strongly hierarchical, shaped by traditions that place authority in the hands of elders, chiefs, and senior figures. Age, seniority, and formal position are the foundations of legitimacy. Leaders are expected to embody wisdom and restraint, and their role includes maintaining social harmony and protecting the collective interests of the group. Decision-making authority rests clearly at the top, and visible deference to senior figures is both expected and carefully practiced in professional settings.
-
-This does not mean leaders operate without input. Consultation happens, particularly with trusted advisors or elders within the organization, but it typically takes place before a decision is announced, not as part of a visible collaborative process. Once a leader has spoken, the expectation is that the decision will be respected. Challenging a leader openly, especially in front of others, risks causing public loss of face and can damage both the relationship and your standing within the group. A manager from a culture where debate is encouraged in meetings may read this as passive agreement, while Burkinabè colleagues may view open disagreement as disrespectful or poorly judged.
-
-If you need to raise concerns, doing so privately and respectfully is far more effective. Framing your point as a question or offering it through an intermediary allows the leader to consider it without feeling publicly contradicted. This approach preserves dignity and keeps the relationship intact, which in turn protects your ability to influence future decisions.

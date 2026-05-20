@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Canadian hospitality reflects a blend of warmth and restraint. Whether inviting colleagues to dinner or attending a professional meal, hosts aim to make guests comfortable without creating pressure or imposing too closely on personal space. This comes partly from a culture that values individual boundaries alongside social connection. In professional settings, restaurant gatherings are more common than home invitations, which tend to be reserved for relationships that have developed over time. When a home invitation does arrive, it reflects genuine regard.
-
-As a host, offering clear practical information shows care. Canadians appreciate knowing the venue, expected dress, and timing in advance, and hosts typically ask about dietary needs ahead of time. This approach to hospitality prioritizes the guest's ease rather than elaborate gestures. As a guest, punctuality is expected and tardiness beyond 15 minutes should be accompanied by a phone call. Bringing a small gift such as wine, flowers, or chocolates for a home visit is appreciated. A follow-up note or call of thanks afterward is welcomed and reinforces the relationship.
-
-Canadians generally avoid overstaying or moving too quickly into personal topics, especially early in a professional relationship. A colleague from a culture where deep conversation builds connection quickly may find this reserve puzzling, while a Canadian counterpart might read rapid intimacy as presumptuous. Both are managing connection, but at different paces. In Canada, the tone is friendly but measured, allowing trust to develop gradually rather than through immediate disclosure.

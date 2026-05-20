@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in South Korea are shaped by respect for age and rank, which determines speaking order, seating arrangements, and who has the authority to guide or close the discussion. Senior attendees set the tone and often summarize key points, so it helps to defer to them when opening and wrapping up. This reflects a broader workplace logic where hierarchy brings responsibility for framing decisions, even when detailed work is delegated to juniors. If your first meeting is scheduled with someone much junior to yourself, it may signal that the relationship is still being tested.
-
-Many teams avoid open disagreement in front of others, particularly in mixed-hierarchy settings. Agreement may be signaled through silence or partial comments rather than explicit endorsement, so a quiet room does not always mean full alignment. Leaders often use formal meetings to communicate direction and then rely on informal follow-up to resolve questions or build consensus. Expect post-meeting conversations, written clarifications, or private consultations to confirm what was discussed. A colleague from a culture where decisions are made quickly in the room may read this as delay, while Korean counterparts may view immediate public commitment as rushed or disconnected from the relational groundwork that supports implementation.
-
-Meetings typically begin with polite greetings, brief small talk about the commute, weather, or recent events, and expressions of gratitude before moving to the agenda. This creates psychological ease and reinforces the relational context in which business unfolds. Direct challenge is possible in more junior or specialized groups but remains rare when seniority is visible. Sending proposals ahead of the meeting allows your counterpart to prepare, and following up in writing supports the process of ratifying decisions after leaders have consulted privately.

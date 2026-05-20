@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-In the UK, the presentation ideal sits somewhere between a BBC documentary and a conversation in the pub. Audiences expect calm, clear explanation with a touch of storytelling and self-deprecating humor, but too much polish reads as Americanized hype and too little structure feels amateur. A history of tabloid exaggeration, dodgy sales pitches, and political spin has left British professionals skeptical of grand claims. Words like "revolutionary" or "world-class" trigger an internal "oh really?" rather than excitement. If you're presenting a partnership proposal or new initiative, lead with evidence over enthusiasm. Case studies, pilot results, and real numbers will land better than visionary language.
-
-British presenters often downplay their own material as they go, noting when a slide is "a bit busy" or inviting the room to spot where something "doesn't make sense." This interactive style treats the presentation as a working draft rather than a finished pitch. Audiences appreciate being asked to stress-test ideas rather than simply approve them. For international colleagues used to more polished, one-directional delivery, this can feel surprisingly casual. From the British side, a highly scripted presentation with no room for questioning can seem insincere or evasive.
-
-Pragmatism runs through the feedback you'll receive. British audiences want to know what will work in real life, not just in theory, and they'll ask about the catch before they ask about the benefits. Sharing limitations or past failures alongside wins doesn't undermine credibility; it builds it. Long-term collaboration feels safer when honesty about uncertainty is part of the conversation from the start.

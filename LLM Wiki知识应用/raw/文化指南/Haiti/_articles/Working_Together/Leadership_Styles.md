@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Haiti is shaped by deep respect for hierarchy and personal authority, often anchored in colonial and post-independence traditions where power has long been concentrated in the hands of individuals who command both formal position and personal loyalty. Authority is expected to be clear and directive. Leaders are seen as figureheads who make final decisions, and their role is understood to extend beyond professional competence to include social responsibility, visibility, and moral standing. Questioning a leader openly, especially in front of others, risks undermining their dignity and destabilizing the relational balance that holds a team or organization together.
-
-At the same time, leadership is highly relational. A manager's effectiveness depends not only on formal authority but on their ability to cultivate personal ties, demonstrate care, and protect the interests of those who depend on them. Leaders who remain distant or focus only on process may be seen as cold or uncommitted. Team members expect recognition, connection, and some degree of advocacy from those above them. This means that while decisions are made at the top, they are often informed by informal counsel from trusted advisors or long-standing colleagues. Input may be sought quietly, outside formal structures, and the manner in which a leader consults can say as much as the decision itself.
-
-Managers accustomed to transparent delegation or collaborative decision-making may find Haitian leadership styles harder to read, particularly when consultation appears symbolic rather than substantive. From a Haitian perspective, a leader who shares decision-making too openly may seem indecisive or unsure of their own authority. The expectation is that leaders will listen selectively, make choices clearly, and take responsibility for outcomes without needing consensus to act.

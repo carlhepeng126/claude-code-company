@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-When you visit a colleague or partner in Senegal, the greeting extends beyond your host. In many neighbourhoods and even office courtyards, you're expected to acknowledge relatives, neighbours, and anyone present. Walking past without a word reads as cold or dismissive, because homes and compounds are often open to a steady flow of people. Privacy works differently here: your visit is likely to be witnessed, discussed, and remembered. How you behave becomes part of your host's social reputation, so warmth and visible respect toward the whole group reflect well on both of you.
-
-This openness shapes what being a guest means. You're honoured, but that honour comes with an expectation. You should accept what's offered, even if it's only a small portion, because refusing food or drink outright can signal rejection of the relationship itself. If you have dietary restrictions, explain them quietly, but still sit with the group and participate in the ritual of sharing. Eating from a communal bowl means taking only from the section nearest you, and leaving a little food behind shows you've been well cared for. These small gestures communicate that you understand hospitality as something mutual, reciprocal, and ongoing.
-
-After the visit, follow up with a message or small gesture that recognizes the teranga you received. This closes the loop and confirms you see the hospitality as the beginning of a relationship, not a one-time transaction. Later, you may be expected to reciprocate in some form, whether by hosting in return, making introductions, or helping with a problem when asked.

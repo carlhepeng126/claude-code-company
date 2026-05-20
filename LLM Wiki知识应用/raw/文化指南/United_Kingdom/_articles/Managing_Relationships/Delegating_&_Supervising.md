@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-In the UK, good delegation means giving a clear brief and then stepping back. Managers are expected to trust professionals to deliver without close oversight. Micromanagement registers as a lack of confidence in someone's competence, and for many British employees, heavy supervision feels like an implicit criticism. Autonomy within a defined framework is the working assumption. Once a task is delegated, the expectation is that the person will take ownership, raise problems if needed, and deliver without needing their hand held. This reflects a moderate power distance culture where hierarchy exists but authority should not be worn heavily.
-
-That trust extends to decision-making, but decisions themselves are often reached collectively and cautiously. Teams will hold multiple meetings to discuss, refine, and ratify a course of action before committing. This reflects a real discomfort with individual exposure and a shared sense of responsibility. Fear of failure runs through many UK workplaces, particularly in established sectors like finance, the civil service, and law. What can look like over-processing to a colleague from a culture where decisions are made quickly and revised later reflects a preference for thorough consultation and collective cover.
-
-Feedback should be given privately and with care. The British communication style layers politeness over criticism, and blunt feedback can land as aggression rather than helpfulness. Learning to read understatement is essential. "That's quite interesting" may signal polite dismissal. "I'm not sure that's entirely ideal" may mean something is fundamentally wrong. A manager who cannot decode this register will miss early warnings and misread team sentiment. Probing gently when something is described as "a bit of a challenge" will often reveal that it is seriously problematic.

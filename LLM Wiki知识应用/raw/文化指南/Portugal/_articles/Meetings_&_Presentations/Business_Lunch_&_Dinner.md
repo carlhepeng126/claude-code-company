@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-In Portugal, the shared meal holds what local sources describe as "cult status." Mealtime is less about efficiency and more about belonging enacted through unhurried presence. Lunch can stretch well beyond an hour, and dinner often begins later into the evening than in Northern Europe, with some variation by city and generation. This rhythm reflects a cultural view that relationships are built in layers, not locked down in a single sitting. The petiscos tradition of shared small plates, repeated rounds, and conversational drift embodies this logic. The table becomes a space where comfort accumulates over time rather than something to close out and move on from.
-
-Follow your host's pace and treat the meal as relationship time, not task time. Conversations may wander, courses may arrive slowly, and the evening may extend in ways that feel unstructured to colleagues from cultures where business dining has clearer time boundaries. For someone accustomed to a tightly scheduled dinner with agenda points, this can read as unfocused. From a Portuguese perspective, a guest who watches the clock or tries to steer back to business too quickly may seem transactional or uncomfortable with connection.
-
-Plans can shift mid-stream. A restaurant may be full, someone may arrive late, or the group may expand. This is where desenrascanço, the cultural instinct for graceful adaptation, shows up socially. Staying calm and flexible when something changes is read as social intelligence, not poor planning. After the meal, a warm follow-up message or light touch point works better than trying to summarize outcomes at the table.

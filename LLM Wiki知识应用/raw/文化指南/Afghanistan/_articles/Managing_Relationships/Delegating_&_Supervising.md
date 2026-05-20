@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-In Afghanistan, delegating effectively means understanding that authority flows from relationship and seniority, not just from role. Supervisors are expected to provide clear direction and remain closely involved. A manager who assigns a task and steps back may be seen as disengaged or unsure, rather than as someone offering autonomy. Employees often wait for explicit instruction before acting, particularly when the task involves risk or visibility. This reflects a broader cultural preference for concentrated decision-making and respect for hierarchy. If you delegate without checking in regularly, the work may stall or be completed in ways you did not anticipate, not because of reluctance but because the expectation is that you will guide the process.
-
-Group cohesion shapes how supervision is received. Public correction, even when framed constructively, can cause embarrassment and damage trust. Feedback is best given privately and with care for the person's dignity. A colleague from a culture where direct feedback is expected in team settings may interpret this privacy as inefficiency or avoidance of accountability. In return, an Afghan colleague may read public critique as unnecessarily harsh or disrespectful, signaling a lack of regard for the relationship.
-
-Delegation works best when it is layered and personal. Rather than assigning tasks in writing or at a distance, walk through the steps together and confirm understanding face to face. This allows questions to surface without the person needing to admit uncertainty in front of others, and it reinforces the trust that makes effective supervision possible.

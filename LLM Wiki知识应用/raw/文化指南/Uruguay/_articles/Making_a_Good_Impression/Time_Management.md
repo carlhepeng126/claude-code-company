@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Uruguayan time management rests on a cultural preference for calm continuity over manufactured urgency. Timelines are taken seriously when they come with clear reasoning and realistic steps, but constant pressure often reads as performance rather than necessity. This reflects a deeper comfort with steady work that values thoroughness and relational trust. Colleagues may question rushed schedules if they seem arbitrary, while a well-structured plan with visible checkpoints and named owners tends to land well and move forward without friction.
-
-The country's civic calendar shapes professional rhythms in ways that matter beyond marked holidays. Tourism Week and Carnival are not simply time off but emotional seasons that pull people into travel, family routines, and public life. Coastal summer transforms the social landscape entirely, creating what some describe as two Uruguays: the slower winter rhythm of Montevideo and the interior departments, and the dispersed, outward-facing tempo of the summer coast. A colleague scheduling a major deliverable in late January without accounting for this shift may find themselves working around absences that feel structural, not optional.
-
-Memory of economic shocks, including the 2002 crisis, sits quietly in the background of how competence is read. Predictability and safeguards can feel like care and professionalism rather than caution. When timelines shift, a calm tone and a concrete alternative help maintain trust. If you need speed, name the external reason that justifies it and frame urgency as shared necessity, not style. Asking early about rhythm shifts and building slack into plans will keep collaboration steady without needing to defend every adjustment.

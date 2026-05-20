@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Dominica tend to follow a relaxed schedule, shaped by the island's small scale and the strong role of personal connection in business. Formal appointments are expected, especially with senior figures, but timing may shift depending on other commitments or the flow of the day. This flexibility reflects a culture where relationships take precedence over rigid structure. If you're accustomed to back-to-back schedules with little room for adjustment, allow buffer time and confirm meetings closer to the date. For Dominican counterparts working with colleagues who expect punctuality to the minute, what can seem like disorganization is simply a different ordering of priorities.
-
-The tone in meetings is generally polite and cordial, with conversation moving between business and more personal topics. This blending of warmth and work helps establish trust, which is central to getting things done. Decisions are usually made by senior figures, so ensure the right people are present. Pushing for conclusions too quickly can come across as impolite or overly transactional. Expect several meetings before commitments are made, particularly if the relationship is new.
-
-Formality is moderate. Dress professionally and address people by title and surname until invited to do otherwise. Introductions and small talk set the tone, and skipping these steps may suggest you're not genuinely interested in the partnership. Once rapport is built, future meetings may feel more informal, but the expectation of respect and courtesy remains consistent throughout.

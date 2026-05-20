@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Panama helps build the personal connection that underpins professional trust. Meals offer time to understand someone beyond the transactional, though the line between social warmth and actual business discussion often stays clear. Small talk and personal exchange are the substance of these gatherings, not the prelude. Deals are still decided in the office, but the relationship that enables them is often strengthened over lunch or dinner.
-
-Lunch is the most neutral opening, especially early in a relationship. Breakfast suggests existing familiarity and can feel too forward before rapport is established. Dinner comes later, once trust has developed, and may include spouses or partners. If you're invited to someone's home or a larger social gathering, accepting is expected. Declining can read as disinterest in the person, not just the occasion. Reciprocate before the visit ends. The person who extends the invitation pays.
-
-The style and tone of entertaining can shift noticeably across Panama. In Panama City and the canal corridor, hospitality often feels international and cosmopolitan, shaped by constant mobility and global business. In interior towns, being hosted means entering a local social map where community continuity and family reputation shape how you're received. Courtesy and consistency tend to matter more than effort to impress. In Caribbean-rooted communities, where Afro descendant identity and West Indian heritage remain strong, warmth and social expression may feel distinct, and recognition of that history is valued without exoticising it.

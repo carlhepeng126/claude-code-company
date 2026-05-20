@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Reputation functions like informal credit across Trinidad and Tobago's dense, overlapping social networks. People trust through social proof: who vouches for you, whose name is linked to yours, and whether you have been seen consistently over time. Reliability becomes a story that travels through school ties, religious communities, neighbourhood circles, panyard connections, and band affiliations. These layers sit alongside formal business relationships and often colour how people interpret your intent, fairness, and follow-through. If you are working with suppliers or building a customer base, face-to-face contact strengthens your standing far more than email alone. A local representative who can visit regularly helps maintain that presence when you cannot.
-
-Warmth and responsiveness shape how service quality is judged. Hospitality norms run deep here, so pleasantness and dignity are part of what counts as doing the job properly. Tone, ease of interaction, and how someone felt during the exchange often matter as much as technical delivery. For colleagues from contexts where efficiency and speed are the primary benchmarks, this can feel slower or less direct. From a Trinbagonian perspective, rushing through an interaction without building rapport can seem dismissive or impersonal, even if the task gets done.
-
-Cultural seasons reshape rhythms of demand and attention. Carnival season changes movement, energy, and what people prioritise. Religious calendars add other peaks that shift emotional bandwidth and availability. Planning that accounts for these cycles will be more realistic than schedules built around constant pacing. In Tobago, recognition of the island's distinct rhythm strengthens relationships. A Trinidad-default approach can be read as disregard, because Tobago's distinctiveness is social identity, not just geography.

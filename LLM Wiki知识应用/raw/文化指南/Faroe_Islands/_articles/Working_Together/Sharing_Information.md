@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information does not circulate automatically in Faroese workplaces. The islands' small population, around 54,000, means that nearly everyone knows each other or has a mutual contact. This tight social fabric shapes how people share what they know. Updates tend to flow through informal channels and personal relationships first, well before they appear in official formats. If you rely only on written briefings or formal announcements, you may miss essential context that has already circulated face to face or in passing conversations outside the meeting room.
-
-Trust matters here, but it builds quickly because networks overlap. A colleague who knows you through a shared project may also be your neighbor's cousin or a member of your choir. That interconnection accelerates the willingness to share, but it also means discretion runs high. People are careful about what they say, knowing that information can travel swiftly and that reputations are visible across the entire community. Confidential details stay closely held until the relationship feels secure.
-
-Openness increases noticeably once personal rapport is established. Faroese professionals value directness and honesty once they know you, and information becomes fuller and more freely offered. Building that rapport means showing up consistently, contributing to shared efforts, and demonstrating that you respect both the content and the source of what you hear. A colleague from a culture where information is documented and distributed systematically may find the reliance on informal exchange inefficient, while a Faroese counterpart may view rigid documentation as impersonal or slow to reflect what is actually happening on the ground.

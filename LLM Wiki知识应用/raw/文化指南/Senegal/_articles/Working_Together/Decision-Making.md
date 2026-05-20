@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Senegal emerge from multiple directions at once. A senior leader may hold the formal authority to sign off, but before any commitment is made, they are often balancing input from Dakar's political and administrative networks, expectations from their home region or village, the views of religious leaders or brotherhoods, the requirements of international donors, and increasingly, the reaction of young people whose voices have become harder to ignore. This is why decisions can seem slow or circular to colleagues from cultures where a manager's approval is enough to move forward. The delay reflects a wider field of accountability, and a leader who moves too quickly without checking those lines risks losing legitimacy or support.
-
-In public programmes especially, decisions try to satisfy multiple audiences. A project may need to align with a donor's reporting framework, respect the implicit guidance of marabouts who hold moral authority in many communities, and avoid sparking opposition from unions or youth movements. This means proposals are often revisited, adjusted or tested before they are finalized. If you present a plan as complete and fixed, you may find it quietly shelved. Instead, frame ideas as flexible and phased, so decision-makers have room to consult, adapt and bring others on board without losing face.
-
-Elections, protests and cabinet reshuffles can reopen settled questions. A decision made one quarter may be reconsidered the next if political winds shift or street opinion turns. Design your collaboration to withstand that uncertainty. Ask not only who has signing authority, but who they are answerable to, and help them build the case for each audience.

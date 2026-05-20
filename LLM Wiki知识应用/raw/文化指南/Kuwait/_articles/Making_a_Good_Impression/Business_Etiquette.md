@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Formality in Kuwait runs on two tracks. In ministry meetings and structured business settings, surface politeness tends to be careful and controlled. The same person who guards their words in a conference room may speak with surprising candor later that evening, tea in hand, during a diwaniya gathering. The shift reflects context, not contradiction. Formal settings protect reputation; informal ones test ideas. If you need honest feedback on a risk or proposal, save it for the quieter conversation, not the polished meeting.
-
-The concept of *ʿayb* (shameful behavior) shapes how people speak, particularly around money, competence, and family. Publicly embarrassing someone over their status or ability registers as more than directness. It harms their standing and, by extension, their family's. Criticism should be delivered in ways that preserve dignity. That usually means one-to-one settings, carefully chosen words, and an emphasis on collective problem-solving rather than individual fault. A colleague from a culture where accountability is discussed openly in group meetings may read this as evasiveness, while a Kuwaiti counterpart may interpret the same public critique as a breach of respect.
-
-Regional politics are emotionally loaded. Comments about Saudi Arabia, Iraq, Iran, or Palestinians touch memories of invasion, territorial disputes, and long-running Gulf tensions. What feels like casual analysis to someone unfamiliar with the history may land as insensitive. Follow your Kuwaiti colleagues' lead on how candid it's safe to be, and avoid jokes or sweeping statements about neighbors unless you're certain of the room.

@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Centuries of centralised authority have shaped what leadership looks like in the Republic of Congo. Pre-colonial Kongo kingdoms were hierarchical, French colonial administration reinforced layered control, and the Marxist-Leninist era added vanguardist models of decision-making. These have stacked up over time, each reinforcing the expectation that leaders should be visible, personal, and decisive. The current political system continues this pattern, modeling leadership as enduring and direct. People expect their leaders to provide clear direction and take responsibility for outcomes.
-
-In practice, this means participatory or consensus-based styles can read as weakness. A leader who regularly defers to the group or invites too much input without making firm decisions may lose credibility quickly. This doesn't reflect a rejection of consultation, but it does mean that the act of deciding must remain clearly with the leader. A manager from a culture where decision-making is distributed across a team may be seen as indecisive or unprepared. From the other direction, a Congolese colleague working under a highly collaborative leader may wonder who is actually responsible when things go wrong.
-
-Respect builds through visible decision-making and accountability. Leaders are valued for experience and the ability to set a clear example, not just technical expertise. A tight grip on progress is expected, though it should be managed without heavy-handedness. Motivation matters because direct criticism is unlikely to surface openly. If a leader appears weak or absent, someone else may step in to fill the gap. Hierarchy is real here, and unclear authority can shift quickly into rivalry rather than shared responsibility.

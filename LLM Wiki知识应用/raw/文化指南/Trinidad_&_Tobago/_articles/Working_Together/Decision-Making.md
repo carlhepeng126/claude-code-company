@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Trinidad and Tobago are often judged through a social lens, where legitimacy depends on whether people felt properly seen and respected during the process. A choice that makes technical sense can still be questioned if it left someone looking sidelined or disrespected. This stems from a cultural history in which public participation, particularly through Carnival, established expectations around voice and recognition. Being ignored or spoken over registers as a deeper slight than inefficiency, so who was consulted and how they were included can shape whether a decision is accepted or resisted.
-
-Improvisation is viewed as a sign of competence, rooted in the logistical realities of Carnival and panyard culture where problem-solving under shifting conditions is the norm. Adaptive decision-making that keeps relationships and dignity intact is often admired rather than criticized. A manager from a culture where decisions are expected to follow a pre-set plan may see this flexibility as disorganized, while a Trinbagonian colleague may view rigid adherence to an original decision as inflexible when circumstances change. The reverse perception also applies: what looks like last-minute adjustments to one may read as resourcefulness to another.
-
-In Tobago, where social interconnection runs deeper, decisions may be evaluated more heavily on their community impact and relational repair than on speed or efficiency. Events like the upheavals of 1970 and 1990 remain present in cultural memory, sharpening attention to fairness and who benefits when authority is exercised. If you are leading a decision, ensure consultation is visible and that room exists for people to be heard. If you withhold voice, you may lose legitimacy regardless of the outcome.

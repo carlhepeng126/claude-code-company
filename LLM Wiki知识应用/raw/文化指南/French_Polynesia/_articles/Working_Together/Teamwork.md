@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Collaboration in French Polynesia grows from relational foundations shaped by Polynesian values of community and collective wellbeing. Teams function most naturally when members have time to build trust and connection beyond task completion. This reflects a worldview where interpersonal harmony and shared responsibility precede individual performance. Projects that begin with relationship-building, whether through informal gatherings or shared meals, typically move more smoothly than those that launch directly into deliverables. A colleague accustomed to dividing work into clear individual accountabilities may find this approach inefficient, while someone from French Polynesia working in a task-focused environment may experience the absence of relational groundwork as isolating or transactional.
-
-Senior team members often guide through example and indirect mentorship rather than explicit instruction. This mirrors cultural preferences for learning by observation and preserving dignity. Junior colleagues watch, ask quietly, and absorb through participation rather than formal briefing. Openly correcting someone in a group setting disrupts harmony and risks shame, so feedback typically happens in private and through suggestion rather than critique. If a team member seems unclear on a task, pausing to check understanding one-on-one will usually yield better results than clarifying publicly.
-
-Face-saving extends to how success is acknowledged. Praise directed at the team rather than singling out individuals helps maintain group cohesion and avoids elevating one person above others. This collective framing reflects the importance of shared achievement over personal recognition, and reinforces the relational fabric that sustains effective collaboration over time.

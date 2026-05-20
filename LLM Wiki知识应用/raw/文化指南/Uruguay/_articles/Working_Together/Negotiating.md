@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Uruguayan negotiation often rests on a moderation ethic, where firmness comes through calm, steady reasoning rather than pressure tactics or brinkmanship. Composure conveys strength, and pushing too hard can undermine credibility. People listen for whether a position is coherent and fair, not just advantageous. In a country that values its institutional history, arguments that appeal to proportionality and social defensibility tend to land more persuasively than those framed solely around opportunity or urgency. If you open with your best terms and leave no room to move, you may come across as rigid or uninformed rather than decisive.
-
-Uruguay's small professional networks mean repeat encounters are likely, so negotiation is often shaped by the knowledge that "we may meet again." Preserving dignity and leaving the relationship workable can be as real a stake as the terms themselves. Open disagreement with someone's reasoning is acceptable, but cornering a counterpart publicly or turning negotiation into a zero-sum contest risks longer-term consequences. This can puzzle colleagues from settings where fast, firm closes are rewarded. From a Uruguayan perspective, those same colleagues may seem more interested in winning a round than building something sustainable.
-
-Don't assume each part of a contract is settled once discussed. Portions may be revisited until the whole agreement is signed, especially if new information or relationships shift the context. Offering options rather than ultimatums gives your counterpart room to think and signals respect, which can move things forward more reliably than manufactured deadlines. Close with a clear written summary so the agreement feels institution-compatible and avoids ambiguity that could reopen discussion later.

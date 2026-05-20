@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-On Bonaire, Sint Eustatius and Saba, feedback is most effective when delivered privately, gently, and with attention to personal dignity. Public criticism, even when framed constructively, can cause embarrassment and damage working relationships. Managers who need to address a performance issue will often wait for a quiet moment, frame the conversation informally, and focus on the specific situation rather than labeling the person's broader capability. This approach reflects the relational culture of the islands, where preserving harmony and respect within small, interconnected communities matters more than rapid course correction.
-
-Praise, by contrast, can be shared more openly, though it should still feel sincere and personal rather than formulaic. A manager might acknowledge someone's effort in front of colleagues during a casual exchange, reinforcing positive behavior without making the recognition feel overly formal or staged. Spontaneous appreciation tends to resonate more than structured performance reviews, which can feel distant or mechanistic in a context where trust is built through personal connection.
-
-Coaching conversations often unfold gradually rather than in one sitting. A manager may introduce an idea, let it settle, and return to it later through another brief conversation or example. This pacing allows the individual to process the feedback without feeling pressured or singled out, and it reflects a broader cultural preference for allowing relationships and understanding to develop naturally over time. For colleagues from cultures where feedback is delivered more directly or in scheduled review sessions, this approach may seem slow or unclear. From a local perspective, however, a rushed or overly direct intervention can feel disrespectful and counterproductive, making the relationship harder to repair.

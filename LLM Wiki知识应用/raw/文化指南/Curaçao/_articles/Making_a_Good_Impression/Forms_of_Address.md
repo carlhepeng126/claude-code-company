@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Curaçao's approach to forms of address reflects its Dutch colonial legacy and Caribbean warmth, creating a blend of formality and informality that shifts depending on context. In professional settings, titles matter. Addressing someone as "Meneer" (Mr.) or "Mevrouw" (Mrs.) followed by their surname is standard practice during initial meetings and in more formal business environments, particularly when dealing with senior figures or government officials. Professional titles such as "Dokter" or "Ingenieur" are used and respected, especially in sectors like healthcare, law, and engineering where credentials denote status.
-
-This formality coexists with a relational culture that values personal connection. Once a working relationship develops, many colleagues will invite you to use first names, signaling that the relationship has moved beyond purely transactional ground. The shift is usually initiated by the senior or more established person, and jumping to first names too quickly without that invitation can read as presumptuous or overly casual. A colleague accustomed to immediate informality may find this gradual transition slow, while someone from Curaçao working in a setting where titles are dropped from the outset may feel the relationship lacks foundation.
-
-In written communication, maintain the formality you've established in person. Email openings should mirror the level of address used face-to-face, and closings like "Met vriendelijke groet" (with kind regards) preserve professionalism without stiffness. Even in relaxed workplaces, err toward the formal until the tone is clearly set otherwise.

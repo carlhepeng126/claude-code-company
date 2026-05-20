@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teams in Andorra operate within a small, tightly woven society where professional and personal lives often overlap. Because the country has only around 80,000 residents and three official languages, most working relationships extend beyond the office. This closeness shapes how people collaborate. Team members tend to know each other's families, backgrounds, and even weekend plans, and that familiarity builds a baseline of trust. But it also means that direct confrontation or public criticism can ripple well beyond the workplace. Preserving relationships becomes as much a part of teamwork as delivering results.
-
-Hierarchy in Andorran teams is present but understated. Senior colleagues are respected for their experience and often guide less experienced team members informally, through observation and side conversations rather than formal briefings. This mentoring style reflects the country's preference for discretion and relational learning. Junior team members are expected to watch, listen, and adapt without needing everything spelled out. A colleague from a culture where feedback is explicit and instructional may find this indirect approach unclear, while an Andorran working in a more direct environment may feel that constant explanation underestimates their ability to learn on their own.
-
-Teams function best when collaboration feels organic rather than imposed. Formal team-building exercises are rare, and when they do happen, they lean toward shared meals, mountain outings, or cultural activities rather than competitive games or performance-driven tasks. The goal is connection, not visibility. Praise is typically directed toward the group rather than individuals, which helps maintain balance in a setting where singling someone out, even positively, can feel uncomfortable or disruptive to the collective tone.

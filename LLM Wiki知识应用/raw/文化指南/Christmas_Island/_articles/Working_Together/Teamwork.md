@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork on Christmas Island reflects the social realities of a small, culturally diverse community where daily life depends on connection across ethnic lines. The island's Chinese, Malay, and European-heritage populations maintain distinct cultural identities, languages, and community networks. Teams often bring together people from different backgrounds, and collaboration depends on a kind of practical respect that acknowledges difference without requiring uniformity. Colleagues learn to navigate varying communication styles and decision-making preferences without explicit discussion, reading cues and adapting as they go. This can mean slower progress when a project requires quick consensus, but it reduces the friction that can arise when people feel their ways of working are being dismissed or overridden.
-
-Hierarchy exists but sits lightly. Seniority is recognized, and deference shown, but the informality of island life means that authority is exercised with restraint. A senior colleague might offer guidance without formal instruction, expecting others to observe and follow rather than wait for detailed direction. For someone from a culture where roles and tasks are clearly spelled out, this can feel ambiguous. From the other side, a more directive management style might be experienced as overbearing in a setting where autonomy and personal judgment are quietly valued.
-
-Team cohesion often builds through informal time together rather than structured activities. Shared meals, local festivals, and community events create the relational foundation that formal team-building exercises might serve elsewhere. Trust grows through repeated, low-stakes interaction, and colleagues who invest in those moments tend to find collaboration smoother when the work itself becomes demanding.

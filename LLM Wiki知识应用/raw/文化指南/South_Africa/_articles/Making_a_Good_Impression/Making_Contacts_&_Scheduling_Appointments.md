@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-South Africa's professional networks are often built through what might be called belonging structures rather than formal business channels alone. Alumni ties, church communities, sports clubs, neighborhood connections, and family networks frequently overlap with language and locality, shaping who knows whom and how introductions happen. In a country with 11 official languages and nine provinces, each with distinct demographic and linguistic profiles, the path to a contact often depends on which community institutions anchor someone's daily life and which language worlds they move through. Understanding this means recognizing that who introduces you, and what community you're perceived to respect, can shape how quickly doors open.
-
-When scheduling, offer options that acknowledge lived logistics rather than assume everyone works from a single city center. Apartheid-era spatial design placed many townships far from business districts, and long commutes across uneven infrastructure still affect who can meet where and when. Suggesting a couple of time windows, proposing virtual meetings as an equal option, and confirming location assumptions early shows awareness of these realities. December and January are peak summer holiday periods when many people are out of the office, so plan around those months if possible.
-
-Building legitimacy also means signaling respect for South Africa's internal diversity. Pronounce place names correctly, don't flatten regional or linguistic identity, and avoid treating the country as culturally uniform. Regional tensions and migration debates mean some people will assess intent carefully before opening professional doors, so rushing familiarity or making assumptions about nationality or background can slow trust rather than build it.

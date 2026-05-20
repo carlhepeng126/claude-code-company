@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in the Democratic Republic of Congo often flows through personal relationships rather than formal systems. Decades of political instability and weak institutional structures have made informal networks essential for survival and success. People rely on trusted connections because official channels can be unreliable or compromised. If you need information in a professional setting, cultivating personal rapport with key individuals usually proves more effective than depending on organizational charts or written procedures. This relational approach means that someone outside established networks may initially find themselves without access to critical details, even when those details seem routine.
-
-Building trust takes time and visible commitment. Colleagues want to see that you will honour confidences and remain present beyond a single transaction. Sharing information prematurely, especially about internal challenges or sensitive matters, can feel risky when institutional protections are weak and personal reputations are everything. A manager from a setting where transparency is embedded in formal systems might interpret this caution as obstructiveness or secrecy. From the Congolese perspective, a colleague who pushes for information too quickly may seem naive about local realities or, worse, untrustworthy.
-
-Face-to-face exchanges and informal conversations often yield more insight than formal meetings or email requests. People share more freely when they feel heard and respected as individuals, not simply as sources of data. Spending time in conversation, demonstrating reliability, and showing genuine interest in relationships will gradually open doors that formal requests alone cannot.

@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Zambia is shaped by multiple calendars. Funerals and memorial responsibilities reset schedules quickly and broadly, mobilizing family and community networks with little warning. Showing up to these events is a moral obligation, part of belonging, and will take precedence over most other commitments. A colleague who was planning to attend a meeting may travel at short notice because the social cost of absence is far higher than the professional cost of delay. In cultures where individual deadlines are held firm regardless of personal circumstances, this reordering can feel unpredictable. From a Zambian perspective, a schedule that cannot bend for life-cycle events can seem rigid to the point of disrespect.
-
-Seasonal rhythms and infrastructure realities also influence what is practical. In areas outside central urban corridors, travel feasibility shifts with the rains, road conditions, and distance. Even urban planning can reflect this awareness once you move beyond Lusaka's more diary-driven tempo. A phrase like "we'll see" is often logistical realism, particularly in smaller centers where timing depends on factors beyond anyone's immediate control. The Kuomboka ceremony, set according to flood levels rather than a fixed date, illustrates how nature and communal priorities can lead the schedule for entire communities.
-
-Build plans with buffers and confirm closer to the date without implying mistrust. When bereavement-related changes occur, respond with flexibility that acknowledges the legitimacy of the commitment. Before locking sequences outside major hubs, ask about travel feasibility. Use clear agendas and time windows, but stay open to adjustment. If timing is critical, explain constraints calmly and work together on a plan that fits the ground reality.

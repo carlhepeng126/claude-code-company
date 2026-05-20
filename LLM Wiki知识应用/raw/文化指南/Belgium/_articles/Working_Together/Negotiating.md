@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in Belgium is grounded in what Belgians themselves call a culture of pacts. School pacts, social pacts, coalition agreements: these are the reference points. The goal is rarely a clean win for one side. Instead, negotiators work toward packages where each party can tell a credible story of partial victory to their own constituency. This tradition reflects the country's internal diversity. A negotiation labeled as one with "the Belgians" may in practice involve Flemish employers and Walloon unions, or Brussels authorities and federal ministries, each bringing different priorities and red lines. Deals that ignore this layered reality tend to stall or unravel.
-
-The intersections go deeper than region. Automatic wage indexation, social contributions, and sectoral agreements form part of a social model with deep political roots. Proposals that appear purely commercial to an outsider can touch those nerves if they seem to threaten indexation or undercut social protections, even indirectly. A colleague accustomed to flexible labor arrangements might find Belgian negotiators unexpectedly firm on points that seem procedural, while Belgians may view the same colleague's proposals as politically naive or dismissive of hard-won consensus.
-
-Symbolic balance often holds as much weight as financial terms. Which region receives which part of a project, whose language appears in the communication plan, whose logo sits higher on the slide—these details matter because they reflect fairness, not vanity. Build your offers as packages that combine budget, regional spread, visibility, and timing. Map the web of actors and balances your counterpart must manage, and tailor proposals to that lived complexity. Symbolic concessions are often cheaper than financial ones, and sometimes more effective.

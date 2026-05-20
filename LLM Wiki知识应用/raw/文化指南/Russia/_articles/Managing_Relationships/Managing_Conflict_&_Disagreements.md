@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Disagreements in Russian professional settings often escalate because of how they affect relationships and standing, rather than the issue itself. A challenge to someone's judgment can read as a challenge to their dignity or position, particularly when delivered in front of others. This makes the setting crucial. The same issue that can be debated frankly in a smaller, trusted group may be deflected or go silent in a public forum where status is visible and exposure feels risky. The boundary between *svoi* (one of us) and *chuzhoi* (outsider) shapes what's safe to say and where.
-
-Bluntness can function as a sign of seriousness or sincerity when used inside a trusted relationship, but the same directness can feel aggressive or disrespectful if delivered to someone outside that circle or in front of colleagues. For someone accustomed to separating the idea from the person, this can feel confusing. A Russian colleague may interpret public critique as a personal attack, while a manager from a low-context culture may wonder why a straightforward point triggered withdrawal or defensiveness. From the other side, softened feedback can come across as vague or insincere.
-
-Giving feedback privately and framing it as a problem to solve together, rather than a mistake to correct, lets people contribute to the solution and preserve their standing. Avoid sarcasm, public comparisons, or language that implies someone has been careless or uninformed. When conflict does surface, address it quickly but without humiliation. Offering a clear next step or a way to move forward together helps people rejoin the working relationship without shame. Regional or identity differences can quietly sharpen tensions, so if the disagreement feels disproportionate, slow down and ask clarifying questions rather than interpreting too quickly.

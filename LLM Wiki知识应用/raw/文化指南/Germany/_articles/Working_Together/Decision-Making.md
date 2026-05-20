@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-In German professional settings, decisions take time because they are expected to rest on solid ground. Managers prefer to decide slightly later with comprehensive analysis than quickly on incomplete information. This reflects both a technical culture that values precision and historical caution about choices made without proper scrutiny. Expert input, structured data, and thorough risk assessment are the foundation of credible decision-making. If you push for a rapid conclusion on a complex issue without providing well-organized information, expect resistance or a request for more detail before anything moves forward.
-
-Consultation is built into the process, not just as courtesy but as legal and organizational reality. Works councils, unions, and technical specialists often have formal roles in decisions that affect their areas, and skipping them can derail implementation later. Even where consultation is informal, managers will seek input from those whose expertise or stakeholder position makes their view relevant. This does not mean authority is absent. Senior leaders retain final say, but they reach that point through a process that includes others, not around them.
-
-Once a decision is made, it is expected to hold. Frequent reversals undermine trust in leadership and disrupt planning, particularly when teams have committed resources or adjusted timelines based on an agreed direction. If circumstances genuinely change, reopening a decision is acceptable, but doing so casually or without clear justification will be seen as poor judgment. Documenting not only what was decided but why helps maintain consistency over time and allows new team members to understand the reasoning behind current practice.

@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Dress in Oman reflects the country's Ibadi tradition, which values modesty, cleanliness, and restraint. This isn't about ceremony alone. For many Omani men, the white dishdasha with kumma or turban is everyday professional wear. Women typically wear abaya and shayla or modest long dresses, with variation in style and color depending on age, region, and personal preference. The principle underneath is consistent: clothing should not draw attention to the body or suggest that you are more interested in being noticed than in doing the work.
-
-Expats are not expected to adopt Omani dress, but they are expected to respect the norms that shape it. That means shoulders and knees covered, no visible cleavage, and nothing tight or see-through. In formal settings, a shirt and trousers for men or a tailored blouse and trousers for women is appropriate. For senior meetings, dress one level more formal than you think necessary. For site visits, safety gear and closed shoes show you take the environment seriously. If your Omani counterpart shifts from casual to formal for a particular meeting, treat that as a signal of the meeting's significance.
-
-Regional and sectoral differences add nuance. Dhofar may feature more fragrant oils and colorful scarves. Industrial zones prioritize high-visibility gear and boots over formal tailoring. Muscat office environments tend to be less conservative than interior towns, though the baseline of modesty holds everywhere. Watch how your closest colleagues dress and use that as your benchmark. If you compliment clothing, focus on craftsmanship, embroidery, or fabric quality, not on how flattering or revealing something is. The point is to blend respectfully, not to stand out.

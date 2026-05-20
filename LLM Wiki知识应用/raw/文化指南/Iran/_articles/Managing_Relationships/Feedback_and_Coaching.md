@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Many Iranians have grown up in a school culture of strict teachers, harsh grading, and public comparison. This history shapes how feedback registers in the workplace. A manager who corrects like a caring, demanding teacher—someone who expects high standards but also invests in the person's growth—can be deeply respected. A manager who ridicules or dismisses, however, echoes the worst of that old script and will be remembered, unfavorably, for years. The distinction hinges on tone and intent. Frame feedback as guidance toward mastery, not as judgment on intelligence. Say "You're clearly strong at X; to reach the next level we need to refine Y," rather than pointing to failure.
-
-Education in Iran often represents years of struggle through brutally competitive entrance exams and economic crises. Degrees are identity armor. Critique that seems to question someone's field of study or the value of their qualification cuts at the core of their self-worth. Focus feedback on behavior in this specific context and on practical adjustments, not on the legitimacy of their background or training.
-
-Generational differences show up clearly. Older colleagues may prefer hinted feedback, wrapped in stories and indirect phrases. Younger staff, especially those connected to global work culture, may privately want clear, specific guidance but will rarely ask for it openly. Either way, real coaching happens in small circles, with the door closed, over many cups of tea. Many Iranian workplaces are not psychologically safe; people have seen colleagues punished for speaking too honestly. If you offer one-to-one coaching, say explicitly that what you discuss stays private, then prove it by never using someone's vulnerability against them later.

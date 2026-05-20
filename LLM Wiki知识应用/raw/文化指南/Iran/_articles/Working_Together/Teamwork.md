@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Team bonds in Iran are built around loyalty, resilience, and trust earned over time. Older colleagues sometimes reference the Iran–Iraq war years as a shared moral reference point, valuing people who stand their ground together under pressure rather than those who deliver results only when conditions are easy. This shapes how teams approach difficulty: framing a challenge as something to get through together tends to resonate more than appeals to individual targets or incentive structures. If you lead a team through a volatile patch, linking the effort to collective endurance rather than individual performance may strengthen commitment.
-
-Most Iranian teams operate with an inner and outer circle. The inner circle shares concerns frankly; the outer circle mainly receives instructions. Newcomers start on the outside and move inward as they demonstrate discretion, consistency, and competence. A manager from a culture where transparency is expected early may read this reserve as opacity or distrust. From the Iranian perspective, a colleague who shares everything immediately before trust is established may appear naïve or indiscreet. Building your way into the inner circle requires demonstrating that you understand unspoken concerns, notice shifts in tone, and follow through reliably over several months.
-
-Iranian teams often include highly educated members whose promotion paths are blocked by economic or political constraints. Half a team may hold advanced degrees yet have limited outlets for advancement. Unless they see intellectual challenge and real input into design, they may redirect energy toward side projects, freelancing, or emigration plans. Giving these colleagues meaningful involvement in shaping work, not just executing it, can make the difference between retention and quiet disengagement.

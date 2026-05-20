@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Haiti runs through connection, loyalty and the quality of the relationship between manager and team member. People work hardest when they trust the person leading them and when they feel their contribution is seen and valued personally. Recognition works best when it is direct, immediate and tied to the individual. A manager who acknowledges someone's effort in front of colleagues, or who thanks them privately after they have stepped up during a difficult moment, builds commitment in a way that formal incentive schemes rarely do. Financial compensation remains necessary, but it rarely inspires on its own.
-
-Performance targets and rigid deadlines, by contrast, tend to fall flat. Haitian professional life follows a more flexible sense of time, where family needs and personal obligations take priority and where the future is understood to be beyond complete control. Pushing for clock-driven results, especially when it cuts into family time or personal commitments, can weaken motivation rather than strengthen it. Managers who adjust timelines and maintain momentum without insisting on strict adherence to schedules will see more engagement than those who rely on formality and pressure.
-
-What drives someone can shift depending on generation, location and setting. Younger professionals in Port-au-Prince or in international organizations may respond to development opportunities, training or visible projects that build their profile. In smaller towns or family-run businesses, stability and a respected position may count for more. Across the board, the desire to support family and protect reputation remains a powerful motivator, and decisions that honor those responsibilities tend to spark deeper commitment than those that do not.

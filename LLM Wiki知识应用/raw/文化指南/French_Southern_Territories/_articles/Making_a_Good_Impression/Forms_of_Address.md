@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-The French Southern Territories host no permanent population, only rotating teams of researchers, technicians, and support staff stationed on remote bases for periods of weeks to months. Forms of address in this environment reflect French professional norms adapted to the isolation and interdependence of life on stations like Port-aux-Français or Dumont d'Urville. Formal titles are used on arrival and in written communication. Scientists introduce themselves as Docteur or Professeur, technicians by role and surname, and administrative staff by Monsieur or Madame with family name. This formality anchors hierarchy and expertise in settings where roles must be clear and authority over safety or research decisions unambiguous.
-
-Informality grows quickly once work begins, shaped by the physical closeness and shared hardship of Antarctic or sub-Antarctic conditions. Within days, first names replace surnames among peers working side by side in labs, kitchens, or maintenance sheds. The shift happens organically, often initiated by someone senior as a gesture of inclusion, but the timing varies by team culture and individual preference. A logistics coordinator from a culture where first names are used immediately may read the initial formality as distant, while French staff may find an unsolicited switch to first names presumptuous before a working rhythm is established.
-
-Written formats remain formal throughout a mission. Emails to station chiefs, logistics officers, or scientists coordinating across bases use full titles and structured closings. This separation between spoken ease and written protocol reflects the dual need for collegiality in cramped quarters and professional accountability in a high-risk, internationally scrutinized environment.

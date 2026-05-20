@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Uruguayans approach information with care, not because transparency is discouraged but because relationships are close and circles small. In a country where professional and personal networks often overlap, discretion reflects social ethics rather than secrecy. Sharing sensitive details widely can put people at risk of exposure or complicate future dealings, so colleagues tend to limit circulation to the smallest necessary group. When working across teams, name confidentiality explicitly if needed, rather than assuming boundaries are understood.
-
-Public communication in Uruguay tends toward measured composure, but this can coexist with deeper candour once trust is established. The restraint reflects a preference for correctness and courtesy, not a reluctance to engage. In smaller settings or after relational warmth builds, often through the extended conversations typical of sobremesa (informal time spent together after a meal), people are more likely to speak frankly. A colleague from a culture where directness is front-loaded may read the initial reserve as withholding, while a Uruguayan may find rapid disclosure premature or intrusive. Both can adjust by recognizing that different timings reflect different logics of trust.
-
-Questions and scrutiny are often a sign of seriousness rather than skepticism. Uruguay's strong education tradition and legacy of public commentary, including the satirical murga performances that lampoon authority during carnival, have normalized reasoned critique as a civic behaviour. When a colleague probes assumptions or asks for reasoning, respond with clarity and calm. They are usually looking to understand fully, not to challenge credibility. Providing structure, explaining implications, and clarifying thinking will be more convincing than assertive confidence alone.

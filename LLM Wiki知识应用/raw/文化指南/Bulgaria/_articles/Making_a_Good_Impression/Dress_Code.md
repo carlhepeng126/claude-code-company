@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Bulgaria holds a strong cultural ideal of being a "normalen chovek," a normal person who doesn't stand out too sharply in either direction. Dressing too flashy can suggest you're trying too hard to impress, while showing up too casual may signal you don't understand the setting or take it seriously. The aim is to look clean, well-fitted, and practical — someone who grasps the realities of weather, roads, and office life rather than arriving as a visiting performer. This instinct for calibration runs through most professional contexts, even if the specific standard varies.
-
-In ministries, state-owned enterprises, and courts, you'll still see the legacy of socialist-era formality: dark suits, neat shirts, modest jewelry. This isn't theatrics. Turning up too casual in these settings can read as disrespect for the institution itself, even if those inside quietly criticize how it operates. The formality reflects deference to structure and role, and clothing choices either affirm or undermine that frame. If you're meeting officials or working in traditional industrial sectors, err toward the formal end.
-
-Sofia's IT and creative sectors tell a different story. Sneakers, hoodies, and tattoos are unremarkable in these circles, especially among younger professionals. But the same look can land badly outside the capital or with older clients, where it reads less as modern and more as unserious — student rather than credible professional. Age of your counterparts and region both shift expectations sharply, so match your look to sector, location, and who's in the room, not just to company type.

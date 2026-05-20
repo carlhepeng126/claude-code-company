@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Bulgarian meetings can feel like two events in one. They often begin with a formal, lecture-style briefing from whoever holds authority, with the rest of the room listening in near silence. Then, once people feel comfortable enough, the tone can shift into intense, overlapping debate where voices rise and several conversations happen at once. For a colleague from a culture where meetings flow at an even pace, this can read as a loss of control. For Bulgarian participants, it means the discussion has become real. Raised voices often signal engagement, not hostility. The shift from restraint to animation shows that hierarchy is still present but that trust has begun to take hold.
-
-You may hear the phrase *kakvo se znae*, meaning "as it's known," used when someone wants to reference something they assume others already understand. This shortcut often points to unwritten realities like how a ministry actually operates, how EU funds move through particular channels, or which informal networks matter. It's a way of signaling shared awareness of inefficiency or corruption without spelling it out fully in front of outsiders. If you hear this phrase in a meeting, note it and ask a trusted local colleague afterward about what lies behind it. That follow-up conversation often reveals more than the meeting itself.
-
-Side conversations in Bulgarian during your presentation are common and more informative than they may seem. Colleagues use these micro-exchanges to clarify points, signal reactions, or check alignment before they speak up in the larger discussion. If you don't speak Bulgarian, bring someone who does and ask them afterward what was being said. Those exchanges often surface concerns or reactions that won't be voiced directly in English.

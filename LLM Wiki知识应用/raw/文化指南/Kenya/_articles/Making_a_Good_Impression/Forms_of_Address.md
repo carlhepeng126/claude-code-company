@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Kenya, how you greet and address someone communicates where you place them in the relationship and how seriously you take the interaction. A handshake with direct eye contact is standard at first meetings, and these handshakes often lengthen as familiarity builds. However, men should wait for a female colleague to offer her hand first before initiating a handshake. Close female colleagues may hug or kiss once on each cheek. The greeting itself, often "Jambo" (How are you?), opens the door to questions about family, health, or how long you have "stayed" in Kenya. These are genuine inquiries, and responding warmly is the start of building trust. To hold back from this kind of exchange reads as coldness or arrogance.
-
-Titles remain the starting point in formal and professional settings. Professional or academic qualifications should be used where known — "Doctor," "Professor," "Engineer" — always paired with the surname. This acknowledges status and achievement, both of which are publicly honored. In business correspondence, maintaining this formality reinforces respect. Men may be addressed as "Bwana" (Mr/Sir) or "Mezee" for older men, and women often address one another as "Mama," even without children, as a marker of respect and social connection.
-
-First names are offered once relationship has been established, and the shift is meaningful. Moving to first-name terms too early, especially in hierarchical or client-facing settings, can feel presumptuous. Wait for the invitation, and match the level of formality your counterpart extends.

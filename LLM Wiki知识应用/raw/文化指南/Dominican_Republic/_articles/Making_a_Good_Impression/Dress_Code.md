@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Being well-presented matters in the Dominican Republic, and people notice the care you bring to your appearance. A polished, coordinated look, clean and pressed, reflects self-respect and seriousness. This holds across income levels and sectors. The principle is known as being *bien presentado* (well-presented), and it applies whether you work in a government ministry or manage a construction site. Scuffed shoes or a rumpled shirt register more clearly than an expensive label, and grooming details like manicures, fragrance, and accessories quietly signal professionalism.
-
-The combination of tropical heat and formality creates a distinctive standard. In Santo Domingo and Santiago, senior men often wear long-sleeved shirts and sometimes jackets despite humidity. Women's dress can be form-fitting and stylish while remaining business-appropriate, and elegant sandals may replace heavier footwear without losing formality. The result is a dressed-up aesthetic that adapts to the climate without becoming casual. If you come from a context where tropical settings invite relaxed dress, recalibrate slightly upward here.
-
-Sector and setting shape expectations. Government ministries and banks call for conventional formality: dark suits, jackets, and careful tailoring. Tourism management blends corporate polish with Caribbean style. In free zones and construction, on-site practicality, branded polos, boots, and helmets give way to more formal dress when the same colleagues visit offices or attend meetings. Adjust your approach accordingly, and when in doubt, aim for the more formal end of the range. The effort will be read as respect for the relationship and the setting.

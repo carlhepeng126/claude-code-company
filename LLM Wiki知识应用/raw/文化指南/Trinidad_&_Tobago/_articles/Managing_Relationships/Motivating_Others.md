@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Trinidad and Tobago grows strongest when people feel they are contributing to something collective and that their effort is visible within a team or community. The workplace often functions as an extension of family and social circles, where being heard and being part of a shared story builds commitment more reliably than incentive structures alone. This reflects a broader cultural pattern where belonging is earned and maintained through showing up and through competence that can be publicly witnessed. If someone's contribution helps the group succeed or represent well, that recognition resonates deeply.
-
-Excellence under constraint earns particular respect. The cultural admiration for steelpan's invention and Carnival's creative engineering, both shaped by limited resources and social pressure, means that ingenuity and delivery hold real status. A manager who acknowledges how someone solved a problem creatively or met a challenge with limited support is tapping into a source of pride that credentials alone do not unlock. Framing tasks as opportunities to demonstrate craft and resilience, rather than simply executing instructions, can shift the level of engagement noticeably.
-
-Recognition works best when it honours representation, when it signals that someone has made the team or organization look good. Praise that names how an individual's work reflected well on the group, or upheld its reputation, tends to land more powerfully than generic individual praise. In Tobago-linked settings, explicitly acknowledging distinct identity and contribution as Tobagonian rather than collapsing it into a general national frame can materially affect goodwill and sustained effort.

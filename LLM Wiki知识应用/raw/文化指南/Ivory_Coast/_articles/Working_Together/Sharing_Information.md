@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Ivory Coast moves primarily along relationship lines and through established hierarchies. Who you know and to whom you are connected shapes what you learn and when you learn it. This reflects deeply embedded social structures where loyalty flows upward and information flows through trusted channels. Within organizations, people share what colleagues need to know to fulfill their roles, but those lower in the hierarchy rarely have visibility into decisions or plans forming at the top. A sales team might receive direction without understanding the broader strategy behind it, and junior staff typically wait to be told rather than expecting transparency across the business.
-
-This selective approach means networking becomes a practical necessity for expatriates trying to understand the business environment. Social events and local business forums offer more than connection; they become crucial sources of insight into market shifts, competitor movements, and unwritten rules. A conversation over coffee or at an evening gathering might reveal what would never appear in a formal briefing or company-wide email. Relationships built outside the office often unlock access to the knowledge needed to operate effectively.
-
-Someone accustomed to open communication platforms where information circulates broadly might find this system slow or opaque. From the Ivorian perspective, broad transparency can feel reckless or unnecessary, particularly when information might be misunderstood or misused by those without the context to interpret it well. Building genuine connections with colleagues across levels takes time but opens doors that formal channels alone will not.

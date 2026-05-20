@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in American Samoa move at a pace shaped by *fa'asamoa*, the Samoan way of life that places relationships and collective harmony ahead of transactions. Business conversations typically begin with extended personal exchange, not as a formality but as the foundation on which trust is built. Rushing this phase to reach agenda items can suggest that the partnership itself holds little value. For a colleague from a culture where efficiency and time management are central, this can feel unstructured. From the Samoan perspective, a meeting that skips relational grounding may seem transactional and disconnected. Allow time for these opening exchanges and recognize that they establish whether you are someone worth doing business with.
-
-Decision-making authority usually rests with senior figures, and decisions rarely happen in the room. Consensus is often sought outside the formal meeting, through quieter conversations with family members, village elders, or matai (chiefs who hold both family and community authority). Pressing for immediate answers or expecting a signed agreement before these consultations have taken place can backfire. If you need clarity on next steps, ask when a decision might be ready rather than pushing for one on the spot.
-
-Disagreement is rarely voiced directly, especially in front of others. Silence or polite redirection often signals reservation. If a proposal is met with general agreement but no follow-through, it may mean concerns were raised indirectly or left unspoken to preserve group harmony. Building space for one-on-one follow-up after the meeting can surface what was held back in the group setting.

@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-An invitation to a Hungarian colleague's home, whether to their Budapest flat, countryside house, or weekend place near Lake Balaton, usually reflects a meaningful level of trust. Preparing a home meal involves considerable effort, and the gesture is understood as a personal investment in the relationship. This means you should arrive with a small gift—flowers, wine, dessert, or something from your own country—rather than empty-handed. Showing up without anything, particularly in more traditional or rural settings, can come across as thoughtless. Watch what others do when you arrive: removing shoes indoors is common, though not universal, and following your host's lead avoids any awkwardness.
-
-The time you spend at a Hungarian home extends beyond the meal itself. Meals tend to unfold over several courses, with conversation woven throughout. Once the meal is finished, expect to linger. Rushing to leave immediately after coffee signals disinterest. More telling still is the goodbye: conversations often continue in the doorway or hallway for another ten or fifteen minutes after coats are on. This extended farewell is a continuation of the visit, not a delay. Cutting it short can feel abrupt, as though the guest is eager to escape. For a colleague from a culture where goodbyes are brief and efficient, this can seem unnecessarily drawn out. From a Hungarian perspective, the colleague who thanks everyone and leaves quickly may seem polite but emotionally distant.
-
-If you accept an invitation to a holiday cottage on the Danube or Balaton, understand that it comes with an unspoken expectation of reciprocity. Your host will assume you plan to return the gesture when they visit your country.

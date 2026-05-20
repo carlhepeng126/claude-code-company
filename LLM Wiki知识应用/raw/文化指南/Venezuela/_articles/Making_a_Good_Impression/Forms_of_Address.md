@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Venezuelan Spanish allows for a quick shift into warmth, but people still maintain a working distinction between familiarity and respect. The choice between *usted* (formal "you") and *tú* (informal "you") functions as a social dial that can be adjusted based on age, seniority, and how well you know someone. You can sound friendly and still keep respectful distance when the situation calls for it. In professional settings, the default is polite formality using titles and surnames until the other person softens the register. Start with "Señor," "Señora," or a professional title like "Doctor" or "Licenciado," paired with the family name. Wait for your counterpart to invite a shift to first names or *tú* before making the move yourself.
-
-Venezuelan workplaces often use nicknames and affectionate terms to build ease and belonging, but this layer of informality is governed by whether the relationship has permission for it. Words like *chamo* or *chama* (roughly "kid" or "dude") and *pana* (friend or buddy) are cultural signals of in-group comfort and can strengthen rapport quickly, but using them too early can feel presumptuous. Mirror the level of closeness your counterpart uses with you rather than performing familiarity before it exists.
-
-Regional speech identity runs deep in Venezuela. Some areas, particularly Zulia and parts of the Andes, use *voseo* (an alternative second-person form) instead of standard *tú*, and this local variation carries pride and sometimes stereotype. If you hear distinct regional vocabulary or verb forms, notice it respectfully rather than copying it immediately. Treat regional language as part of someone's identity, not as decoration to adopt for rapport.

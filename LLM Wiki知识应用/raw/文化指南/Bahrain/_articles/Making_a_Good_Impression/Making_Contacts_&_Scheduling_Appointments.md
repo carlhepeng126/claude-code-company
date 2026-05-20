@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Bahrain is a small island where reputation travels faster than your opening email. A potential contact is rarely more than two phone calls away from someone who knows your former employer, your cousin, or your university roommate. People quietly check who you are through this web before agreeing to meet, so who can vouch for you locally often matters more than how polished your LinkedIn profile looks. Entering the market without an introduction from a trusted intermediary, whether a respected professional, an alumni network, or a family with standing, means you start several steps behind.
-
-Many influential Bahrainis hold court in evening diwaniyas, informal gatherings where visitors drift in for coffee, conversation, and quiet assessment. Showing your face in the right room, introduced by a regular, can open doors faster than a week of cold outreach. These are not social add-ons to the real business process. They are the process. Senior people in Manama's towers often still have village or neighborhood roots in Shia villages, old Muharraq families, or tribal areas, and contacts are read by which people you belong to in this village-city web, not just by your job title.
-
-The religious calendar shapes access in ways an office diary never will. During Ramadan evenings, Ashura processions, or key mawlids (celebrations of the Prophet's birth), people may be more reachable in communal settings than at their desks. Approaching someone through a shared event, mosque, or husseiniya (Shia community hall) context can feel more natural than a message sent into the void. If you ignore these rhythms and rely only on office hours, you miss when and where trust actually forms.

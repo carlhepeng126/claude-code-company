@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Tunisian cuisine reflects centuries of layered influence. Arab, Amazigh, Ottoman, French, and Mediterranean traditions meet on the same plate. Couscous, often served on Fridays, is the national dish, usually accompanied by lamb, chicken, or vegetables in a spiced broth. Brik, a crispy fried pastry filled with egg and tuna or meat, is a popular starter. Grilled meats, seafood along the coast, and salads of roasted peppers or tomatoes feature regularly. Harissa, a chili and garlic paste, adds heat to many dishes. Meals are typically shared, with communal plates in the center and bread used to scoop up sauces and stews.
-
-Many Tunisians avoid pork and alcohol for religious reasons, though practices vary. Some colleagues, particularly in urban or international settings, may drink wine or beer. Others abstain entirely. Ask discreetly ahead of time rather than assuming, and choose restaurants that offer flexibility if you're unsure. If alcohol is welcomed, Tunisian wines are well regarded. If not, meals often include fruit juices, mint tea, or coffee.
-
-The meal itself is a space for building rapport. Conversations move freely between personal and professional topics, and the pace is unhurried. Trying local dishes signals openness and cultural awareness. Rushing through courses or steering too quickly toward business can feel transactional and undermine trust. Mint tea, poured from a height into small glasses and served with pastries or fruit, usually signals the end of the meal. The conversation may slow, but the tone stays warm.

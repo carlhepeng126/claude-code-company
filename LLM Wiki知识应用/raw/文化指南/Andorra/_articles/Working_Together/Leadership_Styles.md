@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Andorra's small size and relational economy shape a leadership style built on proximity and trust. With a population under 80,000 and a workforce heavily concentrated in tourism, retail, and financial services, leaders are rarely distant figures. Most organizations are family-owned or small-to-medium enterprises where the manager may also be the owner, and professional paths cross repeatedly. This closeness means authority is real but must be exercised carefully. A top-down decision that ignores input can damage relationships that extend well beyond a single project or role.
-
-Leaders tend to consult informally rather than through structured meetings. Decisions may already be formed, but checking in with key people before announcing them helps maintain cohesion and avoids public disagreement. This is especially visible in businesses where family hierarchies overlap with formal roles. A manager from a culture where debate is expected during decision-making may read this as closed or token participation. From the Andorran perspective, the same manager's directness in meetings without prior consultation may feel abrupt or dismissive of existing relationships.
-
-Younger professionals and those in international firms may expect more transparency and open discussion, particularly if they have studied or worked abroad. But even in these settings, authority remains personal. Leaders are expected to know their people and act with discretion. A decision reached without visible input is less likely to be challenged if the leader has invested in the relationship beforehand. For international colleagues, this means informal conversations before formal moments often matter more than what happens in the room.

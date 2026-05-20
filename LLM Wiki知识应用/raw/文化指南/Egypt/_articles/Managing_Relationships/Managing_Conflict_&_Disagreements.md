@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Loud argument in an Egyptian office does not always mean the relationship is damaged. Colleagues may overlap, interrupt, and use emphatic language in ways that feel intense to someone from a culture where professional disagreement is quieter or more structured. The real warning sign is when someone withdraws, answers politely but briefly, and stops engaging in the informal give-and-take that usually surrounds work. Smiling disengagement signals that trust has broken, even when outward courtesy remains intact. If calls still get answered and commitments still get honoured after a heated exchange, the relationship is probably holding.
-
-When conflict runs deeper, direct confrontation between the two parties often feels too blunt. Many Egyptians prefer to bring in a respected intermediary—a senior manager, a local figure with standing, sometimes a religious leader or older relative—who can mediate without forcing either side to lose face. This approach recognises that individual honor is tied to family and social networks, and that preserving dignity on both sides helps restore the working relationship. Formal HR processes may run in parallel, but a trusted "uncle or aunt" figure often does more to repair trust than paperwork alone.
-
-Conflicts that touch on religious identity, regional background, or visible markers like dress can go deeper than the immediate issue. Tensions between Muslim and Christian colleagues, or stereotypes about Cairenes and Sa'idis, add layers that people may not name openly but feel sharply. When something like this surfaces, acknowledge it quickly and take concrete steps to address it. Delay or vague reassurance will be read as indifference, and the damage can spread quietly through networks that extend well beyond the office.

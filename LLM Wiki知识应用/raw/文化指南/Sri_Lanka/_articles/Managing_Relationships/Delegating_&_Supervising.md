@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Sri Lankan workplace culture draws from Sinhalese and Tamil traditions that emphasize deference to elders and authority, Buddhist and Hindu values around social order, and the legacy of British colonial administrative structures. The result is a professional environment where rank is taken seriously and visible authority is expected. A manager who is too casual or egalitarian may be seen as lacking gravitas rather than being approachably modern. Employees are more comfortable when the social order is clear. Establish your authority early through competence and decisive leadership. Warmth is valued, but it works best alongside visible command.
-
-Delegation requires explicit instruction. Employees will follow the brief as given and rarely extend beyond it without direct instruction. They want to understand the background to a project, how it connects to past successes, and what their role is within the structure. If something is unclear, they are unlikely to say so. Check that your instructions have been properly understood, and be prepared for timelines to differ from what you might expect elsewhere. What feels thorough to one manager may feel rushed to a Sri Lankan team, and what seems like reasonable pace in one context may read as slow in another.
-
-Protecting face runs through professional interaction. Public correction produces shame, withdrawal, and quiet disengagement, not the clarity or course correction you intend. Keep all critical feedback private and framed with care for the individual's sense of worth. The manager who knows about a team member's family situation and asks how things are going beyond the task earns a different quality of loyalty than one who manages at arm's length. Personal trust is built slowly and through demonstrated reliability and genuine human interest, not efficiency alone.

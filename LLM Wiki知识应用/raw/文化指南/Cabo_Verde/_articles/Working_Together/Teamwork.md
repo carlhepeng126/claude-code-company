@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-In Cabo Verde, teamwork reflects a culture built on close social bonds and mutual support, shaped by the country's small island communities where everyone tends to know everyone. Collaboration is rarely just functional. Colleagues expect warmth, personal connection, and a sense that the team looks out for each other beyond the task at hand. This relational foundation means that trust and cohesion develop through shared time, conversation, and steady demonstration of loyalty rather than through formal team-building exercises or rapid onboarding. A colleague from a culture where teams form quickly around goals may find the pace slow, while a Cabo Verdean working in a more transactional setting may feel the absence of relational groundwork makes collaboration feel shallow.
-
-Hierarchy exists but is softened by a preference for indirect guidance. Senior team members tend to lead through example, storytelling, and informal mentorship rather than explicit instruction. This allows less experienced colleagues to learn without being singled out or exposed, preserving dignity and group harmony. Public praise is typically directed at the team rather than individuals, and corrective feedback is given privately to avoid embarrassment. If you need to address a performance issue, do so one-on-one and frame it as support rather than criticism.
-
-Team members expect managers to take a genuine interest in their lives, not only their output. Asking about family, acknowledging personal circumstances, and showing flexibility when someone faces difficulty are seen as core leadership behaviors. A manager who focuses only on deadlines without building these connections may be respected for competence but not trusted or followed with the same commitment.

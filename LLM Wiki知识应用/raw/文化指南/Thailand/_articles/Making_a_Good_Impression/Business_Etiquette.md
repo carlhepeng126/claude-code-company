@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Thai business etiquette is shaped by a deep preference for smoothness in interaction. The concept of *kreng jai* (a sensitivity to not imposing on others) combines with face concerns to guide everyday courtesy. The aim is to keep exchanges low-friction and non-embarrassing. Public contradiction, visible frustration, or cornering someone with a request can all disrupt this smoothness. What this means in practice is that a colleague may soften a refusal, deflect rather than say no directly, or remain silent rather than disagree openly in a meeting. If you respond by pushing harder or asking again with more intensity, you risk compounding the awkwardness rather than resolving it.
-
-Calmness signals credibility. The cultural value of *jai yen* (a cool heart) means that emotional self-control is read as maturity and reliability, not detachment. Raising your voice, showing impatience, or visibly losing composure can feel destabilising to Thai colleagues, as though the relational ground has become unsafe. A colleague from a culture where directness and urgency are prized may interpret this calmness as evasiveness or lack of engagement. From the Thai side, that same directness may read as unnecessary harshness or a lack of care for the other person's dignity.
-
-A warm, even humorous tone does not mean a matter is trivial. Thai colleagues often use lightness to reduce tension and keep relationships safe while serious work is handled underneath. If you rely only on tone to assess commitment, you may miss the substance. Watch for consistency in follow-through and what happens over time, not just what is said in the moment. Small acts of courtesy also accumulate. The principle of *bunkhun* (remembered reciprocity) means that gestures of help or consideration create lasting relational credit. Etiquette is part of the long game of trust, not a short-term formality.

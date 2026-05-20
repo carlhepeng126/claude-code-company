@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Fairness sits at the heart of Croatian negotiations. You will often hear the word *pošteno* (fair) invoked when terms are discussed, and its opposite, *nepošteno*, when a deal feels lopsided. A slightly less lucrative agreement that feels balanced and transparent can be preferred over one that maximizes your gain but leaves the other side questioning your intent. The concern is not sentimentality. It reflects experience with economic transitions, patchy privatizations, and contracts that favored those with access over those with legitimacy. When you present terms, be prepared to explain not just the numbers but why the split is fair, who takes on which risks, and how value is genuinely shared. If the logic behind the deal is clear, people are more willing to move forward.
-
-Suspicion of overly complex contracts is real. Years of shifting laws and fine print that concealed advantage have left many Croatian negotiators wary of dense legal language or multi-clause documents that bury key points. "What's the catch?" is not rhetorical. Walk through the material clauses in plain language and invite questions about worst-case scenarios. Avoiding footnoted surprises builds the kind of confidence that lets the conversation progress.
-
-Croatia's regional economic asymmetries also shape how offers are received. A business in Zagreb operates in a different economy than a family-run guesthouse on an island with a three-month season, or a small enterprise in Slavonia. A national price or one-size proposal can feel blind to these realities. Showing that you understand the different cost structures and constraints your counterpart faces, and tailoring support or terms accordingly, signals that the partnership is grounded in their actual situation, not a template.

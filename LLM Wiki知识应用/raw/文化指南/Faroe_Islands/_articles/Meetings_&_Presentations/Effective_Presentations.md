@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Presenting in the Faroe Islands calls for understatement and substance. Faroese professional culture values modesty, and overt self-promotion or inflated claims can undermine credibility before you've made your case. Keep your tone measured and grounded in what you can deliver. If you've done notable work, let the details speak rather than the adjectives. A colleague accustomed to high-energy pitches or confident framing may read this restraint as a lack of conviction, while a Faroese audience may hear the same pitch as overreach. The reverse also holds: someone from a context where enthusiasm drives persuasion may find a Faroese presenter reserved to the point of being hard to read, when what's being offered is simply respect for the audience's judgment.
-
-Clarity and directness matter more than polish. Dense slides or elaborate builds rarely add value. Faroese professionals appreciate presenters who get to the point without unnecessary layering. If your material is technical, make sure it's accessible without being simplified to the point of condescension. Questions are often practical and to the point, so prepare for a working conversation rather than a performance.
-
-Hierarchy exists but doesn't dominate the room in the way it might in more formal settings. Senior figures may be present, but input can come from across the table. Don't assume the most senior person will be the most vocal, and don't dismiss a question because of who asked it. Decision-making often involves consultation beyond the meeting itself, so follow-up conversations may be where the real exchange happens. Treat these as a continuation of the presentation, where clarity and consistency reinforce what you've already said.

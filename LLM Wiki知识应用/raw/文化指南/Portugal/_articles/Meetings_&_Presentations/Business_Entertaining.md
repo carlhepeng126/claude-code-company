@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Portugal is built around *convívio* (pronounced con-vee-vee-o), the cultural practice of being together without rush. This is relationship time, not negotiation time, and the shape it takes reflects that. Meals are long, conversation ranges widely, and the goal is shared presence rather than efficiency. Business may come up briefly over coffee at the end, but only if your Portuguese host raises it. Bringing it up earlier, or treating the meal as a working session, misreads the purpose. The gathering itself deepens trust.
-
-Lunch typically runs from midday to 3pm, though dinner starts later than many visitors expect. A 7pm start usually means accommodating international guests. More often, Portuguese colleagues finish work late, meet for a drink, then move to a restaurant around 9pm or later. The evening may continue to a *fado* club in Lisbon or extend into spontaneous next stops. This rhythm reflects the cultural preference for light, repeated contact over single, intensive events. If plans shift or the group grows unexpectedly, responding with calm practicality rather than visible frustration aligns with *desenrascanço* (dez-en-rash-CAN-so), the admired ability to solve problems gracefully without drama.
-
-Restaurants vary widely. You may be taken to a simple *tasca* (tavern) if the food is good and the owner known, or to a more formal setting depending on the occasion. The venue choice reflects relationship, not formality. Reciprocating an invitation, whether during your visit or later, is valued and expected.

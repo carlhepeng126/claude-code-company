@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional dress in the Faroe Islands follows the practical constraints of a small, wind-swept archipelago where weather shifts quickly and outdoor exposure is part of daily life. People dress warmly and sensibly, with layers and weatherproof outerwear seen as essentials rather than afterthoughts. In business settings, smart casual is the norm: clean, well-maintained clothing without formality or flashiness. A collared shirt or blouse paired with trousers is standard in most professional contexts. Suits appear occasionally in meetings with government officials or formal contract signings, but they are far from expected and can feel overdone in routine office environments or site visits.
-
-Equality runs deep in Faroese society, and dress codes reflect that. There is little visible status signaling through clothing. Expensive brands or conspicuous accessories can come across as out of step with local values. People notice effort and care in presentation, but presenting yourself as too polished or fashion-focused can create distance. A colleague from a culture where tailored suits and designer labels signal professionalism may feel underdressed at first, while Faroese professionals may read formal attire as a lack of awareness about how work actually happens here.
-
-Functional outdoor clothing appears even in professional settings. It is not unusual to see someone arrive at a meeting in a high-quality waterproof jacket or wool layers that double as workwear. This reflects both the climate and the integrated nature of life in a small community, where the same person might move between an office, a harbor, and a fishing vessel in a single day. Dressing for adaptability, not formality, shows you understand the place.

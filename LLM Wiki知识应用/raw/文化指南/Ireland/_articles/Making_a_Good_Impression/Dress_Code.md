@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-What you wear to work in Ireland depends less on universal rules and more on sector, setting, and the degree of formality your role demands. In finance, law, the civil service, and senior meetings, business formal remains standard: suits, blazers, dresses, tailored trousers. The expectation reflects the seriousness of the interaction and the traditions that still shape these industries. In tech, start-ups, and creative sectors, smart casual has become the norm—clean jeans or chinos, a good shirt, neat shoes—but even here, people dress with intention. Turning up in workout gear or overly casual clothing can read as misjudging the context, especially in a setting where effort is noticed and appreciated.
-
-The Irish preference for modesty and practicality has deep roots in Catholic influence and rural traditions, where clothing marked the boundary between everyday life and special occasions. That distinction has softened, but the instinct remains: people respond well to a put-together appearance and tend to notice when someone is either underdressed or dressed in a way that feels showy. Luxury brands matter less than neatness and appropriateness. Overdressing in a casual environment can feel as awkward as underdressing in a formal one, because both suggest a misread of the group.
-
-Urban Ireland, especially Dublin, Cork, and Galway, is internationally connected and style-aware. Evening events, whether dinner at a good restaurant or a cultural occasion, call for more polish. If your Irish colleague arrives looking sharp, match their effort. The context shifts again if you visit a church or older institution; covered shoulders and modest hemlines are expected. These adjustments are small, but they reflect an awareness of setting that people register and respect.

@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-The Cocos (Keeling) Islands are home to two distinct communities—the Malay-descended Cocos Malays, centered on Home Island, and a smaller Anglo-European and mainland Australian population on West Island—and this shapes how business gets done. Formal etiquette is light. Interactions tend to be relaxed and relationship-based, especially on Home Island, where a slower rhythm and close-knit ties make personal connection more important than polished formalities. Rushing into business without some initial conversation or showing impatience with process can come across as dismissive. On West Island, where the population is smaller and more tied to Australian administrative norms, the tone may be slightly more direct, but even here, informality and approachability are valued.
-
-Greetings are generally warm but understated. A handshake is common, though not always expected. Taking a moment to ask after someone's well-being or family is a simple way to acknowledge the relational foundation that underpins trust. Religious observance matters, particularly within the Cocos Malay community, where Islamic customs influence daily rhythms. This means being aware of prayer times, avoiding meetings during Ramadan fasting hours, and respecting modesty, especially in cross-gender settings.
-
-Communication style leans toward the indirect. Direct confrontation or open disagreement, especially in group settings, is avoided to protect harmony and personal dignity. If a colleague defers a decision or answers a question vaguely, it may reflect a preference for consensus or a need to consult others before committing. Listen for hesitation or a shift in tone rather than expecting a clear "no." Building rapport before pressing for clarity will often yield better results than pushing for immediate answers.

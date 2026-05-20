@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-The Cocos (Keeling) Islands support two distinct communities with different dress norms, shaped by religion, climate, and cultural background. On Home Island, where most residents are Cocos Malay and Muslim, modesty guides everyday choices. Women typically wear headscarves and loose-fitting clothing that covers the shoulders and knees, while men dress conservatively in long trousers and shirts. This reflects Islamic principles of modesty and community identity built over generations of settlement from Southeast Asia. Visitors meeting colleagues or officials from Home Island should dress with similar care, covering shoulders and avoiding shorts or revealing clothing. This shows respect for local values and helps build trust in what remains a close-knit environment.
-
-On West Island, where most government workers and some contract staff live, the approach is more relaxed and shaped by the tropical setting. Business casual is common in offices, with light fabrics suited to heat and humidity. Formality increases slightly for meetings with senior officials or external delegations, but a tailored shirt or blouse with neat trousers or a skirt is usually enough. The small scale of the workplace means people notice details, so dressing thoughtfully still registers as professionalism, even if the standard is less formal than in larger Australian territories.
-
-If your work takes you between both islands, adjust your approach accordingly. What works well on West Island may feel out of step on Home Island, where dress reflects both faith and cultural continuity.

@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Bolivia are relationship-building occasions, not settings for closing deals or working through agendas. The meal itself is secondary to the chance it offers to deepen trust and understanding between people. Bolivian colleagues will often steer conversation toward family, shared experiences, or personal interests before touching on business, and that sequencing reflects the belief that good working relationships grow from genuine connection. Pushing toward professional topics too early can feel abrupt and may undermine the rapport you're trying to build.
-
-Timing tends to be flexible. A lunch scheduled for one o'clock might begin at half past, and no one will comment on it. This flexibility extends to the meal's duration. Bolivian hosts may expect two or even three hours, with courses arriving slowly and conversation unfolding at its own pace. Colleagues from cultures where efficiency and punctuality shape social expectations may read this as disorganized or unfocused. In return, a Bolivian professional might find a tightly timed meal or an early departure somewhat cold, as though the relationship didn't warrant the time.
-
-Expect dishes to be generous and varied. In urban centers like La Paz or Santa Cruz, you might encounter traditional fare such as *salteñas* (baked pastries filled with meat and vegetables) or grilled meats, often served alongside rice, potatoes, and *llajua* (a spicy salsa). Sharing food is common, and offering a taste from your plate is a gesture of goodwill. If you have dietary restrictions, mention them in advance rather than declining dishes at the table, which can feel awkward for your host.

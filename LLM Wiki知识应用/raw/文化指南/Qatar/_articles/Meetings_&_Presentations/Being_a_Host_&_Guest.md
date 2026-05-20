@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-The majlis, a reception room recognized by UNESCO, offers a living blueprint for hospitality in Qatar. It is where guests are received, news is exchanged, and community issues are discussed. The ritual offers structure, not constraint. Coffee is poured with the right hand, the eldest or most senior guest is served first, and the sequence itself communicates respect without needing to be stated aloud. These small gestures anchor an encounter in dignity and give both host and guest a clear role to inhabit.
-
-Formality at the outset is often a form of care. In a context where public tone is calibrated around honor, beginning formally protects everyone from social misstep. A host controls the flow of conversation, shifts topics when needed, and ensures no one is left out. As a guest, you should accept what is offered, particularly coffee or tea. If you must decline, do so briefly and without lengthy explanation. When you have had enough coffee, swirl the cup gently to signal you are done. Wait for the host to indicate when the gathering has ended. Leaving early, or before being excused, can read as a lack of respect for the time that has been set aside for you.
-
-When hosting Qatari colleagues abroad, make comfort practical rather than informal. Offer clear directions, a warm greeting, and thoughtful pacing. In mixed groups, where expectations may vary widely by background, the safest approach is to choose the most respectful default and let others invite informality. This approach does not slow connection. It allows it to unfold on terms that feel safe to everyone in the room.

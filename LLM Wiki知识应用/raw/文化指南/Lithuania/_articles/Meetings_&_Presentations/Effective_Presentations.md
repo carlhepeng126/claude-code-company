@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Lithuanian audiences tend to trust presentations that feel grounded. Claims backed by evidence, realistic timelines, and careful language land better than dramatic promises or performative certainty. This preference for understatement reflects a broader cultural instinct to treat inflated language with caution. A presenter who oversells may lose credibility quickly, while one who speaks plainly and walks through a proposal step by step is more likely to be taken seriously. That means spelling out not just what you're proposing, but how it will actually be implemented and what benefits it offers the local team.
-
-Structure matters here. Lithuania's strong tradition of collective cultural participation, including the country's UNESCO-recognized song-and-dance celebrations built on rehearsed coordination and disciplined form, has shaped an ear for preparation and coherence. A presentation that feels improvised or loosely organized may come across as incomplete. Audiences expect clarity, sequencing, and visible effort behind the content. Reserve and boundary-keeping are common, so tone should remain calm and competent without straying into overly personal territory or hard-sell energy. A colleague from a culture that values visible enthusiasm during pitches may read Lithuanian attentiveness as coolness, while Lithuanian attendees may view high energy as a distraction from substance.
-
-Expect polite, focused listening, often without interruption. Questions typically come afterward, and they tend to probe feasibility and detail rather than affirm enthusiasm. Junior colleagues may not speak up in front of senior figures, so mixing informally after a presentation can open space for quieter feedback. Eye contact across the room reinforces directness and honesty. Handouts in Lithuanian, if feasible, signal respect and help the content stick beyond the session itself.

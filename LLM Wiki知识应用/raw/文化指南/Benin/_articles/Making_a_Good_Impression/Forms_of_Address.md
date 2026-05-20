@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Benin, forms of address reflect a culture shaped by respect for age, position, and social standing. French colonial influence left a formal structure that persists in professional settings, where using titles correctly demonstrates understanding of hierarchy and deference to seniority. Titles such as "Monsieur" (Mr.), "Madame" (Mrs.), and professional designations like "Docteur" or "Ingénieur" (Engineer) are paired with the last name. This formality holds until the other person explicitly invites first-name use, which may take months or not happen at all in more traditional or senior-level relationships. Using a first name prematurely can suggest disrespect or a lack of awareness of the relationship's proper boundaries.
-
-The expectation of formality extends to written communication. Email openings such as "Cher Monsieur [Last Name]" or "Chère Madame [Last Name]" are standard, and closings like "Cordialement" or "Respectueusement" are expected. Even in routine exchanges, maintaining these conventions signals professionalism and regard for the recipient. Colleagues accustomed to casual written styles may find this level of attention excessive, but in Benin, skipping these markers can read as carelessness or rudeness, especially when addressing someone senior.
-
-Greetings often begin with a handshake, sometimes extended or gentle, and may be accompanied by a slight bow of the head when greeting elders or authority figures. In more familiar professional circles, a cheek kiss may replace or follow the handshake, particularly among colleagues who have worked together over time.

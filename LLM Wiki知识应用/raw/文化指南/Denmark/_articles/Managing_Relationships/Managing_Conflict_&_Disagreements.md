@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-When disagreement surfaces in Danish workplaces, the instinct is to lower the temperature and raise the clarity. Long, emotional emails are seen as poor form. The preferred route is to speak in person, involve a neutral third party if needed, or follow established procedures. This preference reflects a broader cultural expectation that conflict should be handled calmly and fairly, even when the stakes are high. Staying cool-headed isn't about avoiding the issue; it's about addressing it in a way that preserves respect and keeps the process ordentlig, meaning proper, transparent, and fair.
-
-In unionized settings, which cover most Danish workers, the tillidsrepræsentant (union rep, or TR) is a normal and respected part of how conflict gets resolved. Going to the TR isn't an escalation or a declaration of war. It's simply using the system as it's designed. The TR is there to ensure process is followed and that employees have a voice, and managers who understand this dynamic will involve reps early and show they respect the mandate. Colleagues from workplaces where unions are rare or adversarial may find this collaboration surprising, but in Denmark it reflects a long-standing tradition of social partnership between labor and management.
-
-Even in tough situations like restructurings or dismissals, people expect to be heard. The process itself needs to be documented, transparent, and give individuals a chance to tell their side. Being technically legal but procedurally shabby will damage trust and standing. Criticism, when it comes, should be private and specific. Calling someone out harshly in front of others will be read as bullying, not strong leadership, and the reputational cost will extend well beyond the immediate incident.

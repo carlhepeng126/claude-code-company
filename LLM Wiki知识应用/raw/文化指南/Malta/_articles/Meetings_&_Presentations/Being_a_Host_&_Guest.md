@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hosting in Malta draws on a cultural repertoire built through parish life and festa organisation, where planning a gathering well reflects attentiveness, care, and the ability to coordinate. A meeting or meal hosted smoothly tells people something about your competence and respect for the occasion. Maltese hosts often offer drinks and light refreshments even in informal settings, and more substantial gatherings involve multiple courses. The effort behind this hospitality is visible and meant to be noticed.
-
-The host-guest dynamic works both ways. Guests typically bring a small gift such as wine, chocolate, or flowers, acknowledging the effort involved in hosting. Beyond that, guests protect the host's reputation by keeping the tone respectful and avoiding friction or awkward confrontation in front of others. In a society where social circles overlap and community memory runs long, how a guest behaves can reflect back on the person who invited them. This shared accountability makes both roles feel more weighted than they might in settings where private and public life are more segmented.
-
-Locality pride often shapes how welcome is performed. A host may introduce you to a place, a route through town, or local connections as part of receiving you well. Responding warmly to this kind of pride is read as respect for the person, not just polite interest. Catholic public culture, reinforced through the parish calendar and shared moral sensibilities, influences occasion tone even in secular settings. Keeping language and humour measured in mixed or community-facing gatherings helps avoid unnecessary offense and maintains the social ease that both host and guest are expected to uphold.

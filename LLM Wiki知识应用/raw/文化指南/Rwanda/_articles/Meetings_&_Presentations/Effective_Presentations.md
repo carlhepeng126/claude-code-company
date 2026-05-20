@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-In Rwanda's post-1994 civic culture, persuasion rests on credibility rather than performance. Mechanisms like gacaca, the revived community justice system, embedded the idea that words can be consequential and that social repair involves careful testimony, acknowledgement, and responsibility. That legacy shapes how audiences listen today. They attend to whether a speaker feels ethically grounded and realistic, not merely impressive. Build your presentation around clear logic, realistic assumptions, and grounded evidence. Let confidence come from steadiness, not theatrics. Over-claiming or showmanship can feel misaligned with the composed, dignity-first atmosphere that agaciro (dignity) encourages in professional settings.
-
-Structure itself works as persuasion. The Intore dance, recognized by UNESCO, communicates discipline, coordinated movement, and ordered strength. That aesthetic carries over into how clarity and coherence can signal seriousness. Signpost your points clearly, summarize crisply, and make the story of responsibility visible: what you'll do, how you'll measure it, how you'll follow through. A well-organized presentation reflects the care that audiences expect. Dense or disorganized material can undermine trust before you've made your case.
-
-Rwanda's civic education program, Itorero, emphasizes citizenship formation and shared values. That makes "why this matters for the collective" a culturally legible frame. Anchor your message in outcomes that benefit the group or community, not just individual gain. Similarly, the Umushyikirano national dialogue legitimizes questioning as part of accountable exchange. Invite questions as part of the conversation, recognizing that some colleagues may prefer to approach you privately afterward rather than speak up in front of others. Treat those follow-up conversations as genuine dialogue, not an afterthought.

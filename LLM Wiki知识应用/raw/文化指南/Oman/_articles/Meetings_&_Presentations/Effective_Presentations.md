@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-A presentation in Oman should establish confidence, not generate excitement. Senior audiences respond far better to understatement than hype. A deck that says a proposal will reduce risk and support Vision 2040 goals feels more credible than one promising revolutionary transformation. Omanis have heard many outsiders oversell, and restraint reads as seriousness. Your track record proves more than your ambitions. Talk about what your company has delivered, show drawings or certificates, and include testimonies from past projects. Real achievements ground your credibility in a way that abstract vision rarely can.
-
-Presentations that feel rooted in Oman are taken more seriously than those that could apply to any Gulf country. Use maps that reference specific wilayat, ports, wadis or roads. Mention governorates by name. If you're discussing infrastructure or regional impact, show where it connects to Dhofar, Batinah or the interior. These details communicate that you understand the country you're working in, not just the opportunity you're chasing. All written materials should be available in Arabic, not only as courtesy but so that Omani colleagues can retell your story to stakeholders who were not in the room. If the narrative feels embarrassing or culturally tone-deaf, they won't champion it.
-
-Senior decision-makers think beyond profit. They want to know how a project protects social stability, avoids scandal, fits national values, and endures through leadership changes. If you don't address risk, reputation and continuity directly, you're answering the wrong question. Be honest about trade-offs and what you can't deliver. That level of candor is often refreshing and builds trust more effectively than optimism alone.

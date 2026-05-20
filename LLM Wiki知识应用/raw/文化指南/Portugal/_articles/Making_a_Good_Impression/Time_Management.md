@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Portuguese professionals often work with what might be called a double sense of time: one that values structure and another that values human responsiveness. This duality has roots in historical experience. The 1755 Lisbon earthquake and the methodical rebuilding that followed, including grid-planned streets and anti-seismic timber frames, left a lasting sense that order helps a society cope. Yet daily life rarely feels rigid. Conversations finish when they finish, not when the diary says they should, and meetings may begin only after the relational ground has been prepared.
-
-The culturally named concept of *desenrascanço* (the knack for improvising a practical solution when plans meet obstacles) helps explain why clarity and flexibility are both valued. Portuguese colleagues often respect those who arrive with clear proposals and confirmed details, but who stay composed and resourceful when reality shifts. A colleague from a culture where schedules are fixed may read this as inconsistency. From a Portuguese perspective, sticking to a plan that no longer fits the situation can seem inflexible or even unhelpful. The ability to adjust without drama is often seen as professional skill, not poor planning.
-
-Timing also follows a seasonal rhythm. June's *Santos Populares* festivals, especially Lisbon's Santo António celebrations, create late-night social schedules that affect energy and availability. August is widely treated as a major holiday period, with many Portuguese prioritizing travel and family time. Scheduling around these windows, and not interpreting slower replies as disengagement, reflects an understanding of how the year is structured. If something goes wrong, moving quickly into practical repair rather than lengthy apology tends to be well received. *Desenrascanço* is culturally legible, and colleagues often appreciate those who solve rather than explain.

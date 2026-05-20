@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Entertaining in Jordan sits inside a broader social architecture where showing up for weddings, condolences, and family gatherings is part of honoring relationships. This trains an instinct that carries into professional life: presence proves commitment. A meal together is rarely just a meal. It's relationship infrastructure, and the gathering itself often does more to build legitimacy and smooth future collaboration than any formal meeting could.
-
-Many Jordanians carry what might be called "diwan logic" into business entertaining, even when the setting is a restaurant rather than a traditional reception room. The host's role is to receive people well, let conversation unfold without rushing it, and demonstrate social competence. Generosity is performed through repeated insistence that guests eat more, accept more, or stay longer. This isn't pressure. It's the cultural choreography of hospitality. A guest's initial refusal often signals restraint, while accepting after gentle insistence shows the welcome has been received. For someone from a culture where refusal means no, this exchange can feel circular. From a Jordanian perspective, a guest who accepts immediately may seem overly forward, while one who refuses too firmly risks appearing distant or ungrateful.
-
-Who is invited, who is greeted first, and who leads conversation all communicate social rank without stating it aloud. Seating and deference are read closely. The social world you're entering also shapes what's appropriate: cosmopolitan Amman operates differently from more family-oriented or gender-segregated settings outside the capital. Choosing a venue that fits the context, and following the host's lead on timing and tone, demonstrates cultural awareness as much as any conversation does.

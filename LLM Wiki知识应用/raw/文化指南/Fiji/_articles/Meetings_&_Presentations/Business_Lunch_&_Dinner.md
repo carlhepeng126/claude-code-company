@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Fiji lean toward the informal. They're usually held in hotel restaurants or established dining spots rather than casual local eateries, but the setting still tends to be relaxed. The goal is relationship-building, and the tone stays conversational. Long, formal dining rituals are uncommon. Instead, the focus is on shared food and open conversation.
-
-Meals tend to include Fijian, Indian, and Chinese dishes, reflecting the country's ethnic mix. Communal-style eating is common, particularly in more traditional Fijian settings where large platters might be placed in the center for everyone to share. Indian-influenced curries, roti, and rice are widely available, as are Chinese stir-fries and seafood. If you're invited to someone's home rather than a restaurant, the style is usually warmer and less structured. Expect generous portions and repeated offers of more food. Declining too quickly can come across as polite hesitation rather than a firm no, so it's fine to accept a smaller second helping if you genuinely can't eat more.
-
-Alcohol may be served depending on the setting and the group. Kava, a mildly sedative drink made from the root of the yaqona plant, is central to Fijian social and ceremonial life. It's rarely part of a business lunch, but if offered in a more informal or ceremonial context, accepting a bowl shows respect. The drink is consumed in a single gulp, followed by a clap. If you're unsure of the ritual, watch others first or ask quietly. Refusing isn't offensive, but participating builds rapport.

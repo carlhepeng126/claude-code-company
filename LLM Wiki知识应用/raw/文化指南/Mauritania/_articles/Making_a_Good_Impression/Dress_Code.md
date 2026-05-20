@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Clothing in Mauritania visibly anchors a person to Islamic values of modesty and moral respectability. In a predominantly Sunni Muslim society, dress is often read as alignment with restraint and religiously informed dignity rather than personal preference. For men, the daraa, a flowing robe, and for women, the melehfe, a long, brightly colored headscarf wrapped around the head and body, are not simply customary garments. They locate someone in a Saharan aesthetic of presence and social legibility. If you're meeting senior officials or working in formal settings, dressing modestly shows you understand this baseline. Women working across cultures should plan for long skirts or trousers, covered shoulders and upper arms, and consider covering the head when the setting calls for heightened respect.
-
-Desert ecology shapes what works and what reads as competent. The heat, dust, and wind of the Sahara make loose, protective clothing practical, but that practicality also functions as a form of prestige. Knowing how to dress for the environment signals embodied knowledge and is culturally meaningful. The melehfe, for example, protects the face during sandstorms while fulfilling modesty expectations. In contrast, someone arriving in close-fitting Western business wear may be seen as unprepared, even if technically covered.
-
-In Nouakchott, institutional and globalised dress coexist with Saharan garments. The shift between registers depends on setting, audience, and the kind of authority being signalled. Clothing choices can also reflect social stratification. Presentation is often read through lineage and class, so what you wear may communicate positioning as much as professionalism. Attention to modesty, environmental awareness, and restraint will consistently read as respect in professional contexts.

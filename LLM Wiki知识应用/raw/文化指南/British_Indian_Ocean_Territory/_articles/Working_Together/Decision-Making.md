@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-The British Indian Ocean Territory has no permanent civilian population and no local business culture. The territory is administered by the United Kingdom as a military facility, operated jointly with the United States at the naval support facility on Diego Garcia. Decision-making in this context follows the formal hierarchies and processes of military and governmental administration, shaped by the frameworks of both the UK and US armed forces and the policies governing overseas territories.
-
-Decisions are made by officials based in London or by military personnel stationed on Diego Garcia, depending on the nature and scope of the matter. Strategic decisions about the territory's use, environmental management, or political status are handled by the British Foreign, Commonwealth and Development Office, often in coordination with the Ministry of Defense and US counterparts. Operational decisions on the island itself follow military command structures, with clear lines of authority and established protocols. Civilians working in support roles on the base operate within these structures and defer to military leadership on procedural and logistical matters.
-
-For those engaged with the territory in diplomatic, legal, or contractor capacities, decision-making is formal, documented, and often slow. Proposals must navigate both UK governmental processes and the operational requirements of a joint military installation. Decisions may require clearance from multiple agencies across two countries, and timelines reflect the layered nature of this approval process rather than local cultural preferences.

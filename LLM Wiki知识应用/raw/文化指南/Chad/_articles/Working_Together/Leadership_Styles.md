@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Chad is strongly hierarchical, shaped by a history of centralized authority and patriarchal social structures. Decisions are made at the top, often by a single figure whose authority reflects both formal position and personal standing. This is especially true in government ministries, state-owned enterprises, and rural areas, where elders and senior figures command unquestioned respect. Leaders are expected to act decisively and to embody the dignity of their role, and open disagreement with a superior can be seen as a breach of social order, not just professional protocol.
-
-That said, the style is rarely wholly autocratic in practice. Leaders consult trusted advisors and may invite input from senior colleagues, particularly in N'Djamena or within international organizations. This consultation is often selective rather than wide-ranging, and it may not change the final decision. What counts is that the leader has been seen to listen and that relationships are maintained. For a manager arriving from a culture where consultation implies shared decision-making, this can feel tokenistic. From the Chadian perspective, however, it reflects a relational logic where preserving cohesion and honoring hierarchy are as central to leadership as the decision itself.
-
-Younger professionals, especially those educated abroad or working in NGOs, may prefer more participative styles, but they often adapt their expectations to fit the setting. Leading effectively in Chad means understanding that authority is both formal and personal, and that respect flows through how decisions are framed, not just what is decided.

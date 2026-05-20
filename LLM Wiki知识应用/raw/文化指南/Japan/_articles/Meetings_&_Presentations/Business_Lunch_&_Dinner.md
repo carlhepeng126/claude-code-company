@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Japan follow an unspoken rhythm shaped by careful service and social order. Food often arrives in set courses, timed to create flow rather than interruption. Staff move quietly, changing plates without fuss. The restraint reflects broader expectations around attentive service and shared respect. Seating follows rank, with junior colleagues often placed nearer the door, watching others' plates and refilling drinks without being asked. This quiet choreography reinforces hierarchy while keeping the meal smooth, and it's noticed when guests join the pattern or ignore it entirely.
-
-Conversation may take time to reach business itself. Hosts often talk around the edges first, discussing family, travel, or other safe ground, gauging the relationship before turning to contracts or plans. Sometimes the purpose is simply to build warmth rather than close a deal. This approach makes sense in a context where trust develops over time and pushing too quickly can unsettle what's being built. A colleague from a culture where decisions are made quickly during meals may read this indirectness as evasion, while a Japanese counterpart may read rapid deal talk as transactional and premature.
-
-Declining food outright or leaving most of it uneaten can jar, especially when the host has chosen the venue and dishes with care. At the same time, dietary restrictions are generally understood when mentioned calmly and early. Trying small portions of what's offered, and thanking hosts for their attention to your needs, keeps goodwill intact without pretense.

@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-New Zealand audiences expect you to say what you mean without hype or overclaim. This stems from a broader cultural wariness of anything that sounds like overselling or self-promotion. Straightforward language and clearly stated points will serve you better than buzzwords or slick marketing framing. Where data is central to your case, tie it to local realities. Generic global statistics can feel disconnected. References to regional differences, rural and urban contrasts, or the specific situations facing Māori and Pasifika communities show you understand the context you're working in, and that grounds your argument in ways that matter to the people listening.
-
-In public sector, health, education, or social service settings, how you reference Te Tiriti o Waitangi (the Treaty of Waitangi) and commitments to Māori equity and co-governance can shape how your message is received. Ignoring these frameworks where they are relevant signals unfamiliarity or indifference, both of which undermine credibility. If your work touches areas where Treaty obligations apply, be ready to explain how you are aligning with those commitments. This is not a formality. It reflects a long-standing political and ethical framework that many organizations now work within as a matter of course.
-
-Stories from the communities you work with, told with humility and only where you have permission, often resonate more than polished corporate narratives. New Zealanders value what people have done over what they say they can do. Share credit openly and avoid positioning yourself as the central actor. Highlighting partners and communities rather than your own contribution fits the cultural expectation that good work is collaborative, and that claiming too much for yourself diminishes others.

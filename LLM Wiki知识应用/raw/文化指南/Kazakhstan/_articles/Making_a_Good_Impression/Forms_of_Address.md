@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Address styles in Kazakhstan reflect dual inheritances. Soviet-era formality favors Russian naming conventions in many professional settings: given name, patronymic (the father's first name with -ovich for sons, -ovna for daughters), and surname. When the interaction feels institutional, expect titles paired with surnames—Mr. Khassenov, Dr. Nurzhanova—and the use of name plus patronymic once a working relationship develops. This formality is not coldness. It reflects a comfort with official-mode behavior rooted in decades of hierarchical etiquette.
-
-Kazakh terms of address work differently. They often use relational markers—kin-like forms such as *apa* (older sister) or *ake* (uncle-like elder)—that place people warmly within a social fabric rather than literal family ties. You may hear a senior colleague addressed with a shortened version of their name followed by *-ke* (for example, Nursultan as *Nureke*), a form that signals respect and closeness at once. These shifts are not inconsistencies. They show register-switching, a form of social intelligence where the same person adjusts tone to match the context. A meeting may open formally and soften once trust is established.
-
-Age and status shape how respect is expressed. Elders anchor continuity, and blunt first-name familiarity can feel careless if introduced too soon. In mixed or international teams, colleagues from cultures where first names are the default may read the slower transition as distance, while Kazakhs may find the rapid informality premature. Start with titles and formal address, then follow the shift when your counterpart invites it. Watch for changes in tone or form—they often signal whether you are in official mode or relationship mode.

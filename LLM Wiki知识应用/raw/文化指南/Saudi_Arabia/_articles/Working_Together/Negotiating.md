@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Serious discussions in Saudi Arabia begin inside hospitality, not at a boardroom table. The early stages focus on establishing connection and mutual confidence, often over coffee and conversation that may seem unrelated to the agreement at hand. This is relationship-building work, and it is foundational. Moving too quickly to terms and pricing before that foundation is set can read as socially unskilled or dismissive of the person sitting across from you. If you are brought into the room through an introduction, that person's reputation shapes how you are received, and keeping them informed and respected throughout maintains your standing.
-
-The conversation itself may feel non-linear. Topics shift, earlier points are revisited, and what seemed settled may reopen for discussion. This back-and-forth allows both sides to test flexibility, assess temperament, and make sure every angle has been considered. Switching from business to lighter subjects is a way of relieving tension, not evading substance. Interruptions during your presentation are a sign of active engagement, not rudeness. Silence, by contrast, can indicate a breakdown in communication. Follow the rhythm rather than imposing a fixed sequence.
-
-Price will be central, even when much of the discussion has centered on partnership and long-term vision. Bargaining is expected and enjoyed, and presenting your best terms at the outset leaves no room for the reciprocal concessions that affirm fairness. Start with space to move. Decisions may take time, and several advisors may need to be consulted before final approval. Make sure you are speaking with someone who has decision-making authority or direct access to it, and bring multiple copies of any documents you plan to leave behind. Know when to walk away. Your counterpart may call you back, and that is standard practice, not a signal of failure.

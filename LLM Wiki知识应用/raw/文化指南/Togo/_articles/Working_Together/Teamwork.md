@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Togolese teams operate through structured hierarchy paired with everyday connection. Collaboration flows most naturally when senior members offer guidance and colleagues build trust through informal exchange. Hierarchy gives clarity, but the quality of personal relationships determines how smoothly information moves and how readily people support one another. A manager who maintains distance may find that decisions take longer to implement, not because of resistance, but because the relational foundation that allows things to happen quietly and efficiently has not been built.
-
-Mentorship in Togo often happens indirectly. Senior colleagues guide newer team members through observation, side conversations, and example rather than formal instruction. This reflects values of respect and face-saving. Learning is relational, and advice is offered in ways that allow someone to grow without being singled out or exposed. A colleague from a culture where feedback is direct and immediate may interpret this indirectness as withholding information, while a Togolese professional may view blunt correction as unnecessarily harsh and damaging to morale.
-
-Public recognition is handled carefully. Praise directed at individuals can create discomfort or tension within the group. Acknowledging the team as a whole preserves dignity and reinforces collective achievement. Corrective feedback should be given privately and with care, preserving both the relationship and the person's standing. This approach prioritizes group cohesion and long-term trust over speed or efficiency in addressing problems.

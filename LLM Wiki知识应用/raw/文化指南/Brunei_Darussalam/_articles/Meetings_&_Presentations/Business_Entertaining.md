@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Brunei happens quietly and with care. Meals offer a way to deepen relationships beyond the formality of the office, but they unfold according to social and religious norms that shape every aspect of the occasion. Alcohol is not served, and pork is never offered. Brunei is an Islamic sultanate, and these observances are embedded in daily life, not optional courtesies. Halal dining is the standard, and visitors who acknowledge this without commentary show awareness of the context they are working in.
-
-Invitations usually come once rapport has been established, and they tend to be modest in tone. A senior colleague may suggest lunch or dinner at a hotel restaurant or a café. The setting is usually relaxed, and conversation may range across family, travel, or shared interests. Business may be touched on lightly, but it's rarely the focus. The host decides when and whether to raise it. A guest who steers the meal toward contracts or timelines too early risks appearing transactional. The meal itself is the relationship work.
-
-Colleagues from cultures where business entertaining includes late nights or social drinking may find the pace slower and the boundaries clearer. For Bruneians, a long dinner that mixes alcohol and negotiation can feel inappropriate or uncomfortable. For a visitor used to that style, the restraint may seem formal at first, but it reflects both religious observance and a preference for separation between professional rapport and personal familiarity. Reciprocating thoughtfully, whether during the visit or later, is welcomed and remembered.

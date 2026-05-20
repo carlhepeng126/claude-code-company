@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Norway function as spaces where decisions gain their legitimacy. The country's long tradition of associational democracy—through sports clubs, housing co-ops, unions, and local boards—has trained people to expect participation. Minutes matter, voices are aired, and decisions made behind closed doors risk being seen as pre-cooked, undermining the commitment needed for implementation. This is less about warmth than about durability. In a culture where autonomy is valued and people resist being pushed, a decision that has been openly discussed stands a better chance of surviving contact with the organization.
-
-Expect flat interaction, but read it as moral principle rather than informality. Norwegian egalitarianism, shaped in part by the Janteloven ethos and a pride in governance through procedure rather than personal power, means that displays of superiority attract social risk. Managers include multiple voices in meetings, not to slow things down but to protect the integrity of the outcome. A colleague from a culture where seniority shapes speaking order may read this as unclear hierarchy; a Norwegian may read a top-down announcement style as dismissive of the people expected to carry out the work.
-
-The emotional register tends to be low-key. A calm tone is often read as a competence signal, while urgency expressed through pressure can come across as coercion. Norwegians move to business quickly—small talk is brief—but consensus-seeking can take time. That time is a trade against later resistance. If you frame a proposal with supporting data, present it openly, and allow space for input, you are more likely to leave with an agreement that holds.

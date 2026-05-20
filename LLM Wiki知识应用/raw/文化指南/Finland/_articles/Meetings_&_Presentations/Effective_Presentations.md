@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-A successful presentation in Finland depends less on persuasive flair and more on credible, evidence-based restraint. Finnish audiences expect you to show your work, acknowledge what you don't yet know, and avoid making the session about yourself. They are deeply allergic to buzzwords, inflated certainty, and anything that sounds like sales patter. Saying "this might not be perfect yet, but here's why we think it's useful" will land better than calling something revolutionary. The goal is to build trust through honesty, not to generate excitement through hype.
-
-Data and logic anchor the conversation. Finns want to see numbers, ranges, and the assumptions behind them, but they also value humility. An honest error bar is more impressive than inflated certainty. Referencing peer-reviewed research, pilots in similar contexts, or what didn't work elsewhere shows seriousness. Build your deck around realistic scenarios and plain language, with minimal slogans. Explicitly state the risks, the unknowns, and what support you would need. That transparency reads as professional competence, not weakness.
-
-Personal storytelling or extended accounts of your own success will make the room colder, not warmer. A lightly ironic remark about yourself, the weather, or the difficulty of the problem is welcome, but keep the focus on the work, not on your personality. Self-deprecating humor works; self-promotion doesn't. Wild gestures or constant talk will feel intrusive. Stillness and occasional silence give the audience time to digest the material, and they will rarely interrupt you while you're speaking. They may also be uncomfortable asking the first question in a formal Q&A. Informal conversation afterward, one-to-one over coffee, often yields more candid feedback than a public question session ever will.

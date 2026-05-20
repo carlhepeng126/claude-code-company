@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Authority in Angolan organizations is concentrated at the top, and decisions flow downward through clearly defined roles. Subordinates generally wait for direction rather than acting independently, not out of reluctance but because stepping beyond what has been explicitly authorized feels presumptuous. For a manager used to delegating outcomes and expecting staff to determine their own approach, this can look like hesitation or a lack of initiative. From an Angolan perspective, a colleague who acts without clear instruction may appear disrespectful of established authority. The result is that effective delegation requires more explicit guidance than managers from cultures where autonomy is expected might initially provide. Be clear about what needs doing, how, and by when.
-
-The relationship between manager and employee extends well beyond the transactional. Superiors are often seen as paternalistic figures, expected to provide genuine interest in the wellbeing of their team, including asking about family and offering support when needed. This expectation of care runs both ways. Loyalty is given to managers who demonstrate it in return, and an employee who trusts their manager personally will execute delegated tasks with greater commitment than one who sees the relationship as purely professional. Investing time in personal connection is how a manager earns the kind of loyalty that makes delegation work.
-
-Feedback is expected and valued, but direct criticism, especially in front of others, damages both the relationship and the individual's standing in the group. Corrections should be handled privately and framed with care. Public correction risks long-term withdrawal from group participation, as preserving face within the team is fundamental to ongoing collaboration.

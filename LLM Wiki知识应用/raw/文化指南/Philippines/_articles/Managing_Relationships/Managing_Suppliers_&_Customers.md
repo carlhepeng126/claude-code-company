@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Business and personal relationships are not separated in the Philippines. Whether you are managing a supplier or serving a customer, the professional arrangement depends on trust built over time and through personal connection. Expect to meet several times before work moves forward. Meals, golf, and informal conversation are how people gauge whether you are reliable and committed. Price and quality remain relevant, but the willingness to invest in the relationship often determines whether a contract is sustained. For overseas suppliers working with Filipino companies, regular in-person visits become part of the relationship itself, signaling that the partnership extends beyond transactions.
-
-Timelines can become fluid if the reason behind a deadline is unclear. Filipino collaborators may agree to a date out of courtesy, but unless the rationale is explained and shared openly, urgency may not follow. Writing down timelines and deliverables helps strengthen commitment, as the act of documenting reflects mutual seriousness. A colleague from a culture where verbal agreements are treated as binding may expect follow-through based on the conversation alone, while a Filipino counterpart may see the conversation as exploratory unless reinforced in writing. In return, someone from the Philippines working with a partner who pushes for fast decisions without prior relationship-building may read that haste as transactional or impersonal.
-
-Customer service roles reflect a strong ethic of graciousness. Front-line staff may wait for direction rather than propose solutions independently, but their warmth and attentiveness often build customer loyalty in ways that efficiency alone does not.

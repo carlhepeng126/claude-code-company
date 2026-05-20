@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Norwegian teams function on a specific social logic borrowed from dugnad, the tradition of collective voluntary work. Belonging is proven through practical contribution, not through visible enthusiasm or status. People show up, take on unglamorous tasks, and leave without expecting applause. In the workplace, this means trust builds fastest when colleagues deliver reliably and pull their weight without fanfare. A team member who consistently follows through will earn respect more quickly than one who speaks confidently but contributes unevenly.
-
-Flatness in Norwegian teams is maintained through modesty norms rooted in Janteloven. The group quietly polices self-promotion and dominance, often not through confrontation but through a cooling of respect. Competence is admired when it appears steady rather than performed. A colleague from a hierarchical culture where senior expertise is demonstrated visibly may find that asserting authority or highlighting achievements reduces their influence rather than building it. From the Norwegian side, that same behaviour can read as insecure or coercive, a signal that the person is trying to win through pressure rather than through contribution.
-
-Team members expect the right to question decisions and influence outcomes, a habit shaped by Norway's dense landscape of associations and committees where ordinary members routinely speak up. Managers who consult openly and listen will find participation comes naturally. Those who make decisions without input may face resistance framed not as insubordination but as legitimate questioning. Autonomy is paired with an expectation of self-regulation, reflecting the cultural principle of freedom with responsibility. When roles and responsibilities are explicit, people manage themselves well. When they are vague, the default assumption of self-management can lead to gaps in coordination.

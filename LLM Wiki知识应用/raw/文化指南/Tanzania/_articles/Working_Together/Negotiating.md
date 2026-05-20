@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in Tanzania unfolds within a longer arc of relationship and social memory. Trust accumulates through consistency and through being known in wider networks, which means any given discussion rarely stands alone. It connects to earlier interactions, shared contacts, and future possibility. Pushing too hard or forcing a visible concession can unsettle this relational foundation, because the way you negotiate today affects how you are remembered tomorrow. If you sense hesitation or a softened response, treat it as real information. Creating a face-saving way to explore what lies behind it, perhaps through a follow-up conversation or a trusted intermediary, can move things forward more effectively than direct pressure.
-
-The concept of *utu* (moral personhood grounded in empathy and respect) shapes what feels acceptable in negotiation. Hard tactics that corner someone publicly or demand a clear yes-or-no answer on the spot can feel less like skilled bargaining and more like a breach of dignity. Indirectness and softened language are often tools for signaling limits while protecting both the relationship and the other person's standing. Recognize that when someone shifts the frame or introduces a delay, they may be preserving space for agreement rather than avoiding it.
-
-Warmth and relational attentiveness are also how sincerity is assessed. Being cordial and patient, especially in early stages, builds credibility and allows trust to take root. Colleagues from cultures where negotiation is more transactional and time-bound may read this slower pace as evasive, while Tanzanian counterparts may read rapid, assertive persuasion as disrespectful or untrustworthy. Understanding this dynamic from both sides can help you adjust your approach without misreading the intent behind it.

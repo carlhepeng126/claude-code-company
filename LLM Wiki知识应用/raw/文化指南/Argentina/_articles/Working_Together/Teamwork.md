@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-In Argentina, the immediate team functions less like a corporate unit and more like a banda, a band or gang bound by loyalty, shared humor, and protective instinct. People experience their workgroup as a small club within the larger organization, with its own rituals and inside jokes. That loyalty runs to the people in the room, not to an abstract company identity. This means team cohesion builds through everyday connection rather than formal slogans or top-down messaging. Passing mate while complaining together about salaries, the economy, or management decisions is a core bonding practice. The complaining isn't a sign of disengagement. It's how people affirm "we're in this together," creating solidarity through shared frustration. A manager who tries to shut down every grumble will miss the real information those conversations contain about morale, workload, and structural problems.
-
-Teams pride themselves on collective improvisation, the ability to hacer magia (do magic) when materials don't arrive, the system crashes, or government policy shifts overnight. That ingenuity becomes a source of group identity and motivation. Acknowledging those moments when the team pulled off the impossible, even informally, builds far more commitment than abstract recognition. A colleague from a culture where process adherence is valued might see this improvisation as chaotic or risky, while an Argentine team might view rigid adherence to a broken process as pointless formality when the situation clearly demands creativity.
-
-In many workplaces, at least one team member is a union delegate or closely connected to union networks. That person straddles two loyalties and often shapes opinion more quietly than the formal leader does. Treating them as a partner rather than an obstacle, and asking what people won't say directly, can surface early warnings and build trust across competing allegiances.

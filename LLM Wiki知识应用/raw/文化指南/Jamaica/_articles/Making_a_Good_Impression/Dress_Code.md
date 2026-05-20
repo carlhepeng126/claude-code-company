@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Presentation reads as seriousness and self-respect in Jamaica, a legacy of colonial history that linked appearance to respectability. How you dress can influence whether people see you as reliable and whether you take the encounter seriously, particularly in institutional settings or when working with older professionals. Neatness, fit, and polish convey professionalism more reliably than formality for its own sake. Even in the heat, a sharp baseline matters. For initial business meetings, men should wear a lightweight suit and tie, and women should choose elegant, conservative clothing. Once the relationship is established, khaki trousers and a smart polo shirt work for men, with smart trousers and a blazer for evening functions.
-
-Context shapes expectations. Kingston's corporate and government offices read dress more formally than tourism-facing environments on the north coast. In community settings like schools or churches, where local norms and church culture influence what looks proper, aim for something respectfully conservative. Many companies provide uniforms, and employees keep them immaculate. From school age, when uniforms are introduced, Jamaicans are taught to dress neatly and conform, and pride in appearance remains strong into professional life.
-
-Outside working hours, casual dress is acceptable, but Jamaicans often dress up for evenings out, with women sporting elaborate hair weaves and nail design, and men trimming beards and polishing shoes. Dressing with style will be noticed. Understated elegance works better than excessive displays of wealth in a country where poverty remains a real concern.

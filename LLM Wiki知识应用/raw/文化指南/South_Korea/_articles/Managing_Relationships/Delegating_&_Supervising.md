@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Authority in South Korean organizations flows downward, and delegation reflects this. Managers set direction and policy, while subordinates handle execution. What gets delegated is often detail and process, not decision-making responsibility. This stems from a Confucian social order where hierarchy is not just about position but about relational roles: the terms *sunbae* (older colleague) and *hoobae* (younger colleague) are woven into the language, and rank is both organizational and deeply personal. A manager who steps too far back can appear detached from the team, because the role includes not only directing work but also taking responsibility for the group's wellbeing.
-
-Delegation to individuals is less common than delegation to the team as a whole. Singling someone out for special responsibility can create discomfort, as it disrupts group cohesion and may be seen as unfairly elevating one person. Tasks are often assigned based on seniority or rank rather than specific skill, which means the person handling a task may not always be the most technically suited. Employees expect clear instruction and may wait for direction rather than act independently, not out of passivity but because acting without guidance risks overstepping or causing the manager to lose face.
-
-Feedback is managed carefully. Public criticism, especially in front of peers, causes severe loss of face and can damage trust irreparably. Silence in meetings does not mean agreement. It reflects deference, and concerns will not surface in a group setting. Real candor often emerges at *hoesik*, the after-work team meal and drinking session, where hierarchy softens and people speak more openly. Managers who routinely skip these gatherings miss where the team actually stands. If you are younger than your direct reports, expect to earn respect through consistent expertise and reliability, not through title alone.

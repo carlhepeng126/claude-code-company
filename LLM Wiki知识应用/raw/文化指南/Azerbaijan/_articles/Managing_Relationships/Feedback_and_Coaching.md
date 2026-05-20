@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Protecting dignity shapes how feedback is given and received in Azerbaijan. Criticism that feels like public shaming can break a relationship, even when the content is accurate. People learn by watching respected figures and absorbing advice that sounds like shared problem-solving rather than direct correction. A manager might say, "Here is another way we could approach this," framing feedback as mutual reflection. Demonstrating the right approach alongside someone often lands more effectively than telling them what went wrong.
-
-Generational differences show up clearly here. Younger professionals, especially those educated abroad or working in international firms, may welcome more explicit developmental feedback if it helps them grow. Senior colleagues tend to prefer advice that leaves their authority intact and avoids the appearance of being instructed. A colleague from a culture where feedback is expected to be blunt and immediate may read this indirectness as avoidance or lack of clarity. From the Azerbaijani side, the same bluntness can feel disrespectful, undermining the trust needed for the feedback to be heard at all.
-
-Give critical feedback in private, with tone and phrasing that signal respect and shared purpose. Sit together to revise a document or rehearse part of a presentation so the coaching feels concrete rather than personal. If you openly invite feedback on your own work and respond without defensiveness, others begin to feel safer doing the same. Praise should be specific but measured. Overblown compliments can sound insincere and may embarrass the person in front of their peers.

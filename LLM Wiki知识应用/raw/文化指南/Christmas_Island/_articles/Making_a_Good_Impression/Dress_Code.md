@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Christmas Island's dress culture reflects the island's mix of practicality, multiculturalism, and informality. The tropical climate and the dominance of small-scale mining, administration, and service work mean that formal business attire is rare. In most workplace settings, neat casual clothing is the norm: collared shirts, clean trousers or skirts, closed shoes. Even in government or management roles, a tie is uncommon outside of ceremonial occasions. The island's size and the rhythm of daily life favor comfort and function over formality.
-
-Cultural diversity shapes how people dress for social and religious occasions. Chinese Australian families may dress more formally for temple visits or festivals, reflecting respect for tradition and community elders. Muslim residents dress modestly, particularly during prayer times or community gatherings. These distinctions are visible and respected, and colleagues from cultures where professional dress codes are stricter may notice the absence of a single standard. What guides choices here is context and respect for the setting, rather than a shared expectation of corporate presentation.
-
-Visitors attending official functions or community events should aim for smart casual: clean, well-fitted, and appropriate to the tropical heat. A lightweight button-down shirt or simple dress will fit most settings. For less formal gatherings, relaxed clothing is fine, but beachwear stays at the beach. Dressing with care for a specific event, whether a settlement ceremony or a festival meal, shows awareness of the occasion without needing to match a rigid code.

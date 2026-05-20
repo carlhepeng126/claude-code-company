@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Presentations in Bhutan are understood through the lens of relationship and collective harmony, not individual persuasion. Your audience will be assessing whether your approach respects hierarchy, builds trust, and considers the group's wellbeing. This means keeping the tone modest and collaborative. Hard-sell tactics or aggressive argument risk coming across as pushy and disrespectful. Frame your points around shared benefit and long-term partnership rather than immediate wins. Taking time to acknowledge senior figures present and showing deference to their experience helps set the right foundation.
-
-Pacing should be gentle. Rushing through content or pushing for quick decisions can feel jarring in a culture where deliberation and consensus are valued. Allow room for pauses and reflection. If questions don't come immediately, that doesn't mean disengagement. People may be processing what you've said or waiting for a senior colleague to speak first. Silence often reflects thoughtfulness, and filling every gap can undercut the reflective space your audience needs.
-
-Storytelling and real-world examples resonate more than dense data alone. Bhutanese professionals appreciate context and narrative that connects your proposal to tangible outcomes. Keep slides uncluttered and visually clear, and avoid overloading them with text. If technical terms are necessary, explain them plainly. Consider also that the most candid feedback may come after the formal session ends. Colleagues may approach you privately to raise concerns or ask clarifying questions, especially if doing so publicly might risk embarrassment or challenge a senior colleague's view.

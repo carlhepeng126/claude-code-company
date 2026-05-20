@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-In Slovakia, people respond to recognition that is grounded and sincere. A culture shaped by traditions of earned skill, from ornamented fujara flutes to bagpipe craftsmanship, has left a lasting respect for competence and quiet mastery. Motivating a colleague here means trusting them with meaningful responsibility and acknowledging what they bring in specific, proportionate terms. Exuberant praise or motivational performance can feel overstated. A manager who notices the detail in someone's work and names it, or who gives autonomy to someone who has shown they can deliver, builds commitment more reliably than enthusiasm alone.
-
-Steadiness counts. Slovakia's national memory includes achieving independence peacefully in 1989 and again in 1993, and that history supports a preference for motivation through shared purpose and calm confidence rather than pressure or urgency. Inviting people to shape outcomes together, rather than pushing them toward targets with energizing language, tends to generate deeper engagement. For a colleague from a culture where motivation is delivered through tight deadlines and visible urgency, this can feel slow or under-energized. From a Slovak perspective, the constant push may seem unnecessary or performative when the work itself is clear.
-
-What motivates varies. Lived realities differ sharply across regions and communities, including experiences of inequality and exclusion. A motivational approach that feels empowering to one person may feel distant or unrealistic to another. Training opportunities, work-life balance, and the chance to develop expertise can be more compelling than incentive schemes, especially in workplaces where assertiveness is not the norm. Tailoring support to each person's context, and recognizing what they can genuinely build on, makes the difference between motivation that energizes and motivation that falls flat.

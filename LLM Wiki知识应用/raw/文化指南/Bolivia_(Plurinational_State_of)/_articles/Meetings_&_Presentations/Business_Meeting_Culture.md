@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Bolivia are rarely just about the agenda. Taking time to build rapport through personal conversation before discussing business reflects the cultural importance placed on relationships, not simply transactions. This opening phase helps establish trust and allows people to size up whether they want to work with you as a person, not just as a representative of a company. Jumping straight into business points can feel transactional and may leave your Bolivian counterparts uncertain about your intentions. 
-
-Hierarchy shapes how meetings unfold. Senior figures are expected to lead and make final decisions, so ensure invitations reach the appropriate level. Younger or lower-ranked participants may hold back their opinions until their superiors have spoken, even when they have valuable insight. In environments where flatter decision-making is the norm, this can feel slow or overly cautious. From a Bolivian perspective, however, respecting seniority reflects both professionalism and social order. If you need input from across the team, creating informal channels outside the formal meeting can encourage more open exchange.
-
-Expect decisions to take longer than a single meeting. Agreement often requires consultation with others not present in the room, and rushing this process can backfire. A colleague accustomed to quick turnarounds may read this as indecision, while Bolivians may view pressure for speed as a sign of inexperience or disrespect for proper process. Following up with patience and continued relationship-building will yield better results than issuing firm deadlines early on.

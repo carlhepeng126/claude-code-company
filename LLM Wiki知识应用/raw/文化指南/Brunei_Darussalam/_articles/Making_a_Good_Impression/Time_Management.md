@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Brunei is shaped by Islamic practice and a deep regard for hierarchy. The five daily prayer times create natural pauses in the workday, and meetings will often pause or be scheduled around them. This rhythm is not incidental. It reflects the central role of faith in public and professional life, anchored by the state philosophy of Melayu Islam Beraja (Malay Islamic Monarchy). Appointments may begin after brief religious observance, and colleagues may leave briefly to pray. Understanding this structure means recognizing that time is organized around principles that sit above productivity alone.
-
-Punctuality expectations shift depending on who is involved. Arriving on time for a meeting with senior figures or government officials is expected and demonstrates respect for rank. Among peers or in less formal settings, a degree of flexibility is more common. Lateness is rarely confronted directly, especially if the person delayed holds seniority. Raising the issue openly risks causing embarrassment, which disrupts relational harmony. A colleague from a culture where schedules are held to tightly may read this as inefficiency. A Bruneian colleague may, in turn, see rigid timekeeping as insensitive to context and status.
-
-Deadlines are generally met in sectors tied to international business or government administration, where formal accountability is clear. In smaller firms or family-run enterprises, timelines may stretch to accommodate relationship maintenance or wait for senior approval. Decisions move through layers, and pushing for speed before consensus is reached can be seen as disregard for proper process. If a project is delayed, the reason is rarely stated bluntly. Instead, expect indirect language or a shift in tone that signals the need for more time without explicit refusal.

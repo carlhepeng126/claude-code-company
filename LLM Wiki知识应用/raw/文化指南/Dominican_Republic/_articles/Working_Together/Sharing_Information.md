@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-In a context where formal institutions have not always been reliable, Dominicans rely heavily on *radio bemba*, or the grapevine. Official emails and memos represent one version of the truth, but what a colleague's cousin in HR or a trusted friend heard carries equal or greater credibility. People cross-check messages against informal networks, comparing what was written with what is being said. This means that if your official communication leaves gaps or glosses over difficult truths, someone else will fill them in, often with less favorable interpretation. Building trust means making your formal messaging honest enough to survive that comparison.
-
-Bad news is often softened or withheld to avoid panic, public embarrassment or direct confrontation. Managers may delay sharing difficult information or frame it in optimistic terms to protect morale and preserve face. As a result, employees become skilled at reading tone, timing and what is left unsaid. If you deliver bad news with excessive softening, the underlying reality will spread through other channels in harsher terms. Be direct and compassionate, provide context and next steps, and address the issue squarely rather than leaving people to piece together the truth from whispers.
-
-Much information travels orally through voice notes, corridor conversations and last-minute phone calls. These carry nuance and allow for immediate clarification, but they also create uneven access. If you rely only on written channels, you may miss what is being discussed in smaller circles. Build in small-group and one-on-one conversations where people can ask what they really want to know.

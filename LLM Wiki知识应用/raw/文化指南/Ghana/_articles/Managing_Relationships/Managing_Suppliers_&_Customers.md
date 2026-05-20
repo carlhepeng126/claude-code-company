@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-In markets like Makola, Kejetia, and Kaneshie, memory runs deep. Traders remember which supplier delivered spoilt goods and disappeared, and which one stood by them when customs seized a consignment. Reputation spreads fast through these networks, and trust is built through consistency over time. When something goes wrong, owning the mistake and fixing it quickly does more for a supplier's standing than a perfect initial pitch. Relationships are built with individuals, and if a contact leaves their company, the connection starts again from the beginning with whoever replaces them.
-
-Selling to Ghanaian public bodies such as ECG, GETFund, or district assemblies requires a financial model built around late payments, budget cycles, and political transitions. Suppliers who succeed in these contexts understand which invoices get paid first and who can actually move a file through the ministries. Pushing procurement staff for faster payment rarely works; they are already navigating pressures from multiple directions. Instead, design cash flow to absorb the delay and keep communication professional and steady.
-
-When buying cocoa, gold, shea, or cashew from a town or region, local communities watch closely. Chiefs and youth groups notice whether a buyer supports schools, boreholes, or roads, or simply extracts and leaves. This scrutiny shapes access and goodwill over time. Maintaining stable supply chains means staying visible in the community and keeping open lines with chiefs and youth leaders, alongside the cooperative chair or commercial contact. The question locals ask is whether the relationship benefits the area, and the answer shows up in how smoothly operations run.

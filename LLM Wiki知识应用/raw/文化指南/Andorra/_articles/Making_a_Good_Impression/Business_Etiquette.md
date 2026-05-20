@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Andorra's business culture reflects the country's small size and its position between France and Spain. Formality is expected at first meetings, especially with senior figures or in public administration settings. A handshake is the standard greeting, and titles matter. Using someone's professional title, or addressing them as *Senyor* or *Senyora* (Mr or Mrs in Catalan), shows respect. First names come later, once the relationship has been established. Moving too quickly to informality can feel presumptuous in a country where personal networks are small and reputation travels fast.
-
-Dress conservatively for initial meetings. While younger professionals in retail or hospitality may dress more casually, traditional sectors like banking, law, and government still favor formality. Andorra's size means that professional circles overlap, and being underdressed in one setting can shape how you're perceived in another. A polished appearance communicates that you take the relationship seriously.
-
-Multilingualism is part of everyday business life. Catalan is the official language and a marker of national identity, but French and Spanish are widely spoken, and English is increasingly common, especially among younger professionals and in tourism-related industries. Having business cards printed in Catalan shows awareness of local norms, and offering French or Spanish versions demonstrates practical respect for the broader context. Even basic greetings in Catalan can make a positive impression in a country where linguistic identity is tied to cultural pride.

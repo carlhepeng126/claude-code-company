@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Conflict in Trinidad and Tobago is often judged less by the substance of the disagreement and more by its effect on the atmosphere. "Vibes" functions as a serious social measure: is the space still workable, still respectful, still safe? A grievance raised in a way that makes the room feel heavy can be seen as poor judgment, even when the underlying issue is legitimate. This reflects a broader cultural preference for preserving relational flow. If you push an issue too hard in the moment, colleagues may read you as someone who does not understand how to protect collective comfort, and that perception can outlast the content of your concern.
-
-Public confrontation risks triggering a deeper sensitivity rooted in historical struggles over voice and belonging. Carnival memory, for instance, includes contests over who controls public space and whose expression is allowed. Disagreements that feel like silencing or dismissal, especially in front of others, can register as more than professional friction. They can feel like a violation of dignity. This is why indirect repair is common practice. Side conversations, trusted intermediaries, humor that resets the tone, or simply allowing time for emotions to settle before re-engaging are all standard techniques for cooling tensions without forcing someone into a corner.
-
-What counts as acceptable directness varies considerably. Some workplaces tolerate lively argument and sharp exchanges. Others, particularly those shaped by older or more religiously conservative norms, treat visible confrontation as disruptive and disrespectful. In Tobago especially, where small-island visibility means future contact is almost certain, unresolved conflict has a longer tail. Repair becomes more urgent because relationships cannot simply be dropped.

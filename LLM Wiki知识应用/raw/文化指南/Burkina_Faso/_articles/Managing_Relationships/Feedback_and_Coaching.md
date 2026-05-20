@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Burkina Faso works best when given privately, gently, and with attention to dignity. Public criticism, even when framed as constructive, can cause lasting embarrassment and damage relationships. Managers who need to address performance issues typically do so in one-on-one settings, using softer language that leaves room for the person to reflect without feeling exposed. A direct statement like "this was done incorrectly" may be softened to something like "perhaps we could look at this together" or "let's see how we might improve this next time." The goal is to guide without shaming, and to keep the professional relationship intact.
-
-Praise, by contrast, can be given more openly, though even here there is nuance. Sincere recognition in front of colleagues is generally welcome and helps reinforce team morale, but singling someone out too often or too publicly can create discomfort or even envy. A manager from a culture where individual achievement is celebrated loudly may find that their enthusiasm creates tension rather than motivation. In return, a Burkinabè colleague working in a more direct feedback culture may find the lack of subtlety abrasive, even when the intent is supportive.
-
-Coaching conversations are most effective when they acknowledge the relational context. Feedback is rarely processed in isolation. A young professional may consult family members or trusted colleagues before acting on guidance, especially if the change involves responsibility, visibility, or shifts in routine. Managers should allow time for this reflection and avoid expecting immediate behavioral change after a single conversation.

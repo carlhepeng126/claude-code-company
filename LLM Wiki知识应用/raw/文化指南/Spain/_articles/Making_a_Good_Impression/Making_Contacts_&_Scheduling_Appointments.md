@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Spain's regional identities shape how people connect and communicate. In Barcelona or Bilbao, initial outreach may be more direct and professionally focused. In other parts of the country, a warmer, more conversational opening sets the tone. Across all regions, though, people respond well to contact that feels personal rather than transactional. A message that includes context about how you found them, why their work matters, or what you hope to explore together lands better than a purely functional request. Warm introductions through mutual contacts help, but they're not essential in urban professional circles. Many Spanish professionals will respond to well-framed direct contact, especially if it's courteous and specific.
-
-Scheduling must account for Spain's calendar. Catholic traditions underpin a dense pattern of national holidays, regional festivals, and local patron saint celebrations. August sees widespread slowdowns, particularly outside Madrid and Barcelona, as many people take extended time with family. When proposing a meeting, suggest a time a couple of weeks ahead and confirm a day or two before. Avoid breakfast meetings, which rarely fit local rhythms. Mid-morning works well, as does late afternoon. Lunch meetings happen but can be less predictable, as some people still go home to eat.
-
-Punctuality expectations vary by context. In corporate settings and large cities, people expect meetings to start on time. You should arrive as scheduled. That said, the meeting itself may begin with informal conversation about recent news, mutual acquaintances, or the weekend. Jumping straight into the agenda can feel abrupt. A colleague from a culture where meetings begin with the first agenda item might read this as a delay. For Spanish professionals, those opening exchanges are how the meeting actually starts.

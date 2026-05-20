@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Singaporean negotiators focus heavily on total value and risk, not just headline price. Faster delivery, lower operational complexity, or reduced reputational exposure can justify a higher cost if the case is made clearly. This reflects a broader public and private sector emphasis on efficiency, compliance, and long-term viability over short-term savings. When preparing your proposal, invest as much effort in explaining how your approach reduces hidden costs or mitigates risk as you do in defending your pricing. A colleague from a culture where price is the primary lever may find this focus on total package granular or overcomplicated, while a Singaporean counterpart may view a price-only pitch as incomplete or even naive.
-
-When someone says "cannot," they usually mean it. The word signals a compliance or policy red line, not a negotiating tactic or personal reluctance. Singaporeans are acutely conscious of regulatory boundaries, and bending rules to close a deal is neither admired nor expected. Ask directly whether the constraint is legal, policy-driven, or a preference. This clarifies where movement is genuinely possible and where it is not, and it shows you understand the difference.
-
-Rather than theatrical haggling, negotiations tend to favor structured trade-offs. Scope reductions for lower cost, longer contract terms for better rates, or a pilot phase before scaling are all more comfortable than open-ended back-and-forth. Offering tiered options lets your counterpart choose a configuration that fits their constraints without requiring them to push back repeatedly. This approach respects both the need for clarity and the preference for solutions that can be defended internally.

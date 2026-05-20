@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teams in Eswatini function through respect for seniority and strong personal bonds. Collaboration flows primarily through established relationships rather than formal structures, and the most cohesive teams are often those where members have built trust over time. Senior colleagues guide and mentor younger team members, offering direction in ways that uphold dignity and maintain group harmony. This mentorship tends to be indirect, shaped by a cultural logic that values humility and careful attention to the feelings of others.
-
-Hierarchy shapes how teams operate in daily practice. Decisions typically rest with senior members, and junior colleagues may wait to be invited to contribute rather than volunteering ideas openly. This reflects a relational approach where initiative is balanced against the risk of overstepping or appearing disrespectful. For a colleague from a culture where team contributions are expected to be vocal and immediate, this may read as disengagement. From an Eswatini perspective, the same colleague's directness might come across as dismissive of experience or hierarchy.
-
-Public recognition needs careful handling. Praise directed at individuals in front of the group can create discomfort, as it risks singling someone out in a way that may embarrass them or disturb the team's balance. Acknowledging the team collectively preserves cohesion. Similarly, corrective feedback should always happen privately. Calling out mistakes in a group setting damages trust and reputation in ways that are difficult to repair. When working across teams, assume that protecting dignity is a practical requirement, not a courtesy.

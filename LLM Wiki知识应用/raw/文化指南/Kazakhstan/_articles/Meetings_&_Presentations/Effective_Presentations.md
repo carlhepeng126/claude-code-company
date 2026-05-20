@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Persuasion in Kazakhstan draws on two overlapping traditions. The cultural memory of *akyns* — improvising poets who competed in verse at celebrations like Nauryz — makes narrative and example as convincing as raw data. At the same time, Soviet educational legacy rewards clear structure, definitions, and visible competence. The most effective presentations blend both: a clean framework that listeners can follow, brought to life with concrete stories and "felt logic." A deck full of charts may land as cold unless anchored to situations your audience can recognize. Equally, a warm story without structure may feel unfocused. Build a spine of three to five points, then show how each plays out in practice.
-
-A presentation is also a status performance. Your audience will assess whether you carry yourself with grounded calm, not just whether your content is sound. Overly flashy delivery or hard-sell tactics can undermine trust, especially given lingering suspicion that outsiders are acting purely in self-interest. Instead, take time to establish human credibility before moving into detail. Acknowledge the senior people in the room explicitly — a nod or directed comment shows you understand hierarchy — and deliver with energy that feels genuine rather than performative. If you rush past the warm-up or skip over relational cues, even strong content may struggle to gain traction.
-
-Language choice shifts how a message is received. Kazakh can feel intimate and rooted, Russian more formal or state-aligned. In bilingual settings, reading which register the room defaults to and mirroring it can build connection faster than sticking rigidly to one. If working through an interpreter, allow pauses and avoid dense slides that create room for confusion.

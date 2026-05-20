@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Afghanistan operates through clear vertical authority combined with careful relational attention. Decision-making sits with those at the top, but effective leaders also listen, consult, and build consensus before finalizing their course. This reflects both the concentrated structure of power and the deeply relational nature of Afghan professional life, where authority depends not only on position but on trust, personal reputation, and respect for group cohesion.
-
-Consultation happens frequently, but it serves multiple purposes. A leader may gather input to genuinely inform the decision, to signal respect for those involved, or to strengthen unity around an outcome already forming. The act of being asked matters as much as the outcome. For a colleague from a culture where consultation implies shared decision-making, this can feel opaque or inconsistent. From an Afghan perspective, a leader who decides without consulting may appear detached or dismissive, even if the decision itself is sound. The relational work surrounding the decision reinforces the legitimacy of the authority itself.
-
-Leaders are expected to embody dignity, restraint, and attentiveness to group harmony. Open disagreement with a senior figure is avoided, and feedback tends to be offered privately or indirectly. If you need to raise a concern, frame it carefully and choose the setting with care. Public challenge can damage both the leader's standing and your own. Watch for how others navigate dissent or offer alternative views, particularly in moments when authority and relationship need to be balanced at once.

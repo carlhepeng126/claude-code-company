@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Gibraltar's professional culture operates on schedules that are clear, linear, and expected to be met. The Rock's long history as a British military garrison and naval base embedded time discipline into working life. Ships arrived and departed to timetable, military operations required coordination across units, and civilian administration followed structured hours. This legacy runs through public and private sector work today, where meetings start when they are scheduled and deadlines are taken at face value.
-
-Punctuality is treated as a baseline professional courtesy. Arriving late to a meeting without explanation is read as disorganization or disregard, and repeatedly missing deadlines will erode trust quickly. In sectors with ties to shipping, financial services, or government, time is managed tightly. Meetings are usually booked in advance, agendas are followed, and outcomes are documented promptly. This holds across hierarchies. A director who calls a meeting for 10 a.m. expects people to be seated by 10 a.m., not filtering in at quarter past.
-
-A manager from a culture where meeting times serve as approximate guides may find Gibraltar colleagues impatient or inflexible when discussions are cut short to honor the next commitment. From the Gibraltar side, a counterpart who arrives twenty minutes late and extends the conversation beyond the scheduled close can seem unaware of others' time or unwilling to plan ahead. If your working style allows for more fluid timing, confirm expectations early and flag delays immediately. If you are accustomed to stricter punctuality than what you observe, recognize that Gibraltar's approach is already structured by regional standards and pressing further may come across as rigid rather than diligent.

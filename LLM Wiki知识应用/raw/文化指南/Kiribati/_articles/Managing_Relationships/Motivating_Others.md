@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Kiribati is tied to collective obligation and immediate community regard rather than individual ambition. People respond most strongly when their contribution strengthens the wider group, whether that is a work team, a village, or extended family. Personal success becomes meaningful when it lifts others or reflects well on those connected to you. A manager who recognizes this can frame assignments in terms of what they will achieve for the team or community, rather than what they offer the individual alone.
-
-Public acknowledgment matters, but it should be handled carefully. Singling someone out can create discomfort or tension where the expectation is that success belongs to everyone involved. Praise that includes the team, or that recognizes effort in a way that does not separate one person from the group, sits better. Financial incentives have limited effect on their own. Money is valued, but it rarely drives sustained commitment if the work environment feels impersonal or if someone's contribution goes unnoticed in the wider social sense.
-
-Strict deadlines and rigid schedules do not inspire urgency in the way they might in cultures where time is seen as linear and controllable. In Kiribati, time moves around people and events, not the other way around. Family obligations, church commitments, and community needs take precedence. A manager from a culture that values punctuality and advance planning may read this as disengagement, while a colleague from Kiribati may see a fixation on schedules as inflexible or insensitive to what really sustains people.

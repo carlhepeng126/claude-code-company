@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Panama's geography splits its commercial culture. In Panama City and the canal zone, supplier and customer relationships often reflect the country's identity as a logistics hub. Reliability, timing, and system awareness define good service here because the canal economy requires predictability and coordination. These expectations shape how business relationships are judged. A supplier who misses a deadline or fails to account for logistical constraints may struggle to rebuild trust, even if the relationship started well. In interior towns, relationships develop more slowly and depend on reputation, community history, and continuity of contact. Changing personnel means starting again, because trust is built with individuals, not transferable through institutional structures.
-
-Service cultures vary sharply by sector and region. Frontline employees in many settings are rarely empowered to solve problems or make decisions on the spot. A customer expecting on-the-spot resolution may need to escalate to a manager or return another day, especially in government offices or less internationally oriented businesses. This reflects concentrated authority rather than disinterest. In Caribbean coastal areas and tourism zones like Bocas del Toro or Colón, warmth and relational ease shape early interactions, and respect for identity and history influences how trust develops over time.
-
-When trade involves Indigenous territories, the relationship extends beyond two parties. Community authority and protocol become part of the transaction. A supplier agreement in a comarca may require consultation with community leaders, and decisions that feel purely commercial from one side may be questions of legitimacy and representation from the other. Treat these interactions as relationships with collective structures, not individual vendors.

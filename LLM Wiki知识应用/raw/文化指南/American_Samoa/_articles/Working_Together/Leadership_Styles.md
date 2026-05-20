@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in American Samoa is rooted in the *fa'amatai* system, where titled chiefs known as *matai* hold formal authority over extended families and village communities. This traditional structure shapes expectations in workplaces as well. Leaders are expected to provide direction, make final decisions, and take responsibility for the welfare of the group. A manager who asks for input but then decides alone is acting consistently with how a *matai* would consult family members before determining what is best for everyone. The process honors collective ties while preserving the clarity that comes from recognized authority.
-
-Authority is not exercised through dominance but through service and earned respect. A leader who fails to care for their team, or who prioritizes personal gain over group welfare, risks losing standing. Decisions are expected to consider the well-being of the collective, not just operational outcomes. This means a manager may prioritize maintaining harmony or supporting a staff member's family obligation over meeting a deadline in isolation. For a colleague from a culture where individual accountability and results drive leadership credibility, this can seem indirect or protective. From a Samoan perspective, a leader who does not account for relational and communal context is failing in their fundamental responsibility.
-
-Younger or foreign-educated professionals may bring more participative styles into the workplace, particularly in private sector or government roles with international ties. Still, even in these settings, respect for seniority and deference to those with traditional or organizational rank remain strong.

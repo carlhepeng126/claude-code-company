@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Brunei's workplace dress code is shaped by Islamic principles and the country's identity as a Malay Islamic Monarchy. Modesty is the foundation, and what you wear is understood as a visible expression of respect for both faith and social order. This means covering shoulders, avoiding low necklines, and choosing clothing that does not cling or reveal the shape of the body. For men, long trousers and collared shirts are standard. For women, long sleeves and skirts or trousers that cover the knee are expected. In government ministries and formal business settings, men typically wear long-sleeved batik shirts or business shirts with ties, and women wear the baju kurung, a traditional Malay tunic and skirt ensemble. The batik shirt, often in muted tones with intricate patterns, functions as both formal and national dress, and wearing one to meetings signals cultural awareness.
-
-In multinational corporations or the oil and gas sector, Western-style business attire is more common, but modesty standards still apply. A colleague from a culture where sleeveless blouses or fitted dresses are routine office wear may find Brunei's expectations more conservative than anticipated. From a Bruneian perspective, revealing clothing in professional settings can be read as a lack of awareness or disregard for local norms, which may affect how seriously someone is taken. Choosing modest, well-tailored clothing avoids this tension and ensures the focus remains on your work.
-
-During Ramadan or at Friday prayers, dress expectations tighten further. If attending a mosque or official event, women should wear a headscarf and ensure arms and legs are fully covered. Men should avoid shorts. These adjustments reflect the centrality of Islamic observance in public and professional life, and making them without being asked demonstrates respect for the cultural environment in which you are working.

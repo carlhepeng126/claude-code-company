@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Gabon is strongly tied to hierarchy and social harmony. Managers are expected to guide and direct, but the way they do so reflects a broader concern for preserving dignity and group cohesion. Negative feedback is rarely delivered directly or in public. Doing so risks humiliation and can fracture the relational trust that underpins professional life. Instead, a manager might offer guidance through a private conversation, often framed as advice or observation rather than criticism. The aim is to correct while maintaining respect for the person's position within the team.
-
-Indirect language is common, especially when pointing out weaknesses. A manager may say something like "perhaps it would be useful to consider another approach" rather than stating outright that something was done poorly. This indirectness allows the recipient to save face and reflects the expectation that people should pick up on subtle cues. Colleagues from more direct communication cultures may find this vague or unclear, while Gabonese professionals may experience blunt feedback as unnecessarily harsh or even disrespectful.
-
-Praise, by contrast, can be shared more openly, though still within boundaries. Recognizing someone's contribution in front of the team is generally welcome, especially if it reinforces group success rather than singling out an individual in a way that could provoke envy or tension. Coaching tends to happen informally and over time, through ongoing conversation rather than structured review meetings. Building the relationship comes first. Without that foundation, even well-intended feedback may not be received as it was meant.

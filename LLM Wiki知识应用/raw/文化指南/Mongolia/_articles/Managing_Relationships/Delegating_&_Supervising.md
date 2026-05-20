@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Mongolia's approach to delegation rests on a tension between respect for seniority and an expectation of genuine autonomy. The culture scores low on power distance, and this reflects nomadic herding tradition: survival depended on collective decision-making, and the idea that only the leader's voice counted would have been genuinely dangerous. A herder guides and creates conditions, then trusts people to operate independently. Leaders who give space for performance are respected. Those who hover and control are not. Employees expect to be heard, included, and trusted with real responsibility over their work, even as they show deference to senior figures in discussions.
-
-The cultural weight of failure complicates this autonomy. Making a mistake affects both the individual and their standing in the group, and the legacy of Soviet-era discipline reinforces this caution. Many workers find it easier to do nothing than risk severe consequence, even when they have the freedom to act. This means delegation needs to be framed explicitly as trust and confidence, not a test. Without psychological safety, autonomy alone will not produce proactive behavior.
-
-Risk aversion also shows up in how change is received. Mongolian teams want evidence and rationale before committing, and credible proof of benefit matters more than enthusiasm or speed. For a manager from a culture where decisions are made quickly and iteration is valued, this can feel slow or overly cautious. From the Mongolian side, rushing forward without a clear track record can feel reckless. Framing change as well-evidenced, rather than urgent, makes the case more persuasive and aligns with how risk is naturally assessed.

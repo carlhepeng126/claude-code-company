@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Scheduling in Pakistan is shaped by relationships, religious rhythms, and family obligations. People often prioritise commitments that hold moral or social weight over strict adherence to the clock. This reflects a cultural logic where trust and respect are built through attention to connection, not speed. For a colleague working in a context where meetings start precisely at the scheduled time, this can feel unpredictable. From a Pakistani perspective, a tightly controlled schedule that leaves no room for greeting rituals or unexpected obligations can seem impersonal or rigid.
-
-The city you are working in also shapes time expectations. Karachi's scale and heavy congestion, Lahore's dense social calendar, and Islamabad's institutional pace all create different rhythms. Travel time is often the reason for lateness, not attitude. Pakistan's recent history of strikes, political events, and security disruptions has also left a cultural memory of unpredictability, which influences how people plan and adjust. When confirming meeting logistics, especially in major cities, build in extra time and reconfirm in advance rather than assume shared expectations.
-
-Meetings often include extended greetings and tea, especially in early interactions. This places the conversation inside respect and helps establish trust. Skipping these moments to move quickly into business can feel abrupt and undermine the relationship you are trying to build. Allow time for this opening, particularly in first meetings or settings outside multinational firms. In export-oriented companies or sectors with global clients, punctuality is taken more seriously and reflects professional standards. If timing is critical, say so clearly and respectfully, rather than assuming the expectation is shared.

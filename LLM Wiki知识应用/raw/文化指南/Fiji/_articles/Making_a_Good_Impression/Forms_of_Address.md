@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Fijian forms of address reflect a culture in which relationship and respect shape every introduction. In business settings, titles anchor the interaction. Use formal address until invited to do otherwise: Mr., Mrs., Ms., or professional designations such as Dr. or Professor, followed by the surname. If someone holds a chiefly title, use it. These markers acknowledge standing and role, and omitting them can leave the impression that you've overlooked the person's place in the community. First-name use arrives through invitation, often after trust has been established, and rarely in the opening meeting.
-
-Written communication follows the same logic. Emails and letters should open with a title and surname, and maintain a tone of courtesy throughout. Even in routine exchanges, a degree of formality signals that the relationship has been recognized. Colleagues from cultures where first names are used immediately in digital settings may read Fijian formality as distant, while Fijian professionals may interpret an early shift to casual address as premature or dismissive of the work still needed to build the connection.
-
-Greetings often include a handshake, though the tone is warm rather than brisk. In more familiar settings, or where cultural ties run deeper, you may encounter a slight bow of the head or other gestures of acknowledgment. What matters is not the gesture itself but the acknowledgment it conveys. Introductions are moments of social placement, and getting the form right is part of showing that you understand how relationships begin.

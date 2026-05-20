@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Grenada reflect the island's hospitality culture and the premium placed on personal connection before business can be trusted to proceed. Lunch is the more common setting for professional meals and tends to be lighter in tone, though still substantial in duration. Dinner invitations are less frequent in business contexts and often suggest that a relationship has already moved beyond initial transactions. Either way, expect the meal to unfold slowly. Rushing through courses or turning conversation too quickly toward the agenda may read as transactional and can undermine the rapport you're building.
-
-Local seafood features prominently. Oil down, the national dish of breadfruit, salted meat, and coconut milk, may appear at more relaxed gatherings. Meals are often served family-style, with dishes shared at the centre of the table. This communal approach mirrors the broader cultural expectation that relationships should feel reciprocal and inclusive, not individualistic. If you're hosting, choosing a venue that reflects Grenadian tastes rather than defaulting to international cuisine signals respect and awareness.
-
-Conversation during the meal will likely range across family, local events, and shared interests before work comes up, if it does at all. A colleague from a culture where agendas are set early may find this indirect, while a Grenadian counterpart may read the same drive for clarity as impatience or a lack of interest in the person. Trust is built through presence, not efficiency. If business does emerge, it will likely do so in the final stages, after the tone has been set and comfort established.

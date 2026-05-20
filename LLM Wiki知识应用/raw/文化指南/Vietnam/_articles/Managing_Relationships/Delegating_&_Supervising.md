@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Confucian hierarchy shapes how authority and delegation function in Vietnamese workplaces. The manager is expected to be the decision-maker and the source of clear direction. Consulting subordinates too openly on what to do can be read as uncertainty or lack of leadership. At the same time, this is a paternalistic relationship, not a purely functional one. Managers are expected to know their team members personally and show genuine care for their wellbeing. The authority to direct is inseparable from the responsibility to support.
-
-Tasks are typically delegated verbally and accepted without visible question. Employees will execute the brief as given, and they are generally accountable for completing their assigned task rather than shaping the larger outcome. If you want creative input, expanded thinking, or proactive problem-solving, say so explicitly. Silence in meetings is courtesy, not agreement. Discomfort or disagreement will be signaled indirectly through hesitation, deflection, or quiet non-compliance rather than open challenge. This reflects a deep obligation to preserve face, both one's own and the manager's, and to maintain group harmony.
-
-Correction must happen privately. Public criticism causes a loss of face that lingers well beyond the moment and will affect both individual performance and team openness going forward. Create regular one-to-one channels where concerns can surface without exposure. Younger employees in international companies and tech sectors may be more direct and less deferential than earlier generations, but the relational foundation remains. Invest in the personal relationship early. It is the condition under which good work happens, not a reward for it.

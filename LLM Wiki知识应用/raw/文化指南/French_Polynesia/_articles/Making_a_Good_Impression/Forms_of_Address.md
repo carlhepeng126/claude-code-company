@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In French Polynesia, forms of address reflect the dual influence of French formality and Polynesian relational warmth. Professional settings typically follow French conventions, where titles and surnames are used until an invitation to shift is offered. "Monsieur" (Mr.) and "Madame" (Mrs.) paired with the last name are standard in business contexts, and professional titles such as "Docteur" or "Directeur" are used when relevant. This formality acknowledges status and shows respect, particularly toward senior colleagues or external partners. Starting too casually can feel presumptuous, especially in government or corporate environments where French-style professionalism remains the norm.
-
-At the same time, French Polynesia's Polynesian cultural foundation emphasizes human connection and the relational quality of an encounter. Greetings tend to be warm, often accompanied by a handshake and a genuine exchange of pleasantries. Among colleagues who have established rapport, or in less formal island settings, first names may be adopted more quickly than in metropolitan France. A colleague from a culture where informality signals efficiency might find this gradual shift unnecessarily slow, while a French Polynesian counterpart might read immediate first-name use as skipping the necessary stage of building mutual respect.
-
-Written communication follows French formality closely. Emails should open with "Monsieur" or "Madame" and close with phrases like "Cordialement" or "Bien cordialement." Even as working relationships develop, maintaining this structure in writing signals professionalism and attention to the other person's standing. Dropping formality prematurely in correspondence, even when spoken interactions have relaxed, can come across as careless rather than friendly.

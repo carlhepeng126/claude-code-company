@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-How you address Russian colleagues reflects more than politeness. It reveals how you read relationships and where you place yourself within them. The standard professional form pairs the first name with the patronymic, a middle name derived from the father's given name. Vladimir Ivanovich means Vladimir, son of Ivan. Tatyana Sergeyevna is Tatyana, daughter of Sergei. This combination offers a dignified middle ground between the formality of titles and the familiarity of first names alone. When you use it consistently, you show awareness that respect and warmth can coexist without rushing intimacy.
-
-The shift from this formal structure to first names alone happens when the relationship has developed enough to justify it. A colleague who suggests you drop the patronymic is signaling trust, and often the progression of a working relationship that has moved beyond transactional courtesy. For someone accustomed to informal address from the outset, this may feel like unnecessary formality. For a Russian counterpart, it may feel like an earned marker of closeness. If you introduce yourself by first name only and expect the same in return, your Russian colleague may interpret this as skipping steps rather than building rapport.
-
-Regional variation adds another layer. Across Russia's diverse territories and republics, naming conventions and comfort with language differ. In some areas, ethnic or local naming traditions sit alongside Russian forms. Asking how someone prefers to be addressed, and then pronouncing it carefully, acknowledges that dignity sits in the details. Understated seriousness at the start leaves room for warmth to emerge naturally, rather than imposing informality as a strategy for connection.

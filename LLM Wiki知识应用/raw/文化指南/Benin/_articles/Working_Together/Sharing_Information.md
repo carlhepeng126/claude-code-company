@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information flows carefully in Benin, particularly at the start of a professional relationship. People want to know who they are dealing with before they speak openly. This caution comes from a culture where trust is earned through repeated interaction, and where disclosing too much to the wrong person can damage your reputation or invite unwanted complications. A colleague from a culture where information is shared quickly and openly in the name of efficiency might find early meetings in Benin reserved or even evasive. From the Beninese side, that same rapid disclosure can seem careless or overly trusting, a sign that the person has not yet learned to read the situation or understand the social cost of misjudgment.
-
-Within organizations, information often stays within small circles rather than circulating widely across departments. This reflects a preference for working through people you know and whose discretion you can rely on. Face and dignity matter deeply, and sharing a mistake or difficulty too broadly risks exposure. If you need access to knowledge or resources outside your immediate team, building a trusted local contact who can make introductions or vouch for you will open doors that formal requests alone will not.
-
-Trust builds through consistency. Colleagues will watch whether you follow through on commitments, keep confidences, and show respect for hierarchy and protocol. Once credibility is established, information begins to move more freely and relationships deepen. Regular one-on-one check-ins and informal settings, whether over a shared meal or a quiet conversation after a meeting, create the conditions for more open exchange. Demonstrating reliability over time, rather than expecting transparency from the outset, is what unlocks genuine collaboration.

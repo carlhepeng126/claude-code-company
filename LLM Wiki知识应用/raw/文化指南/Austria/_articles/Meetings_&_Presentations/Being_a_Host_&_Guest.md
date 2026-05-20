@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-An invitation to an Austrian home is a meaningful gesture, marking a shift from professional acquaintance to genuine personal relationship. The home is private space, typically reserved for close friends and family, so being welcomed across that threshold reflects trust and regard. Austrians take real pride in their homes — in their cleanliness, order, and presentation — and hosting is approached with care. Acknowledging the home itself and the effort that has gone into preparing for your visit is appropriate and warmly received.
-
-Punctuality is essential. Arriving even a few minutes late to a dinner invitation is considered disrespectful, particularly given the effort your host has invested in the timing and preparation of the meal. Bring a gift — flowers, a bottle of good wine, or chocolates — and have it wrapped. This is expected rather than optional. If you bring wine from your own country, it should be of quality; a cheap bottle, particularly of German wine, will be read as a slight. Complimenting the home or garden is a natural way to open conversation and shows you recognize what your host values.
-
-When dining out, wait for the host to direct you to your seat. Seating at business meals is typically arranged by hierarchy, with the most senior people facing each other. At more formal occasions, men and women may alternate, and partners may be seated separately. The host offers the first toast — usually "Prost" — making eye contact with everyone at the table. The most senior guest should return the toast later in the meal. Do not begin eating until your host picks up their cutlery.

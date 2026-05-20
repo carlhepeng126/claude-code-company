@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Qatar runs on introductions. The country's official vision pairs rapid modernization with preserving tradition, and that duality shows up clearly in how contacts are made. Trust-building isn't a preliminary step you can skip once the business scales up. It remains central. A warm introduction from a mutual contact, a colleague already inside the network, or a respected intermediary provides what a polished cold email cannot: social proof that you are worth receiving. Entry through a referral tells your prospective contact that someone they already trust has vouched for you, which changes the conversation before it begins.
-
-Once contact is made, allow time for receiving. The *majlis* (a sitting space for welcoming guests, exchanging news, and building rapport) frames hospitality as a structured ritual, and coffee is part of that structure. Arabic coffee, served with deliberate etiquette, acknowledges the dignity of the guest before any business talk unfolds. If you move straight to purpose, you bypass a moment that establishes respect and goodwill. A colleague from a culture where meetings start with agenda points first may read this as slow or indirect. From a Qatari perspective, starting without courtesy feels transactional and abrupt, as though the relationship doesn't merit proper attention.
-
-Scheduling requires awareness of religious and national rhythms. Prayer times shift with the season and are printed daily in local papers. Meetings may pause for prayer or shift around Ramadan hours, when many offices work shorter mornings and open again in the evening. Build flexibility into your calendar and confirm appointments the day before. If you already have a relationship, an unplanned visit can work well. Turning up in person when you're nearby is a gesture of presence and effort, and it often moves things faster than a week of unanswered emails.

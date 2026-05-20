@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Appearance quietly communicates how seriously you take the relationship and where you sit in a stratified society. Colombian cities still use a legacy housing classification system called estratos, numbered one through six, and the way you dress indexes class, professionalism, and credibility across those lines. Turning up much scruffier than your colleagues can read as poco serio (not serious), while arriving in flashy logos or obviously expensive accessories in a lower-estrato neighborhood can feel tone-deaf or actively unsafe. The goal is to appear clean, well-fitted, and thoughtful without broadcasting wealth or standing out unnecessarily.
-
-What counts as appropriate varies sharply by sector and city. Banking in Bogotá still runs on dark suits and polished shoes. Oil and gas offices in Barrancabermeja lean formal but practical. Tech companies in Medellín have moved toward smart casual with touches of local fashion, and NGO environments in Cali may relax further still. Starting with conservative business wear and adjusting once you see how your counterparts dress is the safest approach. Ask local colleagues what feels right for this neighborhood and this client, not just this industry.
-
-Security shapes choices more than style. Visible luxury brands, flashy watches, and very high heels draw unwanted attention in public spaces and on commutes, especially in cities where inequality is stark and mobility involves crossing multiple estratos in a single journey. Dressing well remains important, but subdued professionalism reads better than obvious expense in most business contexts and keeps you safer in mixed or unfamiliar areas.

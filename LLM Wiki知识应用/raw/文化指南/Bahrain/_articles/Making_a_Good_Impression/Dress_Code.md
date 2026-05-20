@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-What you wear reflects the seriousness you bring to the relationship, and that expectation applies both to international visitors and to Bahrainis themselves. Professional settings call for modesty and quality over flair. For men, this usually means a conservative business suit or, in traditional sectors and government offices, a tailored jacket and trousers with a collared shirt. Women should keep elbows and knees covered, with no tight or revealing cuts. Well-maintained shoes and good-quality fabrics are noticed. Dressing carefully shows that you take the partnership seriously.
-
-The same Bahraini colleague might wear Western business attire in the financial district near Seef and then change into traditional clothing when visiting family in a village. This fluidity reflects lived reality, and people watch to see whether outsiders recognize the difference. A younger Shia professional may have different modesty expectations than a cosmopolitan colleague from a merchant family, but both are quick to notice if a visitor judges or exoticizes their choices. Calibrate your own clothing to the most formal version of what your closest peers of the same gender and age wear on serious days, such as high-level meetings or religious seasons, rather than the most relaxed look you see in a shopping mall.
-
-Offices and restaurants are heavily air conditioned year-round, so layers work best. In summer, when outdoor temperatures can exceed fifty degrees, changing shirts during the day is common. Plan for frequent transitions between extreme heat outside and cold interiors.

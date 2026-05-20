@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in South Korea remains a meaningful part of building professional trust, rooted in a Confucian tradition that values seeing how someone behaves when the formal setting drops away. Shared meals, especially dinners, and occasional group outings to karaoke venues (known as *noraebang*, private singing rooms) offer a chance to observe personality and reliability beyond the meeting room. These gatherings focus more on bonding than on negotiating specifics. The invitation itself signals that the relationship has moved beyond purely transactional interest.
-
-Alcohol has historically been central to this ritual, particularly in traditional industries and among older generations. Drinking together, often heavily, was seen as a way to reveal one's true character. But this expectation is shifting. Younger Koreans increasingly resist the pressure to drink, and personal or religious reasons for abstaining are more openly respected than in the past. If you don't drink, decline politely and early in the evening. Offering a clear reason, even a brief one, makes the refusal easier for others to accept. Hosts should never assume alcohol is expected and should provide genuine non-alcoholic alternatives without comment.
-
-The person who extends the invitation pays, and reciprocating on a future occasion is appreciated. Invitations are typically extended to groups rather than individuals, which avoids putting anyone in an awkward position about inclusion. Timing your exit can be delicate. Leaving too early may suggest disinterest, but overstaying when energy fades can also feel uncomfortable. Watch for cues from senior members of the group, who often set the pace for when the evening winds down.

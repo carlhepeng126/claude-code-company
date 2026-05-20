@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Iranians pair titles with names to recognize both status and warmth. The default is to use *Agha* (Mr.) or *Khanom* (Ms.) alongside a family name, or to add professional titles like *Doktor* or *Mohandis* (Engineer) where they apply. These forms acknowledge academic effort and social standing, both of which hold real weight in professional settings. Dropping straight to a bare first name with someone senior or older can read as overly casual, even dismissive. In practice, start with title plus family name and pay attention to how people introduce themselves. If someone says "I'm Dr. Alavi," respond with that form until invited to do otherwise.
-
-The culture also borrows from family language to soften hierarchy without erasing it. You may hear colleagues referred to as *khaleh* (aunt) or *amoo* (uncle), or addressed as *khanoom-e doktor* (Madam Doctor) or *aghaye mohandes* (Mr. Engineer). These forms blend respect with affection, creating a tone that is formal but not distant. Many educated Iranians switch fluidly between Persian and English honorifics, sometimes within the same conversation. Staying only in English titles can keep you in what colleagues describe as the "formal foreigner" zone, signaling that you are not yet part of the relational fabric of the group.
-
-Matching the forms you hear around you helps you land in the right register. If peers use *Agha* plus first name with each other, mirror that. If they move to first names alone after a few meetings, follow their lead. Learning and using a few key Persian terms quietly shows that you respect local codes. The choice of address is never just politeness; it positions you relationally, and that positioning affects how much trust and access you will be given over time.

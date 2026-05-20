@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Kuwait often unfold more like diwaniyas than boardrooms. Expect storytelling, gentle interruptions, sideways jokes, and tangents that reveal more than your slide deck ever will. The formal agenda exists, but relationships and the way an idea is presented matter at least as much as the technical content. If you stay too tightly scripted, you risk missing where the real conversation is happening—often in the asides, the teasing, or the stories Kuwaiti participants tell each other once you've finished talking.
-
-Behind many decisions sits a question you won't always hear out loud: how will this look in a diwaniya, in the press, or in Parliament? Kuwait's lively political culture means officials and senior business figures routinely imagine public scrutiny. A proposal that makes technical sense can still stall if it raises questions about tribal expectations, family reputation, or street opinion. If you find yourself wondering why a perfectly sound idea meets hesitation, the answer may lie outside the room. Ask a trusted Kuwaiti colleague afterward how your proposal was really received.
-
-Meetings often include both Kuwaiti nationals and expatriate managers or consultants. Expats may speak more, present the detail, and handle the technical work, but final legitimacy and decision-making authority rest with Kuwaiti citizens. Their risk calculus is broader than ROI or timelines—it includes how a choice will be judged beyond the office. Prepare to address not only feasibility but also political and social optics, and allow space for digressions. That's often where you'll learn what actually matters.

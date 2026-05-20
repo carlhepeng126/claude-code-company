@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Formal authority in Hungary rarely tells the whole story. The person with the title may sign, but someone else often holds the actual veto. A party fixer, a long-serving department head, a key accountant managing an EU project file can quietly block a decision without ever appearing in the org chart. People inside the organization usually know who these figures are. Outsiders often find out only when a decision stalls for reasons that don't appear on paper. If you're working with a Hungarian partner, ask explicitly who else needs to be comfortable with the proposal, and listen carefully to the names that come up in response.
-
-Decisions unfold slowly, shaped by a circular rather than sequential thought process. Hungarians want to understand the cause of a problem before agreeing to a solution, and they need to be intellectually comfortable with an idea, not just convinced by the bottom line. This means lengthy debate, requests for more information, and attention to worst-case scenarios. Risk aversion runs deep, rooted in historical instability, and trust in the people involved often outweighs confidence in the plan itself. Social bonds, from extended family to old university ties, influence who gets heard and whose proposal moves forward.
-
-A soft "no" is more common than a direct one, especially when turning down a foreign partner or politically connected actor. You may hear "majd meglátjuk" (we'll see), serial postponements, or repeated requests for additional detail. These are polite ways of letting a project die without confrontation. Learn to read these responses as probable refusals and redirect your effort accordingly. Timing also matters. In public and semi-public sectors, decisions are shaped by election cycles, budget seasons, and EU funding windows. A proposal close to an election may be frozen or rushed for campaign visibility.

@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in the Bahamas serves as a way to build rapport and test the chemistry of a working relationship before committing to deeper collaboration. Meals are a natural extension of the getting-to-know-you phase, typically arranged once a basic level of trust has been established. The setting is often informal—a beachfront restaurant, a casual seafood spot, or somewhere with a relaxed island atmosphere. The tone is warm rather than transactional, and the meal itself may not involve much direct business talk at all. That absence is deliberate. Bahamians often want to see how someone engages outside the formal meeting before moving forward, and the meal gives room for that assessment.
-
-Conversation tends to be lighthearted and wide-ranging. Family, travel, sports, and local life are common threads. Business may be touched on lightly, but it's usually the Bahamian host who signals when to shift into more substantive discussion, if at all. Bringing up contracts or timelines too early can come across as rushed or overly formal. A colleague from a culture where meals are used to advance specific agenda items may find this unstructured, while a Bahamian counterpart might see a business-focused meal as missing the relational foundation that makes the partnership viable.
-
-If you're invited, reciprocating the invitation is both expected and appreciated. It doesn't need to be elaborate, but it should feel genuine. Hosting a lunch or dinner during your visit, or extending an invitation on a return trip, signals that you value the relationship beyond the immediate transaction.

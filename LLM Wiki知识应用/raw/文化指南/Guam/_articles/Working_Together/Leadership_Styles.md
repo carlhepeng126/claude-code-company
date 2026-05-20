@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Guam is shaped by the island's culture of respect for elders, family networks, and the practice of *inafa'maolek* (harmony and mutual respect). Leaders are expected to guide with dignity and restraint, maintaining cohesion within teams and across relationships. Authority is real and visible, but it is exercised in ways that avoid direct confrontation or public embarrassment. A manager who issues abrupt instructions or singles someone out for criticism in front of others risks damaging not only the relationship with that person, but trust across the wider group.
-
-Many Guamanian leaders adopt consultative styles, particularly those working with international colleagues. Input is invited and often genuinely considered, though the final decision typically remains with the person in charge. This reflects a broader cultural pattern where hierarchy is respected but leadership also depends on maintaining good relations. A colleague from a culture where decisions are made quickly and announced without preliminary discussion may find the consultation process slow or unclear, while a Guamanian colleague working in that same environment may feel that decisions come across as abrupt and disconnected from the people affected.
-
-Younger professionals and those in private or multinational settings may be more comfortable with delegative or participative approaches, especially if they have worked or studied abroad. Even so, the expectation remains that leaders will demonstrate respect, avoid overt displays of power, and protect the dignity of those they manage.

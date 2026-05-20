@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In Serbia, feedback must protect dignity while still being clear. In a culture where hospitality practices like Slava publicly affirm a person's inclusion and worth, public correction can feel like a statement about whether someone belongs. Critique that exposes someone in front of colleagues risks damaging not just their reputation but their sense of standing within the group. This does not mean feedback is avoided, but the setting and tone determine whether it can be heard. Private conversations, framed calmly and specifically around the behavior rather than the person, allow improvement without humiliation.
-
-Directness exists in Serbian professional life, but it relies on relational groundwork. Kafana culture, where blunt truths are exchanged over coffee or rakija, shows that honest feedback can be accepted when it comes from someone who has already signaled respect and connection. A colleague who has taken time to build rapport can speak more frankly than a manager who only surfaces to evaluate. If feedback feels transactional or delivered coldly, it may be resisted or dismissed, even if technically accurate. Coaching that acknowledges the person's contributions before addressing the gap is more likely to be taken seriously.
-
-In multiethnic settings such as Vojvodina or Sandžak, managers should recognize that people bring different cultural and historical reference points to the workplace. What feels appropriately direct to one colleague may feel abrupt or unsafe to another. Assuming a single approach will work across the team can unintentionally isolate someone. Instead, take time to understand how individuals prefer to receive feedback, adjust your tone accordingly, and check understanding without requiring people to explain their background in order to be treated with care.

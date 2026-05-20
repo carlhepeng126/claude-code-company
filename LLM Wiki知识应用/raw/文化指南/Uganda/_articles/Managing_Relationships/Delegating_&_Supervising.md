@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Delegation in Uganda takes place within a strong hierarchical framework. Employees expect clear direction from their managers and rarely question decisions once tasks have been assigned. Seniority matters deeply, rooted in long-standing respect for elders across Uganda's many ethnic communities. A younger manager supervising older team members may need to navigate this dynamic with particular care, showing visible deference even while directing the work. At the same time, a growing young professional class increasingly expects more collaborative leadership and may grow frustrated with the "chairman bottleneck," where authority concentrates at the top and limits both growth and voice.
-
-Personal connection precedes performance. In Uganda, trust is relational, shaped by the Ubuntu philosophy that personhood is defined through community. Before expecting full commitment, invest time in building genuine rapport with your team. This is how problems surface, and it's how you'll understand what's really happening. Ugandans communicate indirectly to preserve face and group harmony. If someone presents an idea that won't work, respond with tact. Public correction can cause lasting disengagement, and once someone loses face, they may withdraw from contributing altogether.
-
-Don't expect straight answers to yes-or-no questions. If something isn't working, you're unlikely to hear it head-on. Create private, low-pressure channels where concerns can emerge without risk. Pay attention to how things are said, not just what is said. Inflection, colloquialisms, and the blending of English with Luganda or Swahili can all shift meaning. Always confirm understanding, and do it in a way that doesn't put someone on the spot.

@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Years of economic instability have made personal networks a form of social infrastructure in Venezuela. When institutions shift unpredictably, people rely on who they know and who vouches for them. Trust travels through friend-of-friend circuits and family connections, often extending into the diaspora. This means a warm introduction from a mutual contact can move things faster than a polished cold email. If you don't have a shared connection, add context to your outreach: mention how you found them, reference something you have in common, or explain who suggested you reach out. Arriving as a complete stranger leaves people guessing about your reliability.
-
-Venezuelan professional culture leans expressive and relational. Greeting someone warmly and opening with a brief personal exchange affirms their dignity before moving to business. In contexts where hardship is common, showing up fully for people can be a form of pride. This means skipping straight to logistics or launching into your request can feel abrupt. Instead, open with genuine warmth, ask how they are, and give the conversation a moment to breathe before proposing a meeting. Keep it brief but human, not formulaic.
-
-When scheduling, offer two or three clear time slots and stay flexible. Confirm closer to the appointment in a friendly, practical way, not as though you're checking whether they'll show. Traffic in Caracas can be unpredictable, and people's circumstances may shift, so leave room for rescheduling without taking it personally. If you're working across regions, be aware that pace, humor, and tone can vary noticeably between Caracas, the Andes, the coast, and Zulia. What feels warm and direct in one setting may read differently in another.

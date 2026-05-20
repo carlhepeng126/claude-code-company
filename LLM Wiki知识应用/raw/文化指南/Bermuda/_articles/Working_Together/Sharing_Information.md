@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Bermuda tends to move through informal channels and personal relationships rather than formal systems alone. The island's small size means most professionals are connected within one or two degrees of separation, and reputation travels quickly. People often rely on trusted contacts to verify facts, gauge reliability, or understand the full context behind official announcements. This preference for personal networks reflects both the closeness of the community and a pragmatic recognition that not everything worth knowing appears in formal communications.
-
-Within organizations, information may be shared selectively, particularly if it involves sensitive matters or potential disagreements. The emphasis on maintaining harmony and avoiding public conflict means that difficult updates or bad news are often addressed privately first, or within smaller trusted circles, rather than broadcast widely. A colleague from a culture where transparency is prioritized across all levels may read this as withholding or lack of openness. From a Bermudian perspective, the same approach from the other side might feel blunt or disruptive, introducing tension unnecessarily. Building trust through consistent follow-through and respecting confidentiality opens access to more candid exchanges over time.
-
-Expatriate professionals and those in internationally focused sectors may adopt more direct communication styles, but even in these settings, personal credibility influences how freely information is shared. If you demonstrate reliability, discretion, and genuine interest in the relationship, colleagues are far more likely to include you in informal loops where context and nuance are discussed openly. Establishing yourself as someone who listens carefully and honors confidences will serve you better than expecting immediate full disclosure.

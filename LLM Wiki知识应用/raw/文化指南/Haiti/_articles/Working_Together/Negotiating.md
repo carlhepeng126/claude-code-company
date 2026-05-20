@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-In Haiti, negotiations unfold through relationship and presence more than timetables or structured agendas. The conversation may loop back over ground already covered, not because earlier points were unclear but because trust is being tested and the strength of the relationship gauged. A partner who stays engaged through this process, who returns to the table without visible frustration, shows they are serious about the long term. Someone used to linear deal-making, where each point is closed before moving to the next, may read this as inefficiency. From the Haitian side, the looping back confirms whether the other party is genuinely invested or simply looking to extract terms and leave.
-
-Pace itself becomes a form of communication. Slowing down may reflect the need to consult others whose approval is required but not openly acknowledged, or it may be a signal that the offer on the table is not yet compelling. For this reason, leading with your strongest terms limits room to maneuver later. Leaving space for concessions, and making them visibly, demonstrates flexibility and respect for the exchange itself. Bargaining is expected and understood as part of reaching an outcome both sides can stand behind.
-
-Building rapport outside the formal negotiation often moves things forward more effectively than pressure applied within it. A shared meal, a conversation that acknowledges personal context, or help with an unrelated matter can shift the tone and open pathways that remain closed in a boardroom. These gestures are not seen as separate from the negotiation but as foundational to it, confirming that the relationship will extend beyond the signed agreement.

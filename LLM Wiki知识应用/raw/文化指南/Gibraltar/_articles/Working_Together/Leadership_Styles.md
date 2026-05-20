@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Gibraltar tends to be direct and relatively accessible, shaped by the territory's scale and pace. Most organizations are small, and senior figures are often visible and approachable. This creates a workplace culture where leaders are expected to stay close to operational reality, not insulated by layers of management or formality. Decisions often move quickly, especially in sectors like financial services and online gaming where Gibraltar's economic competitiveness depends on speed and flexibility. A manager who disappears into meetings or abstracts themselves from the work can lose credibility fast.
-
-That said, hierarchy still exists and is generally respected. Final decisions sit with the person in charge, and titles hold weight in formal settings or when dealing with external parties, particularly those from more protocol-conscious cultures. But day-to-day authority in Gibraltar is usually exercised with a light touch. Leaders consult, listen, and expect their teams to contribute. This style works partly because teams are often small enough for everyone to know each other, and partly because Gibraltar's workforce tends to expect directness and practicality over ceremony.
-
-For a manager from a culture where leadership is more formal or centralized, this openness can read as a lack of structure or control. From a Gibraltarian perspective, the reverse is also true. A leader who insists on lengthy sign-off processes or avoids giving clear answers may come across as disconnected or overly cautious, especially when speed and pragmatism are what the situation calls for.

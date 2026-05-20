@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Bangladesh bends around relationships, hierarchy, and competing demands on attention. Deadlines exist and are acknowledged, but they rarely override the immediate human claim. A manager may arrive late to a scheduled meeting because a senior colleague asked for help, or because navigating Dhaka's traffic made punctuality impossible despite an early start. The flexibility reflects a reality where personal connection and respect for seniority shape daily priorities more than the clock does.
-
-This relational approach can surprise colleagues from cultures where schedules are fixed and time is parceled into discrete blocks. A Bangladeshi professional may read strict adherence to meeting times as cold or transactional, while a colleague accustomed to tight scheduling may interpret lateness as lack of commitment. Neither reading is accurate. In Bangladesh, honouring a relationship often means responding to what arises in the moment, even if it shifts other plans. Confirming meetings shortly before they happen and building buffer time into schedules helps bridge the gap.
-
-Sector and setting matter. In garment manufacturing, telecommunications, and multinational firms, punctuality and deadline discipline are expected and largely observed. In family-owned businesses, government offices, and smaller enterprises, timing remains more fluid. Decisions may wait on the availability of a senior figure, or because consensus has not yet formed within the group. Younger professionals in corporate environments increasingly align with global norms, but they still navigate a broader culture where time serves relationships first, efficiency second. Recognizing this means understanding that delays are often about honouring the social fabric, not disregarding the task at hand.

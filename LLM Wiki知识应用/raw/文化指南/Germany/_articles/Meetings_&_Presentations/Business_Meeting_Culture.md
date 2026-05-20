@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Germany follow a structure that reflects centuries of negotiating between regions, institutions and competing interests. The old habit of deliberating between princes, free cities and church authorities lives on in a modern preference for orderly, documented decision-making. A well-run meeting has a clear chair, distributed documents, time slots respected and visible next steps. Side conversations or topic-hopping can come across as amateurish. The agenda is not a formality; it frames what will be discussed, and most participants will have prepared in detail.
-
-Direct challenge is part of that preparation. Arguing an idea is a sign of respect, not aggression. A colleague who says "That won't work because..." is stress-testing the proposal, not the person. This reflects a culture that values intellectual rigor and expects ideas to be defended. For someone from a culture where disagreement is handled more indirectly or privately, German meetings can feel blunt. From the German side, avoidance of open debate can suggest the idea has not been thought through, or that the person is not serious. Coming ready with supporting facts, alternatives and awareness of legal or ethical implications signals that you take the topic seriously.
-
-Historical wariness of rushed decisions remains present. Meetings often surface risk, compliance and reputational concerns, not just cost and speed. Pushing hard for a quick decision on a complex issue may raise concern rather than respect. Building in time at the end to confirm who is responsible, by when, and how progress will be tracked is standard practice, not caution.

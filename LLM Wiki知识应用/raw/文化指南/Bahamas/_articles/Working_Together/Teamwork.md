@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in the Bahamas is built on personal relationships and informal trust rather than prescribed roles or structured collaboration. Professional teams function more like extended networks, and trust develops organically through shared experience, conversation, and time spent together outside formal work settings. A colleague who starts a new role expecting clear team protocols or structured check-ins may find that cohesion builds through casual interaction rather than scheduled team meetings. Similarly, decisions that might appear individual often involve quiet input from trusted colleagues behind the scenes.
-
-Team members expect to be treated as individuals, with recognition of their personal circumstances and contributions. Managers are seen not only as task coordinators but as people who care about wellbeing and show interest in what is happening beyond the workplace. Praising someone publicly for a job well done is appreciated, but singling out individuals too forcefully can create discomfort, particularly if it risks making others feel overlooked. Feedback, especially corrective feedback, should be given privately and with care to preserve dignity and avoid embarrassment in front of peers.
-
-Hierarchy exists but is not rigid, and team members often expect a degree of flexibility in how work gets done. Collaboration thrives when there is space for conversation and relationship rather than pressure to perform quickly or conform to tightly defined processes. A colleague from a culture where tasks are distributed formally and tracked closely may read this as vague or inefficient. From the Bahamian side, that same formality can feel impersonal or untrusting, as though relationships matter less than the workflow chart.

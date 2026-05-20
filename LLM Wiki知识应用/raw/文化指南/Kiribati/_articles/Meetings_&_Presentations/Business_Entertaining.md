@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Formal business entertaining is uncommon in Kiribati. The scale of the private sector is limited, much professional life revolves around government and aid work, and the infrastructure for hosting meals in restaurants is minimal outside South Tarawa. When collaboration does involve a meal, it is more likely to take place informally at someone's home or over food shared at community events. These settings are less about separating business from social life than about integrating visitors into the relational fabric that underpins all collaboration.
-
-If you are invited to share a meal, expect it to be modest and guided by hospitality rather than display. Food may include fish, rice, breadfruit or coconut-based dishes, and portions reflect what is available rather than what is abundant. Bringing something to contribute, especially if you are staying for any length of time, is a practical gesture that acknowledges the reality of limited resources. Cash economies operate alongside subsistence livelihoods, and hosting a guest requires effort and planning.
-
-Business matters are unlikely to be discussed directly during a meal unless your host raises them. The gathering itself builds the relationship that allows work to proceed later. Pushing for outcomes or steering conversation toward decisions too early can suggest that the professional transaction outweighs the relational foundation. For someone from a culture where meals are used to advance agreements quickly, this can feel inefficient. For I-Kiribati hosts, the meal is part of establishing whether someone is trustworthy and willing to invest time beyond the transactional.

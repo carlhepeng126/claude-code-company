@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Burkina Faso, the way you address someone reflects both respect for social hierarchy and acknowledgment of the relationship you are building. Titles matter, and using them correctly signals that you understand local codes of courtesy. Professional titles such as Monsieur, Madame, or Professeur are used with the family name in formal settings, and dropping them too quickly can come across as overly familiar or disrespectful. If someone holds an academic or government position, use that title. In meetings with officials or senior colleagues, wait to be invited to use first names rather than assuming informality.
-
-Age and status shape how you greet and address people. Elders and those in senior roles are greeted first, and younger colleagues often defer verbally and physically, sometimes bowing slightly or lowering their gaze as a sign of respect. For a colleague accustomed to flat organizational structures where first names are used from the outset, this formality can feel distant. From a Burkinabé perspective, the reverse can feel abrupt or even rude, as though status and experience are being overlooked. Formality is how trust begins, not what delays it.
-
-In written communication, maintain the same level of formality you would use face to face. Emails should open with the appropriate title and full name, and closings such as Cordialement or Respectueusement are expected. Even in digital exchanges, the tone should reflect the relationship as it stands, not the one you hope to build. Moving to casual address before the other person does can undermine the professionalism you are trying to establish.

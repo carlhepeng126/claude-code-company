@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Disagreements in Qatar are typically handled away from public view, in settings that allow dignity to remain intact. The majlis tradition offers a model for this: disputes are brought into a respected communal setting where resolution can unfold without public confrontation or loss of face. In the workplace, this translates into a preference for addressing conflict quietly, often in smaller or more private conversations, and with a focus on restoring the relationship rather than assigning blame. Raising a sensitive issue in front of a group, or naming someone's mistake directly, can feel like an attack on honor, not just a professional disagreement.
-
-When conflict does surface, it may be introduced gradually. A colleague might mention a concern in passing, test your response, or bring the issue up indirectly through a story or a question. This allows both parties to gauge how the conversation will go without committing to a position that could later cause embarrassment. If you respond with directness or impatience, the issue may go underground rather than forward. Creating room for these slower, more careful approaches means the substance of the disagreement can actually be addressed.
-
-In workplaces with diverse nationalities, conflict styles vary widely. Some colleagues may avoid raising issues at all due to vulnerability or unfamiliarity with local norms, while others may expect a third party to intervene. Using an intermediary, someone respected by both sides, can help move things forward when direct conversation feels too risky. This role is less about arbitration and more about preserving dignity while still allowing the problem to be named and worked through. Silence should not be read as agreement. It often signals discomfort, deference, or uncertainty about how to raise a concern without social cost.

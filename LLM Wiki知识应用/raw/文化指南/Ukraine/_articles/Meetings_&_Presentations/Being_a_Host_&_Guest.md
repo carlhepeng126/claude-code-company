@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Ukrainian hospitality reflects a deep tradition of care rooted in Cossack and rural customs, where welcoming a guest is treated as a moral act and a chance to express generosity and respect. This shows up clearly in professional life. When hosting, colleagues will often choose a restaurant convenient for you, arrive early to settle the table, and insist on paying. Offering to split the bill can unintentionally undercut the gesture. A better approach is to thank your host warmly and offer to host the next meeting. That reciprocity is watched closely, because it signals reliability and the possibility of a sustained partnership.
-
-Meals unfold slowly, and food is offered in abundance. A host who presses you to take more is showing you matter, and accepting even a small second helping or complimenting a dish acknowledges the effort behind it. Leaving quickly after eating or declining refreshment without explanation can come across as dismissive. If you have dietary restrictions, mention them in advance, but otherwise try what is offered. A colleague from a culture where meals are brief and task-focused may read this pace as inefficient, while a Ukrainian counterpart may find a quick lunch followed by an immediate return to business transactional and oddly impersonal.
-
-An invitation to someone's home is rare and marks a real shift from professional contact to personal trust. Bring a modest gift such as flowers (in odd numbers), wine, or chocolates. If children are present, include something sweet for them. The table will likely hold regional dishes like varenyky or borshch, prepared with intention. Saying no to food without a reason can feel like a rejection of the relationship being offered, not just the meal.

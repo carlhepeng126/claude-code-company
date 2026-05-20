@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Cabo Verdean time management reflects the country's insularity and relational rhythm. Historically shaped by geographic isolation and dependency on irregular boat arrivals, life on the islands developed around waiting, adapting, and prioritizing connection over precision. Even today, meetings often begin after a period of greeting and informal exchange. Jumping straight to business before acknowledging the person can seem cold or transactional.
-
-Punctuality varies by setting. In formal sectors like finance, government offices dealing with international partners, or companies with diaspora ties, scheduled times are generally respected. In smaller businesses, family firms, or rural areas, flexibility is more common. A meeting set for 10:00 may begin closer to 10:30, particularly if the relationship is new or the matter requires trust-building. Lateness here reflects social priority, not disregard. For colleagues from cultures where schedules are fixed, this can feel unpredictable. For Cabo Verdeans, rigid timekeeping without relational warmth may feel abrupt or impersonal.
-
-Deadlines are taken seriously once agreed, but the process leading to agreement may unfold more slowly than expected. Decision-making often involves consultation across family or trusted networks, particularly in contexts where personal and professional life overlap. Pressing for speed before trust is established can backfire. Allowing time for relationship-building early on often accelerates outcomes later, as commitment becomes personal, not just procedural.

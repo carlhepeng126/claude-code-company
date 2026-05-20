@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-In Venezuelan workplaces, information tends to move within trusted circles rather than being broadcast widely. Who you know often shapes what you hear. Networks based on personal relationships and shared history determine credibility, and reputation travels through these networks with surprising reach. Even across borders, references and verification follow Venezuelan diaspora connections more closely than outsiders expect. This means that asking for sensitive information without explaining why you need it or how you will use it can trigger caution. When people sense risk or uncertainty, they may share in stages, releasing details only as the relationship proves reliable.
-
-Careful language in these moments reflects social skill rather than evasion. In environments shaped by political polarization or personal risk, measured communication protects relationships and future options. A colleague may hold back in a large meeting but open up in a one-to-one conversation or follow-up message. If you sense hesitation, creating a safer path by reducing the audience or revisiting the topic later will often yield more than pressing immediately. 
-
-Trust deepens as formality loosens. Venezuelan Spanish has strong in-group markers, and the shift from formal address to familiar language often signals a shift in how freely information flows. Building this trust means sharing clearly yourself: short summaries, transparent reasoning, and written recaps that show you handle details responsibly. Keep sensitive information tightly shared rather than circulating it to wide groups by default, and confirm channels and time zones explicitly in cross-border teams rather than assuming a single standard.

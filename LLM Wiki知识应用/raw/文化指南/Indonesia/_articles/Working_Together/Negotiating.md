@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Serious bargaining begins only after comfort and trust have been built, often over multiple meetings and informal conversations. This foundation lets both sides test reliability and protect dignity as discussions progress. Rushing toward terms before that groundwork is complete can feel transactional and disrespectful. The relationship comes first because it determines whether concessions will be reciprocated and whether the agreement will hold beyond the contract.
-
-Hard positions that corner someone publicly risk creating malu (shame) that lingers long after the deal closes. Many Indonesian negotiators favor a series of polite exchanges, side conversations, and gradual adjustments that allow everyone to claim progress without visible loss. Phrases like "kami pikir-pikir dulu" (we'll think about it first) or "nanti kita bicarakan lagi" (we'll discuss this again later) often function as soft refusals. Repeated requests for time should be read as a signal to adjust your proposal or expectations, not as an invitation to increase pressure.
-
-Outside major cities, your real negotiation may involve more than your commercial counterpart. Adat leaders, land-owning clans, or religious councils may expect consultation and respect before any deal moves forward. In regions with histories of unfair land agreements, broken promises from palm oil or mining projects, or forced evictions, communities test whether new proposals repeat old patterns. Naming how your approach differs in concrete terms, such as transparent land processes, clear benefit-sharing, and long-term commitments, addresses that history more effectively than deferred assurances.

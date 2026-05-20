@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Indonesian professional settings often reward a style known as *halus* (refined): controlled tone, careful phrasing, and a visible effort to keep interactions smooth. The opposite, *kasar* (coarse), includes loud speech, interruptions, or blunt contradiction, especially toward anyone senior. This preference runs deeper than politeness. It reflects *tepo seliro* (sensitivity to others' feelings) and a broader commitment to keeping everyone comfortable, even when that slows a decision or softens a fact.
-
-The concepts of *malu* (shame or modesty) and *sungkan* (reluctance to impose) mean that public embarrassment is avoided whenever possible. A colleague may nod rather than disagree in front of others, or defer a tough question until later, to preserve collective ease. What looks like agreement in a meeting may actually be a signal that the conversation needs to continue elsewhere. The informal phrase *asal Bapak senang* ("as long as the boss is happy") points to a real pattern: hard news is often reframed or delayed to protect the leader's face and maintain calm.
-
-For colleagues used to direct exchange, this indirectness can feel like evasion. From an Indonesian perspective, the same directness may feel unnecessarily rough, even aggressive. If you need to deliver difficult information to someone senior, think about how to be clear on the substance while framing it in a way that doesn't corner them publicly. Softer phrasing, one-on-one conversations, and questions that invite reflection rather than immediate answers all help maintain the relationship while still moving the work forward.

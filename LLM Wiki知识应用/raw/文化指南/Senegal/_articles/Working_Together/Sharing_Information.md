@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Senegal travels through multiple channels at once, and formal written communication is only one of them. Official reports are routinely written in French, the administrative language, but many staff only truly absorb the content when it's discussed aloud in Wolof, Pulaar, or Serer. A memo that hasn't been talked through in a local language may sit unread or misunderstood, even if everyone has technically received it. Effective communication therefore happens in layers: a document for the record, followed by face-to-face explanation in the language people think in, often reinforced through WhatsApp groups that allow ongoing clarification and coordination.
-
-Informal networks move information faster than official ones. Radio trottoir (street radio) and WhatsApp groups circulate news, rumours, and updates well before formal channels catch up. This reflects the relational fabric of Senegalese workplaces, where trust and proximity shape who knows what and when. Information tends to stay within clusters of people who already share ties, rather than flowing freely across departments or hierarchies. Those at the bottom of an organization are unlikely to know what's happening at the top, and cross-departmental transparency is not assumed. Building a trusted local contact who can bridge those networks makes a measurable difference.
-
-Raising problems openly can feel risky. The cultural principle of sutura, which emphasizes discretion and avoiding public shame, pushes issues into private conversation rather than formal complaint mechanisms. Whistleblowing or airing internal problems publicly can be read as disloyalty, so people often signal concerns quietly to trusted intermediaries. Creating informal, low-stakes spaces for discussion, such as small-group check-ins or one-on-one conversations, allows problems to surface without forcing anyone into uncomfortable exposure.

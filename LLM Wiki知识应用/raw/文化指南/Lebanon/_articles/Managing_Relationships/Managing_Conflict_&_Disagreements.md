@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Lebanon's recent history shapes how disagreement is handled in professional settings. Decades of civil war and ongoing political fragility have made many Lebanese acutely aware of how quickly conflict can escalate beyond the issue at hand. This awareness shows up in the workplace as a strong instinct to keep shared spaces workable. People often soften their language, shift topics, or move disagreements into smaller, more private channels to prevent a rupture that could become harder to repair.
-
-This preference for de-escalation reflects a stability practice, not reluctance to engage. In mixed groups, especially where sectarian or political identity could become entangled with a professional issue, keeping the room intact takes priority. Confrontation in front of others risks turning a technical disagreement into something identity-coded, which can damage relationships and create lasting tension. If a disagreement arises in a meeting, expect it to be raised gradually or revisited one-to-one afterward rather than resolved on the spot. For colleagues from cultures where resolving conflict in the moment is seen as efficient, this can feel indirect. For many Lebanese, a colleague who pushes for immediate resolution in a group setting may seem unaware of the social risk involved.
-
-When a disagreement cannot be resolved directly between the parties, involving a trusted intermediary is a culturally understood approach. Lebanon's brokerage and patronage traditions mean that mediation by a respected senior figure or mutual contact is a legitimate path to restoring functionality without forcing anyone into a public stance. This allows both sides to step back without losing face and often resolves the issue more effectively than a formal process would.

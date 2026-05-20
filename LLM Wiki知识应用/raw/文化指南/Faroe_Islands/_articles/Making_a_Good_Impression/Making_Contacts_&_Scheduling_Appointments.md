@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-The Faroe Islands is a small, tightly connected society where most professionals know each other or share at least one contact in common. This network runs deep. Before approaching someone new, it's often worth asking around to see if there's a mutual connection who can make an introduction or vouch for you. That step isn't about formality. It's about signaling that you understand how trust is built here, through people who already know both sides. Cold emails and calls do reach people, but they rarely move things forward as quickly as a brief word from someone familiar.
-
-Once contact is made, scheduling is usually straightforward. Faroese professionals tend to be responsive and organized, and appointments can often be arranged within a week or two. But keep in mind that the small population means people wear multiple roles. The same person might manage a family business, serve on a municipal board, and help run a local festival. Calendars can fill up quickly, and weather or boat schedules can shift plans without much warning. Confirming a meeting the day before is standard practice and appreciated.
-
-Flexibility goes both ways. If a meeting needs to be moved, most people will accommodate without hesitation, and they'll expect the same understanding from you. That adaptability reflects both practical constraints and a cultural preference for managing commitments in a way that respects everyone's competing demands. For a colleague from a culture where schedules are fixed well in advance, this can feel unsettled. From a Faroese perspective, holding too tightly to a plan when circumstances change can seem rigid or unaware of local realities.

@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in French Guiana flows through recognition that feels personal and ties people to something meaningful. Financial rewards have their place, but they work best when paired with genuine appreciation and a sense that contributions are noticed. A manager who acknowledges someone's work in front of the team, or who includes them in a high-profile project, sends a clear message: you belong here, and what you do is valued. That kind of recognition builds loyalty more reliably than formal incentive structures alone.
-
-Rigid targets and inflexible deadlines rarely inspire sustained effort. French Guiana's workforce reflects a more fluid relationship with time, shaped by the realities of a small population, limited infrastructure, and strong family and community ties. People prioritize family obligations, and long-term planning is constrained by practical uncertainties around resources and connectivity. Managers who adapt timelines and maintain momentum without demanding overtime for arbitrary deadlines will see better engagement than those who push for strict adherence to schedules. The rhythm of work here accommodates life outside it.
-
-What drives people also varies by background and stage of career. Younger professionals in Cayenne, especially those in public administration or international organizations, may value training opportunities or exposure to regional networks. In more isolated communities, stability and a respected position often matter more than mobility. Across all settings, people respond to managers who create space for contribution without treating every task as urgent or every delay as a failure.

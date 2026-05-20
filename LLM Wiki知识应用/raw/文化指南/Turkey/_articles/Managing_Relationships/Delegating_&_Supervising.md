@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-In many Turkish organizations, senior leaders set direction and manage external relationships while line managers oversee daily operations. Updates and requests follow the formal chain, particularly in traditional companies and family-owned groups where hierarchy shapes workflow. Team members expect to report to their direct manager, who then carries information upward. Multinational firms and project-based teams often flatten this structure, but even there, skipping a layer without explanation can unsettle colleagues who see it as bypassing the manager's role and undermining their standing.
-
-Upward communication tends toward politeness, especially when the message involves risk or failure. Team members may soften difficult news, gather additional detail first, or try to resolve an issue quietly before raising it. This reflects a desire to protect the manager's time and avoid delivering a problem without options. A colleague from a culture where early escalation is expected might read this as withholding information, while a Turkish team member may view immediate flagging of every uncertainty as premature or alarmist. Framing concerns as brief heads-ups or presenting a choice rather than a crisis makes it easier for people to speak up. One extra clarifying question often surfaces the real issue.
-
-Concrete escalation pathways help. Agreeing on simple phrases like "we may need a decision" or "this could affect the timeline" gives team members language that feels respectful rather than confrontational. Acknowledging the flag calmly and focusing on solutions rather than fault makes future reporting more likely. Explicit decision rights and consistent expectations allow Turkish teams to move quickly once the boundaries are clear.

@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Togo are more than food logistics. They extend the relational groundwork laid in earlier conversation, giving colleagues time to read character and compatibility in a setting that feels less rigid than the office. Meals are rarely used to close a deal or push an agenda. Instead, they let people see how you engage when the agenda loosens, which colleagues in Togo consider a more reliable indicator of trustworthiness than formal performance alone.
-
-Restaurants in Lomé or larger towns may serve grilled fish, chicken, or pork alongside local staples like fufu (pounded yam or cassava) or pâte (a starchy side made from maize or millet), often accompanied by vegetable or peanut-based sauces. These meals are usually eaten with the right hand, though cutlery is increasingly common in business settings. If you're unfamiliar with eating by hand, using a fork is perfectly acceptable and won't cause offense. What does register, however, is declining to share. Plates are often placed communally, and offering a taste or accepting food from a colleague's plate is part of building rapport. Refusing repeatedly can read as standoffish, even when dietary restrictions aren't at play. If you have dietary needs, explain them early and warmly. Colleagues will accommodate, but abrupt refusal without context may be misread as social distance.
-
-Alcohol is available in some restaurants and hotels, but drinking is not a default expectation and abstaining draws no comment. Pace is unhurried. Courses come slowly, and conversation drifts beyond the project at hand. A colleague from a context where meals are tightly scheduled may find this inefficient. From a Togolese perspective, trying to condense the meal or steer it back to business too soon suggests you're more interested in output than relationship, which undermines the trust the meal is meant to build.

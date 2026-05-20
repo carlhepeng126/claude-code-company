@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In Liberia, how you dress communicates respectability and seriousness before you've said a word. This has deep roots in church culture, where presenting yourself with care reflects self-respect and honor toward others. The idea of "Sunday best" extends beyond religious settings. Arriving well-groomed and neatly dressed shows that you take the meeting, the role, and the people involved seriously. A pressed shirt, modest dress, or polished shoes becomes visual shorthand for responsibility. When planning your wardrobe, aim for neat, modest, and well-kept as your baseline. It reads as dignity, and it sets the right tone from the start.
-
-Monrovia tends toward sharper institutional polish, shaped by government offices, NGO presence, and diaspora-facing environments. Men typically wear suits or tailored slacks with collared shirts and ties. Women opt for smart, conservative outfits such as long skirts or trousers paired with blouses or dresses. In formal settings here, dressing down can unintentionally signal that the occasion or the people involved don't warrant your full attention. Up-country or in rural contexts, practicality often becomes part of respect. Heat, humidity, and rainy-season travel make "looking put together" a real effort, and colleagues understand the conditions. Dressing right for the setting often lands better than strict formality that ignores the realities on the ground.
-
-Liberians invest time and care in their appearance regardless of income or infrastructure. Excuses related to climate or travel are neither offered nor expected. If you arrive looking disheveled, it may suggest a lack of effort or awareness rather than simply a practical response to conditions. Match the care your colleagues bring to their own presentation, and you'll be meeting them on even ground.

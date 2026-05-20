@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Business etiquette in El Salvador is grounded in personal warmth and mutual regard. Greetings often begin with a handshake, sometimes accompanied by a light touch on the shoulder or forearm, especially among those who have met before. These gestures reflect a culture where relationships are built on genuine connection rather than transactional efficiency. Titles are used regularly, and addressing someone as *Señor*, *Señora*, or *Licenciado* (a term for university-educated professionals) shows respect for both the person and their position. Using first names too soon can feel overly familiar, particularly with senior colleagues or clients.
-
-Salvadorans tend to communicate with care for harmony and dignity. Direct refusals or blunt criticism, especially in front of others, are avoided because they risk embarrassment and damage trust. A colleague may say "we'll see" or "let me check" rather than decline outright. This indirectness preserves the relationship and leaves room for the conversation to continue. Someone from a culture where directness is valued may read this as vagueness or hesitation, while a Salvadoran might see a blunt "no" as unnecessarily harsh or even disrespectful. Listening for tone and context often reveals more than the words alone.
-
-Dress in professional settings is formal and polished. Men typically wear dark suits and ties, while women favor conservative business attire. Appearance reflects seriousness and respect for the occasion, and underdressing can undermine credibility before a conversation begins.

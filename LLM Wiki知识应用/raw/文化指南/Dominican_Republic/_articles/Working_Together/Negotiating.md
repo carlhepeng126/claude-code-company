@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in the Dominican Republic includes a style called *tigueraje* (being clever and resourceful), which shows up as testing, storytelling, and looking for where the real flexibility lies. This back-and-forth is due diligence on character. Parties expect each other to push, but there is a moral line. Being *demasiado tíguere* (too cunning) can damage your reputation permanently. If you come from a culture where negotiations stick closely to the agenda and written proposals, this can feel chaotic or evasive. But from a Dominican perspective, jumping straight to terms without testing the person behind them feels reckless. Expect probing questions and anecdotes about past deals. These are not distractions. They reveal whether you keep your word.
-
-Relationship comes before paper. Many Dominicans want to know who they are really dealing with before locking into rigid contracts. A contract with someone *no serio* (not serious, not reliable) feels unsafe even if the legal terms are strong. Given inconsistent institutional enforcement, people place heavy weight on personal commitments, collateral, and political or family backing. Who introduced you can matter more than the size of your company. Be clear about where you can flex and where you cannot, and stick to what you promise. Your personal record will travel faster than your logo.
-
-When possible, pair legal guarantees with relational assurances such as presence, accessibility, and clear points of contact. This strengthens perceived security in a context where institutions are trusted less than individuals.

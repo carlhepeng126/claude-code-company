@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teams in Azerbaijan operate within overlapping circles of loyalty that reach well beyond the office. A colleague may belong simultaneously to family networks, a regional group, a cohort from university years, or Soviet-era professional ties. When these circles pull in different directions, the tension can be real. Knowing who shares which connections helps explain why certain decisions take longer, why some voices defer to others, and why trust within a team is never assumed but carefully extended over time.
-
-The team leader occupies a role that resembles a family elder more than a project coordinator. They are expected to protect, advise, occasionally reprimand, and often help with personal matters that fall outside the formal job description. In return, they receive loyalty and discretion. If you work around a team lead without acknowledging this moral authority, the group may lose its cohesion. Undermining the leader in front of the team risks fracturing the unit entirely.
-
-Within many teams, a few trusted individuals quietly shoulder a disproportionate share of the work while others hold more visible roles. This division often reflects who is trusted rather than who is technically most capable. Recognizing these quiet contributors privately, and ensuring they are fairly rewarded, matters in a culture attuned to fairness and the social concept of *ayıb* (shame or impropriety). Small-group conversations and one-to-one check-ins also create room for concerns that would never surface in a larger meeting, where speaking against the grain can carry social cost.

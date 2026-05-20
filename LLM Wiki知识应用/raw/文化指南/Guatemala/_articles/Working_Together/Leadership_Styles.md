@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Guatemala is shaped by an old template that still runs beneath modern organizational titles: the *buen patrón* or *buena patrona* (good landowner), a figure who pays on time, protects staff from abuse, helps in emergencies, and never humiliates anyone publicly. This ideal emerged from finca culture, where landowners often failed to meet those standards, but the longing for a leader who does has endured. Today, whether you manage an NGO team, a development project, or a commercial operation, people will measure you against that model. If you visit communities, sit on a plastic chair in a courtyard, eat tortillas with staff, and show up when someone is in trouble, you build moral legitimacy that formal authority alone cannot supply.
-
-That moral weight often outranks title or credentials. A director who never leaves the capital, speaks no local language, and ignores community elders may have less influence than a coordinator who grew up *en el campo* (in the countryside) and is seen helping staff through crises. After decades when authority figures could be lethal, people still fear power, but they also long for leaders who are visibly human. If you lead exclusively from offices, SUVs, or hotels, you risk being read as distant or untrustworthy. Your physical presence in their spaces, your willingness to advocate against unnecessary risk, and your response when a colleague is robbed or injured are all registered as leadership behavior.
-
-This does not mean hierarchy disappears. Most Guatemalans expect leaders to be decisive and protective, and many prefer to be led rather than asked to co-decide. But decisiveness without solidarity will erode trust, and formality without warmth will feel like the old patron returning.

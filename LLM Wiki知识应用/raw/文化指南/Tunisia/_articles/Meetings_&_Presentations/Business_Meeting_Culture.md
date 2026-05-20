@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Tunisia open with polite, extended greetings and a round of small talk before any agenda begins. This social preamble builds ease and trust, and it should not be rushed. Senior participants are greeted first, and their role in guiding the discussion is quietly acknowledged. In family-run or public-sector settings, hierarchy is more pronounced, and decision-makers may defer final calls even after group discussion. Younger colleagues often hold back unless invited to contribute. Respect for seniority runs deeper than politeness — it shapes whose voice closes the conversation.
-
-Communication during meetings tends to be diplomatic. Direct contradiction in a group setting risks causing discomfort or loss of face, so disagreement is often expressed through hesitation, redirection, or silence. A colleague from a culture where candid debate is expected in meetings may misread this as agreement, while a Tunisian counterpart may find blunt challenges unnecessarily confrontational. If you press for immediate commitment, you may receive verbal assent that is not yet fully decided. Decisions often continue after the meeting, through informal consultation or reflection with trusted advisors.
-
-The tone and flow are more fluid than formal. Phones may ring, people may enter mid-discussion, and the conversation may loop back or shift direction. This is especially common in domestic firms and public offices, where the open-door culture reflects relationship-based working styles. Following up in writing after a meeting, with a clear but courteous summary of what was discussed, helps anchor understanding and keeps momentum without pushing too hard.

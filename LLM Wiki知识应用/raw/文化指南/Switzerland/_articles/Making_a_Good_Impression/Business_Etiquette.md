@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Swiss politeness reads as restraint. Keeping volume measured, respecting boundaries, and maintaining calm interactions reflect consideration for others. In meetings, this shows up as an attentive, contained manner: slouching or talking with your hands in your pockets may be read as too casual, while effusive gestures or emphatic table-thumping can feel over-familiar and undisciplined. If you're working with a Swiss colleague and come from a culture where warmth is expressed through physical touch or animated delivery, your style may seem intrusive or uncontrolled. In return, Swiss reserve can look cold or disengaged when it is actually a form of respect.
-
-Many Swiss have been shaped by association culture, where participation in clubs and local organizations trains people in procedural cooperation from an early age. Committees, roles, minutes, and rules of participation are civic habits practiced in leisure settings and then carried into professional life. This is why agreed processes are followed consistently and rule-bending can seem disrespectful to the collective. If you arrive in a meeting with a workaround that skips a formal step, your Swiss counterpart may see it as careless, not resourceful.
-
-Switzerland's long-standing neutrality is part of national self-image and shapes conversational style. Many people are practiced at handling difference through careful phrasing, moderation, and constructive framing. When topics are sensitive, questions are used to clarify intent rather than push someone into taking a public side.

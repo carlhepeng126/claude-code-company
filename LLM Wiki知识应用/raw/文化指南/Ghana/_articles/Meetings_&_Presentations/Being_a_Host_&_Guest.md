@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Ghanaian hosts will often insist that what they've prepared is "just small, small," even when they've gone to considerable effort and over-catered. This downplaying is a politeness code rooted in humility and the desire not to seem boastful. The appropriate response is to praise the food, the cook, and the effort visibly, not to agree that it was nothing. Understated generosity expects visible gratitude in return, and that exchange strengthens the relationship. If you respond with equal modesty or brevity, the host may feel their effort went unrecognized.
-
-Being invited to a family funeral, outdooring (naming ceremony), or engagement marks a shift from visitor to someone considered part of the host's circle. These are not casual invitations. They involve specific dress codes, cloths in certain colors, and public protocols where others will be watching how you participate. It's worth asking a colleague beforehand about appropriate contributions, such as envelope amounts or what to wear, to avoid unintended disrespect. Declining such an invitation without a strong reason can feel like a rejection of the relationship itself.
-
-After events, hosts commonly offer food to take home in packs. This "take away" practice extends hospitality beyond the moment and allows the guest to share it with others. Refusing repeatedly can come across as pride or rejection of the host's generosity. Accepting graciously, and later sharing what you've been given with colleagues or family, reflects how hospitality is understood to ripple outward rather than end at the door.

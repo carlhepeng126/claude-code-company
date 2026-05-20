@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-How information is shared in Tunisia depends heavily on who else is in the room. Hierarchy, relationship, and context determine what gets said out loud and what remains unspoken or saved for later. In formal settings, especially those with senior people present, colleagues may choose diplomacy over directness to preserve dignity and avoid public disagreement. Silence in a meeting does not always mean agreement. A Tunisian colleague may hold back reservations and raise them privately afterward, where the conversation feels safer and less exposed. For managers used to open debate in meetings, this can mean realizing only later that consensus was incomplete. Creating space for one-on-one follow-ups or smaller group discussions often surfaces concerns that formal sessions will not.
-
-Tunisia's communication style blends the relational and the strategic. Information is often socialized informally before being announced officially. A decision might be tested quietly with key people first, allowing a manager to adjust tone or timing before going public. This is relationship-protecting, ensuring that the formal moment reflects alignment rather than exposing disagreement. Colleagues from cultures where transparency means sharing updates broadly and early may find this approach indirect. From the Tunisian side, broadcasting unfinished thinking can feel premature or even disrespectful, especially if it bypasses those whose input or authority should be acknowledged first.
-
-Trust is the gateway to more open sharing. Once established through reliability and discretion, information flows more freely, including through personal networks that often hold insights not captured in official channels. Checking in individually, asking direct questions privately, and building genuine rapport makes it easier for colleagues to speak candidly.

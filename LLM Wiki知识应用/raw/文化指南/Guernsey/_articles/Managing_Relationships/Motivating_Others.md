@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Guernsey often comes through personal recognition and the feeling of being seen as a valued individual rather than as part of an abstract collective. A quiet thank you or a direct acknowledgment after a task has been completed well can mean more than a formal rewards structure. People tend to respond when managers notice their specific contribution, especially if it is done in a straightforward, understated way. Over-elaborate praise or public fanfare can feel awkward or out of step with the island's reserved tone.
-
-Financial reward does play a role, but it works best alongside a climate where people feel trusted and treated fairly. Autonomy can be a stronger driver than extrinsic incentives for many. Micromanagement or overly detailed supervision can dampen commitment. When someone is given the space to get on with their work without unnecessary oversight, they are more likely to take ownership and deliver. A colleague from a culture where regular check-ins and visible urgency are expected might interpret this approach as disengagement. From a Guernsey perspective, the same check-ins can feel intrusive or signal a lack of confidence in their competence.
-
-Flexibility around how and when work gets done tends to resonate more than rigid targets. People here value personal time and the ability to balance work with life outside it, and a manager who acknowledges that balance is more likely to hold team morale. Growth opportunities are noticed, particularly by younger professionals, though ambition is usually expressed quietly rather than flagged outright.

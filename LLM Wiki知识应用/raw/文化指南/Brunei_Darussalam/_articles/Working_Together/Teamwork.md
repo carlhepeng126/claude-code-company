@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Brunei is anchored in respect for rank and the preservation of collective harmony. In most professional settings, the team flows around the most senior person present, who may be expected to guide decisions and set direction without overt challenge. Junior colleagues typically wait to be invited into discussion rather than volunteering views early, even when they hold valuable expertise. This reflects a cultural priority on deference and group cohesion over individual assertion. For a colleague from a culture where contribution is shown through early input, this can read as disengagement. From a Bruneian perspective, the same colleague's directness may seem presumptuous or dismissive of hierarchy.
-
-Feedback within teams is handled with care. Public correction, even when framed constructively, risks causing embarrassment and unsettling the group. Praise tends to be directed toward the team as a whole rather than singling out individuals, which protects face and reinforces unity. When something needs addressing, it is more likely to happen in a private conversation or through indirect suggestion than in a group forum. Managers working across cultures should plan for one-on-one check-ins if they need to surface concerns or recognize specific contributions without creating discomfort.
-
-Building trust takes time and happens through repeated, respectful interaction rather than structured team exercises. Collaboration deepens as relationships do, and rushing this process or relying solely on formal mechanisms may leave the relational foundation underdeveloped.

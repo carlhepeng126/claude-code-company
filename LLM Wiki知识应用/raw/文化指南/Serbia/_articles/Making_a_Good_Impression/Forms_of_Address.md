@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Serbian encodes respect through language in ways that go beyond titles. The choice between *ti* (informal "you") and *Vi* (formal "you") sets the distance from the first exchange. *Vi*, sometimes called *persiranje*, is used with people you don't know well, with elders, and in professional settings. The shift to *ti* happens only when someone with seniority or longer tenure invites it, often after several meetings or over coffee. Moving too quickly to *ti* can come across as presumptuous, particularly with older colleagues or those higher in the hierarchy. Starting formal and staying formal until the other person relaxes the boundary is the safer read.
-
-Titles paired with surnames are standard at the outset. "Gospodin" (Mr.) or "Gospođa" (Mrs. or Ms.) followed by the last name is the default until first names are offered. In more formal businesses, lower-ranking staff may continue to use honorifics with their manager even after working together for years. This persistence reflects a hierarchical workplace culture where respect is shown through consistent formality, especially upward. Handshakes are firm and steady eye contact is expected as a sign of honesty. Among colleagues who know each other well, greetings may include a kiss on each cheek, sometimes three.
-
-Serbian is written in both Cyrillic and Latin scripts, and both are used daily. Cyrillic became the official script for government use in 2006, so institutional correspondence often appears in Cyrillic, while everyday emails or informal messages may use Latin. Matching the script someone uses in their own writing is a small but visible sign of attentiveness. Serbia's census tracks mother tongue and religion as identity markers, reflecting a society where these details hold social meaning. Avoid guessing identity from name, region, or accent, and let people locate themselves.

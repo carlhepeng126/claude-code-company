@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-In Portugal, commercial relationships deepen through rhythm and repeated contact rather than immediate intimacy. Trust is something that forms through steady, predictable interaction over time. A sense of "we know each other" matters more than speed, and people often respond more warmly to partners who show up regularly and follow through calmly than to those who push for closeness or decisions early. This preference reflects a broader cultural comfort with relationships that settle gradually. Start with respectful formality, using titles like senhor or senhora, and let the relationship soften at its own pace.
-
-When problems arise, the valued response is practical repair rather than blame. The concept of *desenrascanço* (the art of improvising a workable solution) shapes expectations of competence under pressure. If a delivery is delayed or a specification changes, move quickly into problem-solving mode and then follow up with a clear written summary of what has been agreed and what happens next. This combination of calm adaptability and documented clarity reassures your counterpart that the relationship can handle friction without collapsing.
-
-Accountability can feel diffuse when things go wrong, particularly if responsibility is shared across informal networks. Portuguese social life includes the practice of *cunha* (connections or favors through personal networks), which can mean that some decisions or access points depend on who knows whom. When working with suppliers, spell out who is responsible for what at the outset, and check in regularly rather than waiting until a deadline passes. Regular contact helps keep commitments visible and reduces the likelihood of silent drift.

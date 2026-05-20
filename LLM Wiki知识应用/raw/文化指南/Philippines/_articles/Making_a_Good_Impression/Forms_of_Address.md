@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Filipino professional settings, forms of address serve as everyday tools for protecting dignity and building relational safety. This reflects *hiya*, a socially situated sensitivity to face that runs through workplace interaction. How you address someone signals whether you recognize their standing and whether you are working to keep the relationship comfortable, even when hierarchy is present.
-
-Titles are used at the outset and often continue throughout the relationship. Professionals are addressed by role and surname: Architect Cruz, Attorney Jose, Director Santos. Government and military officials hold onto their formal titles outside the office. The practice extends beyond formality. Using a title acknowledges someone's place without putting them under scrutiny, and it gives both parties a neutral starting point before trust has been built. Many Filipinos carry multiple given names or nicknames that differ sharply from their formal name: Enrique Ramon might be known as Booboy, Maria Teresita as Peachy. Nicknames often appear in quotation marks on business cards. Ask what someone prefers to be called early on, note the spelling, and use it consistently. Switching uninvited to a first name, especially across seniority, can feel abrupt.
-
-Language choice also communicates intent. English often marks professional or official exchanges, while Taglish or a shift into a local language can signal ease or trust. If a colleague moves into a warmer register, respond with clarity and warmth rather than matching stiffness to formality. When you need to correct or challenge, choose phrasing that lets the other person keep face: frame it as a question, offer options, or follow up privately.

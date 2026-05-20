@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Authority in Morocco is expected to be visible and clear. This expectation has deep roots: the French colonial administrative model concentrated decision-making at the top, and Islamic values reinforce the idea that supervisors have been chosen for their knowledge and experience. A manager who defers openly or appears uncertain will struggle to earn respect. Team members default to respectful silence unless explicitly invited to contribute, not because they lack ideas but because speaking up uninvited feels presumptuous. If you need collective input, signal it clearly and directly.
-
-The concept of *wajh* (face or honor) governs all professional interaction. Public criticism, even mild correction in front of others, causes serious and lasting damage to both the relationship and the manager's standing. Feedback must always be given privately. A colleague from a culture where direct feedback is expected quickly may see this as slow or evasive, while a Moroccan manager may read instant public correction as disrespectful and careless of the person's dignity.
-
-Morocco is a relationship-first culture, shaped by Arab and Berber traditions of hospitality and personal trust. Loyalty to a manager who shows genuine care for their people is strong and enduring. Investing time in personal connection before and alongside task management is expected, and people will go significantly further for managers they respect as individuals. Task-focused delegation without that foundation will feel transactional and fail to generate the commitment you need.

@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-In Benin, decisions are rarely made in isolation or at speed. Authority rests with senior figures, whether the manager in an office setting or an elder in a family business, but that authority is typically exercised through consultation, not unilateral pronouncement. Before a decision is finalized, those in charge will seek input from people they trust, often informally and across relationships built over time. This process ensures the decision fits not only the task at hand but also the social fabric around it. Relationships matter deeply in Beninese professional life, and a decision that disrupts harmony or overlooks key voices can undermine both the outcome and the standing of the person who made it.
-
-Managers often hold formal responsibility but will still circulate a question among trusted colleagues, ask for perspective from someone with local knowledge, or defer to a senior figure whose endorsement lends legitimacy. This dual practice, combining positional authority with relational groundwork, means that what looks like a delay may actually be the work of building alignment. For a colleague from a culture where decisions are made quickly and individually, this can feel slow or indirect. From a Beninese perspective, rushing a decision without consultation can seem reckless, even disrespectful.
-
-Flexibility is also woven into how decisions are implemented. Family obligations, community events, or regional considerations may reshape timelines or priorities after an agreement has been reached. This does not reflect a lack of commitment. It reflects a recognition that professional life exists within a broader set of relationships and responsibilities that cannot always be set aside.

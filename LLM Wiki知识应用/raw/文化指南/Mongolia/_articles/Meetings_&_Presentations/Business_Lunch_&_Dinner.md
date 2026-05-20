@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Sharing a meal in Mongolia often works as a relationship ritual rather than a meeting venue. Invitations to lunch or dinner are expected as part of building trust, and declining can be read as distancing yourself from the relationship. Meals create occasions for conversation to move beyond transaction, allowing people to assess character and continuity of intent. This becomes especially visible around Tsagaan Sar, the lunar new year, when meals are structured by ritual obligation and foods like buuz (dumplings) become vehicles for expressing respect, blessing, and family continuity across visits.
-
-The food itself reflects pastoral identity. Meat and dairy sit at the center of Mongolian cuisine, shaped by steppe livelihood where these were both sustenance and hospitality. Milk tea and airag (fermented mare's milk, strongly associated with summer) are offered as gestures of welcome and belonging, not simply preference. When receiving food or drink, use your right hand and keep sleeves rolled down to avoid exposing forearms. These gestures acknowledge respect and social order, especially when elders are present, where seating and serving order can quietly signal seniority.
-
-Toasting with vodka can be ceremonial, marking the occasion and honoring the guest rather than casual drinking. Declining to participate can disrupt the atmosphere of togetherness, so holding a glass and touching it to your lips, even without drinking, preserves the gesture. The rhythm of these meals tends to be unhurried, allowing conversation to unfold naturally rather than following a transactional agenda.

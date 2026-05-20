@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-For many Indian professionals, work is tied to something far larger than the individual. They may be the first in their family to enter a corporate or global setting, and the job becomes a lever for broader transformation: siblings' education, parents' comfort, and standing within the extended family and community. When motivation runs deep, it is often because the work supports a larger story of mobility and responsibility.
-
-This means that what motivates can be as much about narrative and prestige as compensation. The name of the company, the visibility of the project, and the story someone can carry into social settings ("I work on the London account," "I'm leading a global team") hold real weight. A manager who helps arrange a visa extension, supports flexible timing during a family crisis, or offers advice on school admissions can inspire loyalty that outlasts a pay rise. Indifference in those moments can quietly erode commitment, even when everything else is in place. In mixed teams, linking collaboration to a meaningful career trajectory, such as positioning someone as the team's go-to specialist on a particular region or account, can be a stronger motivator than framing the work as simply another task to complete.
-
-Expectations around hours and availability are shifting. Long days and late-night calls are still widely accepted, especially among those who see them as the cost of advancement. But in metros, and particularly among younger professionals, there is growing pushback and a desire for sustainable careers. Gender and family obligations add another layer: what one person can commit to may be different from what another can manage. When designing cross-border projects, it helps to discuss availability and workload openly, so that stretch assignments energize rather than deplete.

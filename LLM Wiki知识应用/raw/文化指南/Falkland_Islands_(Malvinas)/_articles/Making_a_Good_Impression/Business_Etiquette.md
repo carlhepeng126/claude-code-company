@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Business interactions in the Falkland Islands reflect the influence of British heritage combined with the practical realities of a small, close-knit community. Professionalism here is straightforward and unpretentious. People tend to get down to business without elaborate formalities, but that directness comes with an expectation of personal accountability. In a place where most people know each other, your reputation follows you. A handshake is standard when meeting someone, and eye contact is appreciated as a sign of sincerity. Dress codes are sensible rather than corporate: smart casual is typical, especially in Stanley, where most offices operate. Overly formal attire can feel out of place.
-
-Communication is clear and practical, shaped by a culture that values honesty and dislikes unnecessary complication. People will speak plainly about what they think, and they expect the same in return. That said, bluntness is softened by a sense of mutual reliance. In a small population where working relationships overlap with social ones, maintaining goodwill is quietly prioritized. If someone disagrees with you, they are likely to say so, but in a way that avoids creating lasting friction. For professionals accustomed to more layered or indirect styles, this can feel refreshingly efficient. For those from cultures where directness risks offense, it helps to understand that clarity here is a form of respect, not curtness.
-
-Punctuality is expected and taken seriously. Meetings generally start on time, and lateness without explanation is noticed. This reflects both British influence and the logistical constraints of island life, where schedules depend on limited resources and coordinated effort. If you are running late, a quick message is the right move.

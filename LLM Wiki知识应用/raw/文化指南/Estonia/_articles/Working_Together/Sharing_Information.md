@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Estonians place a high value on knowledge and expertise, and information tends to be shared readily when it serves a clear practical purpose. In professional settings, people expect to be kept in the loop on matters that affect their work, and transparency is generally seen as a sign of competence and respect. If a colleague asks a direct question, the default response is to give a straightforward answer. Withholding relevant information without reason can be read as inefficiency or poor collaboration. This directness reflects a broader cultural preference for clarity and functional communication over ritual politeness.
-
-That openness has its limits. Estonians typically share what is needed for the task at hand, not everything they know. There is little expectation of constant updates or socializing information for reassurance. If something does not directly concern a colleague or project, it may not be mentioned. This can feel withholding to people from cultures where information is shared proactively to build rapport or demonstrate inclusion. From the Estonian side, offering unsolicited detail can seem like unnecessary noise or a waste of time.
-
-Trust plays a quiet but decisive role. Estonians are more likely to share openly once they have established that a colleague is competent and reliable. Early in a working relationship, responses may be factual but measured. As trust builds through consistent delivery and mutual respect, the flow of information becomes more natural and less guarded. Demonstrating that you follow through on commitments and understand the work itself will accelerate that process more effectively than trying to cultivate closeness through frequent communication.

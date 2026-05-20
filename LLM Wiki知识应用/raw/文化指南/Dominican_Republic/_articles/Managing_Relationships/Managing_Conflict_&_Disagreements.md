@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Heated exchanges in the Dominican Republic can sound like serious conflict to someone used to more measured tones, but volume and animation do not automatically signal a breakdown. Colleagues can argue passionately, even loudly, without ending the relationship. What determines the damage is whether respect boundaries are crossed, particularly through insults or public humiliation. Raised voices might simply mean the topic matters, and once the issue is aired, people often return to warmth without holding a grudge. A colleague from a setting where calm equals professionalism might see this as poor control, while a Dominican colleague might read subdued disagreement as cold or disengaged.
-
-Conflicts do not always surface directly, especially when hierarchy is involved. Employees may avoid confronting a manager face to face and instead raise concerns through relatives, union representatives, or political contacts. This means a small workplace issue can escalate outside the organization before the manager even knows there is a problem. Creating trusted internal routes for raising concerns early, whether through a respected supervisor or an informal conversation, can prevent grievances from jumping levels unexpectedly.
-
-Public criticism, particularly in front of peers or subordinates, does lasting harm. Someone corrected this way may comply outwardly while quietly withdrawing cooperation or looking for ways to respond informally. Addressing performance or behavior privately protects dignity and keeps the working relationship intact, even when the message delivered is firm.

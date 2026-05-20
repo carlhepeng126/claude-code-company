@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional dress in Burkina Faso reflects a blend of respect for local tradition and the formality inherited from French colonial influence. In government offices, banks, and formal business settings, men typically wear suits with long-sleeved shirts and ties, while women choose tailored dresses, skirts with blouses, or business suits. The effort you put into your appearance communicates how seriously you take the relationship. Arriving well dressed signals that the meeting, and the people in it, matter to you. A colleague from a culture where business casual is the norm may find this level of formality unnecessary, while someone from Burkina Faso meeting a counterpart in jeans and a polo shirt may interpret it as a lack of seriousness or regard.
-
-Traditional clothing also plays a visible and valued role in professional life. Many people wear locally made garments such as the complet for men (a tailored shirt and trousers made from wax print or woven cotton) or the pagne for women (wrap skirts or dresses in printed fabric). These are worn across sectors and seniority levels, and choosing traditional dress for a meeting can be read as a gesture of cultural pride and respect. If you're invited to an event or celebration, wearing something tailored in local fabric will be noticed and appreciated.
-
-Dress codes are more relaxed in sectors like NGOs or creative industries, especially among younger professionals, but even here the standard leans toward smart presentation. In rural areas and during informal gatherings, expectations soften further, though modesty remains consistent. Keep shoulders and knees covered, especially when visiting religious or community sites. These adjustments show awareness and build trust without requiring elaborate preparation.

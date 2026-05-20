@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Punctuality in Belarus reflects the country's Soviet administrative legacy, where schedules and planning cycles were tied to centralized control and industrial output. That inheritance shaped workplace expectations around time in enduring ways. Meetings generally start close to the scheduled time, particularly in formal settings or when hierarchy is visible, and delays without explanation can be read as disrespect for the person waiting. Yet this attention to the clock does not mean decisions move quickly. Time is allocated to process, consultation, and the building of sufficient internal alignment before anything is committed.
-
-Deadlines are taken seriously once agreed, but they are rarely treated as immovable if circumstances shift or if relationships require attending to first. In state-linked organizations or larger enterprises, timelines can stretch when approvals must pass through multiple layers or when informal networks need to be activated behind the formal structure. A colleague from a culture where decisions are made quickly may read this as inefficiency, while a Belarusian counterpart may view rapid closure without sufficient input as reckless or superficial.
-
-Flexibility around timing increases in smaller, more relational settings, where trust and continuity matter more than rigid adherence to a schedule. If a meeting runs long because a relationship is being deepened or a concern addressed, that extension is not seen as lost time but as investment. Understanding this distinction helps avoid the assumption that a delayed start or a longer discussion means disorganization. It more often reflects a prioritization of thoroughness and relational groundwork over speed.

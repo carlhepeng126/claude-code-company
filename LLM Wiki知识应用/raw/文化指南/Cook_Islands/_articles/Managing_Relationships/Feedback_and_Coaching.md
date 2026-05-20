@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-The Cook Islands workplace runs on relationships, and feedback follows that same relational logic. Direct criticism, especially in front of others, risks damaging the trust and respect that hold teams together. Managers and colleagues prefer to guide gently, often through conversation that feels more like shared reflection than formal assessment. A senior staff member might share a story from their own experience or describe how someone else handled a similar situation, leaving the listener to draw their own conclusion. This approach protects dignity while still offering direction.
-
-Privacy matters deeply when feedback addresses something that needs to change. Taking someone aside for a quiet word, rather than raising an issue in a meeting, shows respect and helps maintain the person's standing within the group. Public praise, by contrast, is generally welcome and reinforces team cohesion, though it should feel sincere and grounded in real contribution rather than performative.
-
-Formal review systems can feel impersonal in a context where people value warmth and human connection. Written ratings or structured forms may be seen as too rigid, lacking the context and care that come through face-to-face exchange. A colleague from a culture where documentation and transparency drive performance management might expect regular written feedback, while a Cook Islands colleague may prefer ongoing, informal check-ins that acknowledge the whole person, not just their output. Understanding this difference helps both sides recognize when feedback is being given, even if it doesn't follow a familiar format.

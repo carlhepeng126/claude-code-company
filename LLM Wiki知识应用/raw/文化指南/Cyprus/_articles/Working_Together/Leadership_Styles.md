@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Cyprus blends formal hierarchy with a relational style rooted in the island's tight-knit social fabric. Managers are expected to assert authority, but not from a distance. They take a personal interest in their people, often checking in on family life, celebrating shared milestones, and showing concern beyond the task at hand. This approach reflects the importance of interpersonal trust in Cypriot culture, where business and personal relationships are deeply intertwined. A leader who remains distant or purely transactional may struggle to build the loyalty needed to motivate a team effectively.
-
-At the same time, decision-making tends to be top-down. Leaders consult, but they retain final control. Input is welcomed and may be genuinely considered, but there is rarely an expectation that the manager's view will be overturned by consensus. Inviting feedback before deciding is a way to maintain cohesion and show respect, not necessarily to redistribute authority. For colleagues from cultures where consultation implies shared ownership of the outcome, this can feel unclear or even performative. From the Cypriot side, insistence on equal voice in decision-making may come across as undermining the manager's role or ignoring the relational work already done.
-
-This style shows up most strongly in family-run businesses, which dominate the private sector. The patriarch or matriarch often holds visible control, and respect for seniority is embedded in how teams operate. In larger multinationals or younger companies, leadership may be more collaborative, but the expectation of personal connection remains.

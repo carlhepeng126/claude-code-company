@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Bosnia and Herzegovina, how you address someone depends on the relationship, the setting, and whether the interaction is written or spoken. Formal titles paired with surnames are standard in most professional and first-time encounters. Colleagues typically use "Gospodin" (Mr.) or "Gospođa" (Mrs.) followed by the last name until familiarity grows or an invitation to use first names is offered. Academic and professional titles such as "Doktor" or "Profesor" hold genuine social recognition and should be used where they apply. Skipping them can come across as dismissive, particularly with senior figures or in public-sector roles.
-
-The shift to first names happens gradually and often reflects more than familiarity. It can signal trust or the easing of formality within a team, but it tends to follow rather than lead the development of the relationship. International colleagues who move quickly to first-name terms may find this perceived as overly casual or presumptive, especially if hierarchy or age differences are present. Conversely, colleagues from Bosnia and Herzegovina working in environments where first names are immediate may interpret this as a lack of respect for professional distance, even when none is intended.
-
-Written communication holds more formality than spoken exchanges. Emails to senior colleagues or external partners should open with a proper title and surname, and closings like "S poštovanjem" (With respect) are expected. Even in routine messages, maintaining this structure shows attentiveness to the relationship. Dropping formality too soon in writing can feel jarring, as the written word is seen as more enduring and therefore more deserving of care.

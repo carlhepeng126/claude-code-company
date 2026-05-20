@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In Zambia, the quality of feedback is measured by how it protects dignity. Public criticism, even when technically correct, can harm someone's standing in a workplace where memory is long and networks are tight. People judge correction less on accuracy than on whether it treats the person with respect. This is why private conversation is usually the starting point for any difficult message.
-
-Hierarchy influences who can offer correction and how it will land. Seniority gives feedback a sense of legitimacy and safety. A comment from a senior colleague may be heard as guidance, while the same words from a peer might be taken as overstepping. In day-to-day life, people often soften their phrasing or move sensitive points into private counsel rather than risk causing offense in front of others. The insaka tradition, rooted in communal discussion and wisdom-sharing, reinforces this approach. Feedback works best when it feels like supportive counsel rather than exposure.
-
-Tone also registers as a reflection of character. Zambia's Christian-nation framing brings a widely shared moral vocabulary into the workplace, and harshness can feel not just unhelpful but out of place. Observation-first language, followed by practical next steps, is far more effective than assessments that could be read as judging someone's character. Coaching should include follow-up, resources, or other visible support so that the conversation feels like care, not blame. Leave room for response without pushing for an immediate reply. The goal is to invite reflection, not demand defense.

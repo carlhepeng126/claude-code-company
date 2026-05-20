@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Heard Island and McDonald Islands has no permanent population and no independent workplace culture. The territory is an uninhabited Australian external possession in the southern Indian Ocean, governed under strict environmental protection protocols. Human activity is limited to occasional scientific research expeditions conducted under Australian Antarctic Division oversight.
-
-Decision-making processes in this context are shaped entirely by the visiting research teams, whose members typically come from Australian institutions or international collaborators working within Australian regulatory frameworks. Decisions about fieldwork, safety protocols, and environmental management follow the institutional and national norms of the organizations involved, not locally evolved practices. These are usually consensus-driven or hierarchical depending on the expedition structure, and decisions are made before arrival or adapted quickly in response to extreme weather and logistical constraints.
-
-For professionals involved in coordinating or supporting research activities linked to the territory, the practical reality is that decision-making sits entirely outside the islands themselves. Approvals, risk assessments, and operational choices are managed remotely from Hobart or Canberra, where Australian government and research bodies hold authority. Understanding this means recognizing that there is no local stakeholder voice to consult, no resident community whose input shapes outcomes, and no cultural expectations to navigate beyond those of the expedition members and their home institutions.

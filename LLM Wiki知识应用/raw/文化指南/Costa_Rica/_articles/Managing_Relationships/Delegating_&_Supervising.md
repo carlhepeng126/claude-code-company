@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Costa Rica's political history shapes its workplace culture in unusual ways. The country abolished its army in 1948, built one of the region's most stable democracies, and developed a strong middle class that values equality and personal dignity. This democratic instinct shows up in how teams work: Costa Ricans genuinely expect to contribute, to have their expertise recognized, and to participate in decisions. Unlike in more hierarchical Latin American contexts, delegation here works best when framed as an invitation to collaborate rather than a top-down instruction. Inviting input and facilitating group problem-solving will generate real engagement, while directive styles that bypass consultation can feel culturally jarring.
-
-At the same time, the cultural concept of pura vida, which reflects an orientation toward harmony and wellbeing over competitive achievement, means that schedules and deadlines are treated more flexibly than in cultures where time is tightly structured. A manager from a culture where deadlines are fixed and non-negotiable may interpret this as lack of commitment, while Costa Ricans may read rigid deadline enforcement without relationship investment as cold or dismissive. When timing genuinely matters, explain why it matters to the team and how it fits the larger goal. Context and relationship motivate action more reliably than the deadline alone.
-
-Costa Ricans also expect openness across levels. A mail room worker may approach a vice president directly if they have something to discuss, and this reflects the same egalitarian reflex that shapes delegation. Supervisors who remain accessible and communicate clearly across the hierarchy will find this openness a genuine asset, not a challenge to authority.

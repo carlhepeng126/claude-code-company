@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Irish commercial relationships rest on reliability and warmth in equal measure. Trust is built through consistent delivery and sustained personal contact, a pattern shaped by long-standing reliance on reputation and word-of-mouth in trade networks both at home and across the diaspora. Overpromising damages credibility quickly, while fulfilling commitments, even small ones, builds goodwill that carries across years. A supplier who delivers on time and stays responsive to questions will often be chosen over one offering a lower price but less certainty.
-
-Regular human contact keeps relationships alive. A quick phone call to check in, or meeting in person when you're nearby, demonstrates that the relationship extends beyond the transaction. Hospitality plays a role here too. Offering tea during a visit, or accepting an invitation to lunch, expresses genuine interest in the person and not just the contract. These moments create space for honest conversation and help smooth over the inevitable complications that arise in any business relationship.
-
-Ireland's role as a hub for multinationals means customers and suppliers expect professional standards alongside relational warmth. Branding, clear communication, and prompt after-sales support all influence buying decisions. When something is urgent, say so directly. A more relaxed sense of timing can lead to misunderstandings if priorities are left implicit. In rural settings, relationships may develop more slowly and formality may be lighter. In urban or multinational contexts, the pace tends to be faster, but the expectation of personal connection remains.

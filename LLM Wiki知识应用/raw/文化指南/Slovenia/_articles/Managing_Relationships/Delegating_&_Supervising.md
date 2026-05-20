@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Slovenian managers are expected to delegate work clearly and with professional precision. Roles and responsibilities should be well defined, not left open to interpretation. This preference for structure reflects both the influence of Austrian and Central European organizational models and a cautious approach to risk that runs through much of post-communist workplace culture. Employees want to know what is expected, by when, and within what parameters. Ambiguity creates anxiety rather than creative freedom. Instructions should be detailed enough that people know they are working within an established framework, and managers who provide this clarity demonstrate competence through the quality of their planning.
-
-Team input is welcome, but it needs to be invited and framed. The Yugoslav self-management system left a genuine familiarity with collective discussion, and Slovenian employees expect their skills to be recognized and used appropriately. However, this does not mean decisions should be left entirely open. Without clear facilitation, discussion can stall. A manager from a culture that values speed and decisive leadership may read this as slow or overly cautious, while Slovenian colleagues may find a faster, top-down approach thin on rationale and disconnected from the expertise in the room.
-
-Supervision should be consistent but not overbearing. Feedback is most effective when given privately to avoid loss of face, and any shift in process or direction should be introduced with a solid rationale, not on trust alone. Change needs evidence, and continuity has value. Younger employees may be more individually ambitious, but even here, recognition works best when it respects the broader team structure.

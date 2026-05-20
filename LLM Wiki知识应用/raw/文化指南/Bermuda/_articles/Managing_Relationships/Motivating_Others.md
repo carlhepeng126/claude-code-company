@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Bermuda often comes from a blend of financial recognition and personal acknowledgement, but the balance between the two can shift depending on where someone works and what stage of life they are in. In professional settings, salary and benefits are expected to reflect the island's high cost of living, and people will move roles if compensation falls short. At the same time, a manager who takes the time to thank someone directly, or who highlights a job well done in front of the wider team, strengthens engagement in ways that a bonus alone may not. Recognition works best when it is specific and timely, not saved for an annual review.
-
-Bermudians value stability and a sense of belonging within their workplace. Long-term commitment tends to grow when people feel their role has meaning and when they see clear paths for development, even if those paths are not always fast-moving. Younger professionals, particularly those in international business or finance, may be drawn to opportunities for training or short-term assignments abroad. In other sectors, or among those with deeper local roots, the desire for a steady position within a respected organization can be just as strong as ambition for rapid advancement.
-
-Tight deadlines and rigid targets can dampen rather than drive effort, especially when they come without context or consultation. Bermudians generally prefer a collaborative approach to goal-setting, where there is room to adjust timelines if circumstances change. A manager who builds in flexibility and explains the rationale behind a deadline will see better follow-through than one who simply imposes it from above.

@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Guinea follows a clear script rooted in respect and reciprocity. Arriving with kola nuts, sugar or tea when visiting a village, and allowing time for greetings and conversation before any business, shows you understand the social order. Rushing the encounter or arriving empty-handed suggests you see people as transactional, which damages trust before you begin. Calling ahead and bringing something small applies in urban professional settings too. Accepting at least a little food or drink, even if you are not hungry, acknowledges the effort your host has made. Refusing entirely can feel like a rejection of the relationship itself.
-
-Sharing a meal often means eating from a communal platter of rice and sauce. Hosts typically guide the best pieces towards guests, and how you respond is noticed. Taking no food or appearing visibly uncomfortable can suggest discomfort with the people, not just the style of eating. Following your host's lead, showing appreciation verbally, and eating even modestly demonstrate respect. In Muslim households, men and women may eat separately, and alcohol will not be offered by observant hosts. Business talk generally waits until after the meal, if it happens at all. The meal itself builds the relationship, which is the foundation for any work that follows.
-
-Women often cook and serve but may not sit at the main table. Greeting them directly, thanking them by name, and treating them as integral rather than invisible reflects well on you. They watch how you behave, and their assessment shapes how your host perceives you. When hosting Guinean colleagues yourself, include gestures that feel homely: proper food, unhurried conversation, and a family-friendly tone. A rushed formal meal in a conference room can read as cold or performative, especially to someone accustomed to hospitality as a relational practice, not a calendar item.

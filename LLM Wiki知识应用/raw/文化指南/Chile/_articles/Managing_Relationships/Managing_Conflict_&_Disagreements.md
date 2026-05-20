@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Disagreement in Chile is rarely aired openly. Direct confrontation is seen as rude and socially damaging, so people who feel wronged often withdraw, slow their cooperation, or stop volunteering ideas rather than raise an issue aloud. That silence is not acceptance. It is passive resistance, a signal that something has gone unaddressed. When a team stops sharing informal updates or tasks take longer than usual without explanation, the underlying cause is often a grievance that nobody felt safe enough to voice.
-
-Small complaints should be taken seriously. They are often tests of whether it is safe to raise larger concerns without escalating to formal channels. In many sectors, serious conflicts quickly take on legal or union dimensions. Even when a lawyer or union representative has not yet appeared, employees are already thinking about what those actors would say if the situation worsens. If informal resolution paths feel credible and fair, employees are less likely to escalate. If they do not, the conflict may jump straight to formal grievance or, in extreme cases, to a funa, a public denunciation on social media or in the street. Most people do not want to reach that point, but they will if formal channels have failed.
-
-When conflict does surface, handle it quietly and one-on-one. Involving a whole team in what should be a private conversation feels humiliating and can shut people down permanently. Addressing underlying issues early, before they turn into passive resistance or formal complaints, keeps channels open and trust intact.

@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Guinea trace a double path. Formal authority rests at the top, often in Conakry, but real commitment depends on whether regional power-brokers, local communities, elders, and other trusted figures feel consulted. A signed directive may stall or shift if prefects, mayors, or company liaisons haven't brought the proposal to marabouts, former rebel figures, military contacts, or other informal advisors whose backing gives a decision local legitimacy. This is especially true in the Forest region and mining corridors, where community and religious leaders hold influence that no letterhead can override. If you're waiting on a decision that seems delayed, the person across the table may be completing a round of consultations you cannot see.
-
-This pattern reflects both hierarchy and relationship. Senior figures hold the final say, and their approval is essential before anything proceeds. At the same time, the decision is shaped by a web of kinship, tribal affiliation, and personal trust that can reorder priorities or reshape the final outcome. A proposal that looked straightforward at the start may end up quite different once these layers have been worked through. This is neither evasion nor inefficiency; it is how decisions gain the social foundation they need to hold beyond the meeting room.
-
-Guinea's history of abrupt breaks, from 1958 onward through coups and sudden policy shifts, has made many professionals wary of sweeping overnight change. Stepwise proposals that allow people to test the waters and adjust course tend to meet less resistance than total transformations presented as complete packages. If you frame a major initiative as phased, with built-in feedback loops, you align with how people here actually build confidence in a new direction.

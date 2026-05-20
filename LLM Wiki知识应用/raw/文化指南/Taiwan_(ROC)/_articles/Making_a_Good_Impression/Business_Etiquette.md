@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Politeness and careful attention to face shape every interaction in Taiwanese business life. This flows from Confucian social order, which values hierarchy, self-control, and above all, protecting others from embarrassment. To openly challenge someone, especially in front of colleagues, risks damaging the relationship in a way that may be impossible to repair. When disagreement arises, soften your language and save critical feedback for private settings where face can be preserved on both sides.
-
-Taiwanese business culture blends Asian formality with a distinctive warmth. Communication is high-context and implicit, so pay attention to what isn't said. A pause, a shift in tone, or a polite deflection often signals hesitation or disagreement without stating it directly. Someone from a culture where feedback is delivered quickly and explicitly might read this indirectness as evasiveness. From the Taiwanese perspective, bluntness can feel disrespectful, as though the relationship itself doesn't warrant care. Maintain an upright posture, avoid prolonged eye contact, and keep physical contact minimal outside close relationships. Staring too long or touching someone while speaking can seem intrusive in a society where privacy is valued even in crowded conditions.
-
-Small gestures of respect register strongly. Let senior figures speak first and listen without interrupting. Express appreciation for time, hospitality, or effort. These gestures align with cultural norms rooted in gratitude and ritual, drawn from temple culture and ancestor rites. Business cards remain central to establishing context and rank. Present and receive with both hands, showing you offer your full attention. Include your title and a Mandarin translation on the reverse, ideally in raised gold. Avoid red ink, which signals protest, and never slip a card into your back pocket.

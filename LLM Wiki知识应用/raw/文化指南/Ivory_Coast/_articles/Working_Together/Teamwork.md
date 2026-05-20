@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Ivoirians often work well together when teams are assembled with an awareness of social context. Tribal affiliations exist but can be managed professionally — mixing groups is common and usually works smoothly, but staying aware of local political currents and watching for any underlying tension helps avoid surprises. The more immediate challenge is that teams often look to their manager for clear direction and decisions. Schooling in Ivory Coast has not always emphasized independent problem-solving or lateral thinking, so team members may wait for guidance rather than take initiative. A manager who expects self-direction without first providing structure may find the team hesitant or unsure how to proceed.
-
-Leadership style shapes how teams function. A manager is expected to be calm, kind, and experienced — someone who demonstrates expertise and takes personal responsibility for the wellbeing of the team. This includes emotional awareness. Ivoirians can be expressive and high-spirited in group settings, and a good manager learns to distinguish between lively conversation and genuine upset. Charisma and openness also count. Younger, ambitious professionals in particular may see their manager as a mentor, someone who offers knowledge as well as direction.
-
-Feedback should reflect this relational approach. Public recognition works best when it acknowledges the team as a whole rather than singling out individuals, preserving group harmony. Criticism, by contrast, should be given privately and framed with care to avoid embarrassment. A manager who corrects someone bluntly in front of others risks damaging trust and morale in a way that lingers beyond the moment.

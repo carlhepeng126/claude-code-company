@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-The leader people admire in Cambodia looks like a benevolent patron. This means someone who provides opportunities, steps in during family emergencies, protects the team from arbitrary punishment by higher authorities or clients, and is visible in the community through donations or religious offerings on behalf of the organization. The expectation goes beyond professional competence. A leader who is technically skilled but distant, or who pushes targets downward without standing up for staff, will struggle to build loyalty. If you lead a Cambodian team, defend them when needed and show that your authority exists to protect, not just extract.
-
-Public generosity is watched closely. Leaders who donate visibly, help with hospital costs, or grant time off for ceremonies are remembered for years. This does not mean losing control. There is respect for leaders who run a tight operation behind the scenes while being generous in public. What undermines trust quickly is hoarding benefits or humiliating staff, both of which become widely known. Small, well-timed acts of support build credibility in ways that formal performance reviews alone cannot.
-
-After decades of war and regime change, many Cambodians prize stability over rapid transformation. Leaders who push aggressive restructuring without clear safety nets can trigger quiet resistance or fear, even if the stated goal is efficiency. If you are introducing change, frame it in terms of increasing security for families, jobs, and reputation, and move at a pace that allows people to see the ground beneath them. A leader from a culture where speed and disruption are valued may read this caution as reluctance. A Cambodian colleague may read the pressure to move fast as recklessness that ignores hard-won stability.

@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Zimbabwe functions as a moral act and a relational test. Hosts will extend themselves considerably, often beyond visible means, to welcome a guest. Receiving this generously — accepting tea or food with warmth and without hesitation — affirms the host's effort and dignity. Refusal can be read as distancing or disrespect unless delivered with clear relational warmth. This can feel unfamiliar to a colleague from a culture where declining food or drink is expected to be polite or uncontroversial. From a Zimbabwean perspective, that refusal may undercut the relational foundation being offered. Equally, a Zimbabwean guest in a setting where minimal hospitality is extended may interpret that brevity as coolness or lack of regard, even where none was intended.
-
-Good guesting means protecting the host's pride. Appreciation should never sound like evaluation. Comments on the home, food, or visible circumstances should convey gratitude, not appraisal of means or choices. This becomes especially important where economic inequality is present and dignity is carefully maintained. Expect variation across settings: urban professional households, rural family homes, and faith-based contexts each hold different norms around food, gender roles, and alcohol. People navigate these shifts fluidly; there is no single template.
-
-Reciprocity is measured through presence and continuity, not scripted thank-yous or one-off gestures. Returning, checking in, and showing up at important moments — including times of loss — build trust over time. These rhythms, which often mobilize wide networks, reflect a worldview where relationships extend across time and circumstance. Participation in or sensitivity around solemn moments can affect long-term cooperation and access in ways that transactional follow-up cannot repair.

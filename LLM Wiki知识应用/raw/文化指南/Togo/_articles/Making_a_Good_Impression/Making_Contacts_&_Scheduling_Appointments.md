@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Building a business contact in Togo begins with establishing trust through personal connection. The country's strong oral tradition and extended family networks mean that relationships come before transactions. People want to know who you are and who can vouch for you before moving to business. A warm introduction from a mutual contact opens doors far more effectively than a cold email or phone call. In practice, this might mean asking a colleague or local partner to arrange an informal meeting first, or being invited to share a meal before any formal discussion takes place.
-
-Once an introduction is made, expect the early conversations to move slowly. Questions about your background, your organization, and your connections help build a sense of who you are. This is how credibility is established. For someone from a culture where appointments are scheduled quickly and agendas are sent in advance, this phase can feel inefficient. From a Togolese perspective, rushing to business before the relationship is secure suggests you may not be committed for the long term.
-
-When scheduling meetings, plan ahead but stay flexible. Appointments should be set at least a week in advance and confirmed the day before, ideally by phone. Avoid tight schedules. Meetings may start late, expand to include others, or shift direction as priorities emerge. In Lomé and other urban centers, younger professionals in international firms may move more quickly and respond well to email. In smaller towns and rural areas, face-to-face contact and personal intermediaries remain essential, and patience with timing is expected.

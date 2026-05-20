@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-In Guinea, rice with sauce defines what counts as a real meal. Bread, sandwiches, or snacks fill gaps during the day, but they don't register as proper food in the way rice does. The sauce varies by household and occasion — leafy greens, peanut, fish, or meat — but rice remains the foundation. If you're hosting a business lunch and serve only lighter dishes or Western-style sandwiches, your Guinean colleagues may be polite but will likely go home to eat again. To show respect and understanding, include a substantial rice-based dish as the centerpiece of any formal meal.
-
-Religious rhythms shape when and what people eat. During Ramadan, daytime meals disappear entirely, and evenings become the main occasion for food and connection. Iftar, the meal that breaks the fast at sunset, can be a meaningful moment to join colleagues if you're invited and approach it respectfully. Major Islamic holidays like Tabaski bring heavy family commitments and meat-centered feasts. Scheduling events during these periods or expecting availability on short notice will put colleagues in a difficult position.
-
-Hierarchy also runs through how meals are served. At more formal gatherings, elders and senior figures are typically served first and receive better cuts of meat. Younger colleagues wait their turn and watch the order unfold. If you're organizing a buffet or suggesting that everyone help themselves at the same time, you may unintentionally flatten a structure that holds social meaning. Let your Guinean hosts manage the serving order rather than imposing a different style in the name of informality.

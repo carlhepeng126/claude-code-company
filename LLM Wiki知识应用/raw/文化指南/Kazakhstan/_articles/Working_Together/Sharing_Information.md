@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-In Kazakhstan, information-sharing often begins carefully. Decades of Soviet bureaucracy left a cautious reflex about going on record, particularly when what you say might be traced back to you. In a society where reputation and network standing matter deeply, people think through what they share in group settings. If something might imply blame, reveal incompetence, or create awkwardness within a team, it may be held back or softened. The instinct to avoid being "the one who wrote it" runs quietly in the background, particularly when the topic is sensitive or the outcome uncertain.
-
-Language choice can quietly signal what kind of conversation is taking place. Kazakh and Russian each bring different registers to the table. Russian often handles technical or formal exchanges, while Kazakh can convey warmth and relational closeness. Colleagues may switch languages mid-conversation to adjust tone without naming the shift. A colleague from a culture where all work discussion happens in one shared language might miss the cue, while the Kazakh counterpart may read a refusal to adjust register as a lack of relational sensitivity.
-
-Information sometimes stays within teams rather than flowing freely across departments. This keeps risk contained and avoids exposing problems before they are solved. One-on-one updates, draft notes, and private check-ins give colleagues a chance to share openly without public attribution. Being clear about what is confidential and what can be passed on helps people know when it is safe to speak. Trust grows when you demonstrate reliability and discretion first, and reciprocate with your own openness over time.

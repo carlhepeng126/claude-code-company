@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-In a country shaped by frequent typhoons, earthquakes, and volcanic activity, contingency thinking is woven into daily life. Rescheduling is common, last-minute changes are expected, and plans are held lightly. This is lived experience rather than disorganization. When a storm shuts down roads or floods a city, people adapt without drama. Colleagues accustomed to this environment tend to build flexibility into their schedules by habit. For someone working with a Filipino team from a culture where deadlines are fixed and changes feel disruptive, this fluidity can feel uncertain. From the other side, rigid adherence to a timeline when conditions have shifted can come across as inflexible. Treating rescheduling as neutral and practical, rather than a setback, helps collaboration stay grounded.
-
-Many Filipino families have relatives working overseas, and coordinating across time zones is familiar. Teams often find asynchronous communication feels natural rather than awkward. Recorded updates, voice notes, or brief written summaries allow work to continue without requiring everyone to be online at the same moment. This approach supports both local rhythms and global collaboration.
-
-The Catholic calendar shapes the year in visible ways. Holy Week and the Christmas season are not just holidays but periods when travel slows, offices thin out, and family commitments come first. Local fiestas add another layer, especially outside Metro Manila. Scheduling around these periods, offering meeting options rather than fixed slots, and confirming closer to the date all make coordination smoother. A bit of buffer time during these weeks allows space for what people value most.

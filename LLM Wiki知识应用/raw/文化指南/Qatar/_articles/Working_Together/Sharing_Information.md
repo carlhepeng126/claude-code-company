@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Warmth and openness are not the same thing in Qatar. Hospitality may be generous and immediate, but personal information flows along lines of trust that take time to form. The majlis tradition embodies this balance: it welcomes guests into a defined space while protecting the inner life of the household. In professional settings, the same principle applies. Early conversations tend to be purposeful and respectful rather than disclosing. Colleagues who equate surface friendliness with full candor may misread this reserve as evasiveness. From the Qatari side, colleagues who share personal details quickly can come across as lacking discretion or awareness of boundaries.
-
-Language shapes what can be shared and with whom. Arabic is the official language, but English often serves as the practical bridge in mixed teams. That shift can alter not just vocabulary but tone, formality, and how much someone is willing to say. In rooms where multiple nationalities and employment statuses meet, some people carry more risk than others. Migrant workers, whose residency depends on sponsorship, may share information more cautiously than citizens or senior expats. This variation is structural, and ignoring it can put individuals in exposed positions.
-
-Building trust happens through consistency and courtesy, not through premature disclosure. The ritual of Arabic coffee, served in a particular order with specific gestures, communicates regard without requiring anyone to open up personally. In mixed environments, choose language deliberately and avoid putting colleagues in situations where speaking could feel unsafe. Let credibility develop through reliability and respectful engagement rather than pressing for personal information as a shortcut to connection.

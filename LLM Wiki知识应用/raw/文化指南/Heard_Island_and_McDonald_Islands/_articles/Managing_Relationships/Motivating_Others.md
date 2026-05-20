@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Heard Island and McDonald Islands is an uninhabited Australian external territory in the sub-Antarctic, home to no permanent population and no workplace culture of its own. The islands are visited only by occasional scientific research teams, typically Australian, who work under the norms and motivations of their home institutions rather than any locally developed professional environment.
-
-For the small number of researchers who do travel to Heard Island and McDonald Islands, motivation is shaped by the extreme isolation and challenging conditions. Teams are drawn by the opportunity to contribute to glaciology, volcanology, or biodiversity research in one of the world's most remote and pristine environments. The work itself, and the chance to be part of rare fieldwork, tends to drive engagement more than formal recognition or career advancement. Collaboration is close and practical, shaped by shared reliance in a harsh setting where weather can change plans quickly and where every team member's contribution affects the group's safety and success.
-
-Because there is no resident workforce, there are no established local practices around recognition, incentive structures, or long-term professional development tied to the territory itself. Any manager leading a team bound for Heard Island and McDonald Islands would do well to focus on clear communication, shared purpose, and flexibility in the face of environmental unpredictability. Motivation here comes from the mission, the landscape, and the knowledge that the work being done cannot easily be replicated elsewhere.

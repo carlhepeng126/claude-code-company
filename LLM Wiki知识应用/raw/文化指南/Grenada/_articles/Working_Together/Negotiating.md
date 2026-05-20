@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiations in Grenada unfold at a relational pace. The goal is not only to agree terms but to establish whether the relationship itself will hold. Early conversations may circle around background, mutual contacts, or how the project might benefit the wider community before narrowing in on price or timeline. A counterpart who seems to be taking time is often assessing trust and fit, not delaying for effect. If you move straight to contract language without building rapport first, the discussion may stall or feel transactional in a way that raises doubt.
-
-The process rarely follows a linear path. A point you thought was settled may resurface later, or the conversation may shift unexpectedly to a seemingly unrelated topic. This reflects a preference for testing ideas from multiple angles and making sure everyone involved has been heard. It also creates room for consultation, particularly with senior figures whose approval may be needed even if they are not in the room. A colleague from a culture where decisions are made quickly and sequentially may read this as indecision or backtracking. From a Grenadian perspective, the willingness to revisit and refine is what builds confidence that the final agreement will hold.
-
-Leaving space for movement is practical. Presenting your best offer at the outset can box you in, because some back-and-forth is expected as part of finding common ground. Concessions are not seen as weakening your position but as a sign you are willing to work with the other side. If the pace slows noticeably, it may mean your counterpart is waiting for a better term or needs time to consult. Either way, pressing for closure too soon can backfire.

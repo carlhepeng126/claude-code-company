@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Delegation in Ivory Coast works best when paired with presence. Employees typically expect clear direction and ongoing guidance rather than broad autonomy. This preference reflects a workplace culture where mentorship and trust are built through consistent interaction, and where authority is understood through relationship rather than title alone. A manager who delegates a task and then steps back may find the work stalls or takes unexpected turns, because the absence itself creates uncertainty about priorities and approval.
-
-The approach to time and workflow is rooted in a relational view of the office. Colleagues are often treated as extended family, and the workday accommodates funerals, family events, and unannounced visitors. Deadlines are acknowledged but rarely drive the rhythm of the day in the way they might in cultures where time is tightly scheduled. A manager from a context where deadlines are firm commitments may read this as inefficiency or lack of urgency. An Ivoirian colleague may in turn see the insistence on speed and uninterrupted focus as cold or disconnected from the realities of life. When setting a deadline, state it clearly and follow up regularly, but avoid framing the follow-up as distrust. It's a form of engagement, and it clarifies what truly matters.
-
-People tend to be cautious about change and new approaches, so introducing a different way of working requires explanation and time. Pushing too hard or rewarding speed over relationship can lead to quiet resistance. Supervision here means staying close enough to guide, not just to monitor.

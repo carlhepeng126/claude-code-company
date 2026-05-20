@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Mauritian food culture is a lived archive of the island's plural origins. Dishes like dholl puri and gateaux piments (deep-fried split pea balls spiced with chili) function as shared social language across communities. At the same time, biryani, curries, and festival foods can be tied closely to specific religious and community calendars. The table often reveals this coexistence: halal requirements, vegetarian practices, and varied comfort levels with alcohol can sit within one social circle. Inclusion is negotiated through careful restaurant and menu choices, not through explicit discussion. When hosting or selecting a venue, check options in advance and consider dietary practices as identity markers rather than simple preferences.
-
-Hospitality often expresses itself through abundance and repeated offering. Declining too quickly or refusing everything can be read as rejecting the relationship rather than the food. Accepting something, even modestly, helps build connection. This is especially true when the meal is less about efficiency and more about time spent together. Lingering after the meal is common and can be where trust and ease form, particularly across difference.
-
-Rice and noodles anchor most dishes, often served with rougay, a spicy tomato-based sauce, or vindaye, a mustard and vinegar preparation typically paired with fish. Chinese-influenced noodle soups, Indian rotis, and French-inspired desserts can appear in one meal. Street food, or gajak, is a national ritual and a common way to share lunch during the workday. Local beer and rum are widely available, and imported French or South African wines are often served at formal business meals as a gesture of regard.

@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Croatia's workplace culture has been shaped by multiple overlapping systems: Habsburg administration, Yugoslav socialist self-management, the war of independence in the 1990s, and EU accession. The Yugoslav era in particular left a specific imprint. While self-management gave workers theoretical say, in practice collective compliance and keeping a low profile were survival strategies. Older employees may still default to caution and avoid acting outside their defined role, a legacy of an era when stepping beyond your remit could have real consequences. This means that explicit encouragement is often needed before someone will take initiative, especially if the request sits outside the usual boundaries of their position.
-
-Croatian employees are fiercely proud of their competence, their national identity, and their professional reputation. Public criticism or visible correction is taken personally and will damage both the relationship and the person's willingness to perform. Feedback that protects dignity works differently here. Open with something genuine to acknowledge before raising the correction. This is the culturally correct way to address the behavior while keeping the working relationship intact, and it reflects the relational foundation on which Croatian workplaces operate.
-
-Loyalty to the in-group runs deep. If you build genuine personal rapport with Croatian colleagues, the work ethic and dedication you unlock is considerable. Croatians who trust their manager will work extremely hard and go well beyond formal expectations. But that loyalty is earned through consistent respect, not assumed through title. A foreign manager may face initial skepticism, not out of hostility but because competence and commitment must be demonstrated before full trust is given.

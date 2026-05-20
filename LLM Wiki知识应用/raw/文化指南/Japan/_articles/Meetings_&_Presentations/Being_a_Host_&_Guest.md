@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Japanese hosting follows a recognizable sequence: greeting at reception, escorting to the meeting room, serving tea, walking guests back to the elevator. This script reflects a deeper priority: avoiding any moment where the guest might feel confused or embarrassed. The formality is a form of care, designed to anticipate need before it has to be voiced. As a guest, following the script closely reassures your host that nothing has gone wrong. Accept tea even if you're not thirsty, follow where you're led, and show appreciation for the small arrangements. When hosting Japanese colleagues yourself, plan the whole journey, including reception signage, escorting, and elevator farewells. These details communicate attention and respect more clearly than the meeting content alone.
-
-Gift-giving plays a specific role. Omiyage (small regional sweets or branded treats) function less as souvenirs and more as relational messages: we thought of you, we know where we come from, we understand your position. The emphasis is on appropriateness and symbolism rather than price. Bring modest, consumable gifts, ideally from your region, and offer a few words about why you chose them. The gesture matters more than the object.
-
-Being a good guest also means managing your own behavior to avoid creating meiwaku, a term describing trouble or inconvenience caused to others. This includes not wandering off the plan, not insisting on personal preferences, and not pushing hosts to bend social rules. In many business settings, home invitations are rare. When they do occur, they often signal deep personal trust or a more globalized, younger professional subculture. Treat such invitations as significant relational gestures and be ready to share a little more of yourself while remaining respectful and discreet.

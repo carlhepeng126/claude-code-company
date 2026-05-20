@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Presentations in Dominica work best when they feel like part of a conversation rather than a performance. The Dominican workplace values warmth and personal connection, and this extends into how information is shared. A presenter who opens with some informal exchange, acknowledges individuals in the room, and speaks in a conversational tone will be received more positively than someone who launches straight into slides. This doesn't mean being casual about substance, but it does mean making room for relationship alongside content. If you treat the presentation purely as information delivery, you risk coming across as impersonal or rigid.
-
-Keep your tone accessible and your language plain. Dominicans tend to appreciate straightforward communication that doesn't hide behind jargon or corporate phrasing. Over-polished delivery or heavy use of business buzzwords can create distance. At the same time, be ready for interruptions or questions during your talk. These aren't signs of disrespect but reflect genuine engagement. A colleague from a culture where presentations follow a strict uninterrupted format may find this disruptive, while a Dominican presenter in that same setting might read the silence as disinterest or formality that discourages dialogue.
-
-Visual aids should support your message without overwhelming it. Keep slides simple and use them to clarify or illustrate rather than to script what you're saying. Dominicans are generally comfortable with oral communication, so reading dense text from a screen undermines your credibility. If your material is technical or detailed, consider providing a handout afterward rather than packing everything into the presentation itself. This gives people time to review on their own terms and opens the door to follow-up conversations, which is often where real understanding develops.

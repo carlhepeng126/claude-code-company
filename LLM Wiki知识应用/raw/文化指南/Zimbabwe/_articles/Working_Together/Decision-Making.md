@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Zimbabwe are shaped by older patterns of deliberation that value consultation, visible cohesion, and the prevention of public embarrassment. What may appear slow or indirect often reflects a process of private alignment, where stakeholders are brought into agreement before any formal announcement. This builds legitimacy and prevents the loss of face that can follow a public reversal or visible disagreement. In many settings, dissent is expressed quietly, one-on-one, rather than in open forums where challenging a senior figure could damage relationships or undermine group unity.
-
-Authority remains concentrated. Senior leaders hold final say, and middle managers often wait for endorsement from above before acting. Presenting a decision as already supported, or framing a proposal as having emerged from the team rather than one individual, can make it easier to gain traction. Decisions are also informed by what is realistically achievable. Asking "what can actually work here?" is a respected form of intelligence, grounded in genuine constraints around resources, infrastructure, and volatility. A colleague from a context where decisions are made quickly may read this as hesitation or lack of confidence, while a Zimbabwean colleague may view rapid decision-making without sufficient consultation as reckless or disrespectful.
-
-Family and community obligations can legitimately shift priorities. A decision timeline may adjust to accommodate these duties, which are seen as real responsibilities rather than distractions. The setting also influences rhythm: public sector, private sector, and NGO environments each have their own pace and process, and many professionals switch style depending on where they are working.

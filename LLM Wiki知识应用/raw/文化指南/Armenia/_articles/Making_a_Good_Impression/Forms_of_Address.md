@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Armenia, address norms reflect both formality and relational warmth, and the two are not in opposition. In business and professional settings, people use first names paired with the patronymic, a middle name derived from the father's first name. A colleague named Tigran whose father is Armen would be addressed as Tigran Armenovich in formal or semi-formal contexts. This form conveys respect without the distance that can come with using surnames alone, and it acknowledges family lineage in a culture where kinship ties remain socially significant.
-
-Titles matter, especially when seniority or professional standing is involved. Academic titles such as "Professor" or "Doctor" are used with the first name, not the surname. Addressing a professor simply by their first name, without the title, can feel dismissive to both the individual and others present. In written communication, including emails, these titles are expected in opening lines. Omitting them may suggest either unfamiliarity with local norms or a lack of regard for hierarchy.
-
-The shift to first-name use happens more quickly in informal settings or among peers, but it is still typically initiated by the senior person or host. Younger professionals working in international firms or tech sectors may move to first names sooner, especially when the working language is English. Even so, defaulting to formality until the relationship is established remains the safer choice. A colleague from a culture where informality is seen as a sign of efficiency may read the slower shift as stiffness, while an Armenian counterpart may interpret immediate first-name use as premature or overly casual in a context where trust is still being built.

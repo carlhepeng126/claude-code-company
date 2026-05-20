@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Collaboration in Liberia has been shaped by recent history. War and the 2014–2016 Ebola outbreak trained a generation in collective survival, and that shows up in how teams function now. Mutual care and practical solidarity are treated as serious work, and people often check in on each other's wellbeing before diving into tasks. A colleague from a culture where meetings start with agendas may read this as slow or unfocused. To many Liberians, it's the opposite: you establish the conditions for real cooperation first. Without that foundation, the work itself becomes fragile.
-
-When disagreement surfaces, teams often reach for something that resembles palava logic. The Palava Hut tradition offers a framework for repairing relationships through mediated dialogue and reintegration, and that same instinct applies in the workplace. Public confrontation rarely resolves tension. Instead, a trusted colleague or respected elder, someone seen as fair, may be brought in quietly to help the group find a way forward. This process protects dignity, which allows people to keep working together afterward. If you're managing conflict, expect it to be handled away from the main meeting. Pushing for resolution in front of everyone often makes things worse.
-
-Language shifts according to the room. Monrovia-based offices tend toward formal English, while Liberian Kreyol, Kolokwa, brings warmth and immediacy that cuts across regional and ethnic lines. Teams often code-switch without announcing it, adjusting register to match the setting. In settings outside the capital, elder visibility and community norms may be stronger, and decisions may take longer as a result. If your team includes people from different counties, notice how language and reference points shift. That variation is not inefficiency. It's how cohesion gets maintained across differences.

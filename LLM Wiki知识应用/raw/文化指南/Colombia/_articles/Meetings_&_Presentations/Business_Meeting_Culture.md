@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Colombia typically open with warm small talk about family, region of origin, or football, a ritual that allows people to place one another socially and build trust before business begins. This is more than courtesy; it reflects a relational culture where understanding someone's background and connections helps colleagues navigate shared histories of inequality and regional tension. For a colleague accustomed to meetings that begin with the agenda, this opening may feel slow. From a Colombian perspective, diving straight into proposals without personal context can feel transactional or even disrespectful.
-
-The senior person, often addressed as *Doctor* regardless of academic credentials, usually speaks first and last, setting the boundaries of acceptable opinion. Junior colleagues may nod or stay quiet even if they disagree, to avoid appearing confrontational or undermining hierarchy in front of outsiders. Silence or mild agreement in the room does not confirm buy-in. The real verdict often emerges later in hallway conversations or WhatsApp group chats, where colleagues share concerns they would not voice in the formal setting. If you want honest feedback, schedule follow-up one-on-one conversations or ask a trusted insider what was said after you left.
-
-For multi-city teams, the meeting schedule must account for flight patterns, road security, and occasional strikes or blockades that can delay travel. When colleagues arrive after crossing difficult terrain, avoid stacking long, low-value meetings that do not respect the effort they made to be present.

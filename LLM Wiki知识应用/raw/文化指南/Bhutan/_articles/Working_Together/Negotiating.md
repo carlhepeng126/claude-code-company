@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in Bhutan moves slowly by design, shaped by a Buddhist worldview that values harmony, consensus, and long-term relationships over transactional speed. Decisions are rarely made by one person alone. They emerge through careful consultation across layers of seniority, across family networks, and sometimes across monastic or community advisors whose input holds quiet authority. What may look like delay is often deliberation, a process that ensures alignment and reduces the risk of conflict or misstep. If you present a final offer early, expecting closure, you may find the conversation continues to circle back, not because your terms are rejected, but because the decision is still forming.
-
-Hierarchy shapes who speaks and when. Senior figures may stay quiet during early discussions, leaving juniors to ask questions and test understanding. This does not mean they lack interest. It reflects respect for rank and a preference for observing before committing. Pressing for a clear yes or no can backfire. In Bhutan, refusal is often indirect, softened through silence, redirection, or a polite deferral to another meeting. If your counterpart suggests consulting further or revisiting a point later, treat it as part of the process, not as evasion.
-
-Building trust takes precedence over speed. Expect time spent on relationship before terms are finalized. This is not preamble. It is the foundation on which any agreement will rest. A colleague from a culture where contracts are signed quickly may interpret this pace as inefficiency. From a Bhutanese perspective, rushing to close without understanding the people involved risks a partnership that will not hold.

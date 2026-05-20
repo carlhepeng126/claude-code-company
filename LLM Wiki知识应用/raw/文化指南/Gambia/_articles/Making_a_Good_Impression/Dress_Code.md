@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional appearance in Gambia reflects respect for your counterpart and the occasion. People read effort in presentation as a measure of how seriously you take the relationship, and dressing thoughtfully is understood as a form of courtesy. In business meetings, men typically wear long trousers with collared shirts or lightweight suits, while women choose modest dresses, skirts, or tailored trousers with blouses. Keep shoulders and knees covered, especially in more traditional settings or when meeting senior colleagues. The climate is warm year-round, so breathable fabrics in conservative cuts make the most practical choice.
-
-Gambia is a predominantly Muslim country, and modesty shapes expectations across both professional and social contexts. Women generally avoid tight or revealing clothing, and men rarely wear shorts outside of sports or beach settings. This applies equally in urban areas like Banjul and in provincial towns. During Ramadan or when visiting religious sites, dress with particular care. A scarf to cover your hair if you're a woman entering a mosque, and longer sleeves for both men and women, will be noted and appreciated.
-
-Formal events call for more tailored outfits. At dinners or cultural occasions, men may wear suits or traditional attire like the kaftan, and women often choose flowing dresses or African-print designs. The use of locally made fabrics and garments is common and carries cultural pride. Asking about the origin of a colleague's outfit can open warm conversation. In younger sectors or informal workplaces, standards may relax slightly, but the baseline of modesty and neatness remains consistent.

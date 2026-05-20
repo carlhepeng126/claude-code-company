@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-In Ghana, the relationship between a manager and their team draws deeply from the chieftaincy system, where authority comes with personal responsibility for those beneath you. A supervisor is expected to take genuine interest in team members' lives and wellbeing, not simply direct their output. Knowing someone's family circumstances, being present at important moments, and offering support when difficulties arise is how trust is built. Loyalty flows to the person, not the role or the institution. If you delegate tasks but remain personally distant, you may find engagement drops and problems stay hidden, because the relational foundation that makes people want to perform for you has not been established.
-
-Public failure has real social cost, which shapes how employees respond to difficulties. Rather than flagging a problem early, which could be read as personal incompetence, team members may attempt to solve it quietly or work around it entirely. Silence in meetings rarely means agreement. Out of respect for your standing and concern for their own, people will not openly contradict or raise doubts. If you need honest input, create private, low-stakes channels where concern can be voiced without audience or risk. A one-on-one conversation after the meeting will often reveal what the meeting itself did not.
-
-When delegating, make it explicit that raising a difficulty is expected and valued, then repeat that message consistently. Without clear permission, employees will assume that bringing you a problem reflects poorly on them. Younger professionals with international exposure may adapt more quickly to direct feedback cultures, but the default expectation across generations is still that you protect your manager's face and your own.

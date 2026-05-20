@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Norway tends to grow when people feel they are pulling their weight and contributing something useful to a collective effort. The idea of *dugnad*, a tradition of voluntary communal work without fanfare, reflects a wider respect for competence and contribution over individual spotlight. Colleagues are often more energized by the sense that their work makes practical sense and adds real value to a shared project than by public praise rituals or dramatic recognition ceremonies. When framing purpose, linking outcomes to what benefits the group or maintains something fair and functional can resonate strongly in Norway's civic-minded culture.
-
-Recognition lands well when it is specific and understated. While people appreciate being acknowledged, excessive or theatrical spotlighting can create discomfort because it disrupts the group's moral balance and clashes with modesty norms. A manager from a culture where public celebration of individual achievement is routine may read quiet acknowledgment as insufficient, while a Norwegian colleague may find effusive praise awkward or disproportionate. When you recognize someone's contribution, describe what they did and why it mattered without turning it into a performance.
-
-Autonomy paired with clear responsibility often builds energy and ownership. The cultural preference for managing oneself responsibly, reflected in practices like the right to roam, means that being trusted to organize one's own work is motivating in itself. Tight oversight or micromanagement can drain commitment. In more globally oriented urban settings, individual ambition may be more openly expressed, though even there the preference remains for achievement that looks grounded rather than boastful.

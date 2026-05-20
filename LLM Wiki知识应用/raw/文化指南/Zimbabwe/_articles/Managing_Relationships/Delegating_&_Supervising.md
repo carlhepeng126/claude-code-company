@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Effective supervision in Zimbabwe begins with recognizing that authority and care are not separate. Rooted in Ubuntu values, where the individual's identity and obligation are tied to community, Zimbabwean workplace culture expects managers to lead with humanity as well as hierarchy. A supervisor who knows their team as people, who asks after family welfare and attends social events when invited, earns a quality of loyalty and commitment that formal authority alone will not secure. A manager who treats employees purely as units of output will get compliance but not engagement. This is not a soft preference but a cultural expectation of leadership.
-
-Zimbabwean organizations are hierarchical and respect for seniority is assumed. However, the same cultural logic that upholds hierarchy also places a moral obligation on leaders to exercise power with responsibility and regard for others. Public criticism violates both personal dignity and communal harmony. Corrective feedback should be given privately, framed in a way that preserves respect and allows the person to adjust without losing face in front of colleagues. Zimbabweans typically do not seek to stand out individually, as group cohesion takes precedence over individual recognition. Singling someone out for praise or critique in a group setting can create discomfort rather than motivation.
-
-Years of economic turbulence have made many Zimbabwean professionals highly resourceful, capable of solving problems without the resources others might take for granted. Supervisors who recognize and draw on this adaptability will find genuine strengths to build on. Building trust takes time, and teams may initially tell a manager what they believe the manager wants to hear rather than surface problems openly. Investment in the relationship is what shifts this. Personal connection is the foundation on which professional accountability is built.

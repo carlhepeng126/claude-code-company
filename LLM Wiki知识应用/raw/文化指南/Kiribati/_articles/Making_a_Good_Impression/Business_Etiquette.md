@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Kiribati's business etiquette is shaped by a deep communal orientation, where relationships are maintained through gentle interaction and respect for dignity is rarely compromised for efficiency. Direct requests or abrupt transitions into work talk can feel jarring. Instead, taking time to greet warmly, ask after family, and ease into the purpose of a meeting acknowledges that the relationship itself holds value, not just the transaction it enables. This opening phase is not ceremonial. It establishes goodwill and signals that you see the person before the role.
-
-Disagreement is typically softened or left unspoken to preserve harmony. Open correction, especially in front of others, risks causing shame, which can quietly fracture a working relationship. If a colleague agrees verbally but then does not follow through, the issue may lie in how the request was framed. A colleague from a culture where decisions are made quickly and explicitly may read this hesitation as evasiveness, while someone from Kiribati may view a direct "no" as unnecessarily harsh. Rephrasing requests as suggestions, or raising concerns privately rather than in group settings, makes space for honest exchange without loss of face.
-
-Physical interaction is restrained, and hierarchy is expressed through deference rather than formality. Elders and senior figures are greeted first, and speaking over them or rushing a meeting can come across as dismissive. Silence is common and should not be filled. It often signals thought, not disengagement, and interrupting it can end a conversation before it begins.

@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-The Holy See operates through a highly centralized hierarchical structure rooted in centuries of ecclesiastical tradition. Authority flows downward from the Pope through the Roman Curia, the administrative apparatus of the Catholic Church. Leadership within this system is not simply managerial but deeply tied to religious vocation and theological understanding. Decisions are made by those who hold formal office, often after consultation with advisors, but the final word rests clearly with those at the top of the structure. This reflects a culture where authority is understood as a spiritual responsibility, not just organizational power.
-
-Leaders in the Holy See tend to adopt a consultative but ultimately directive approach. They may seek input from experts, particularly in areas requiring specialized knowledge such as canon law or diplomacy, but the leader remains the singular decision-maker. This can feel unfamiliar to colleagues from cultures where leadership is more collaborative or consensus-driven. A manager from a culture that values distributed decision-making might perceive this as overly cautious or controlling, while someone from the Holy See might view a more participatory style as unclear or lacking in accountability.
-
-The pace of leadership decision-making is deliberately measured. Leaders are expected to weigh tradition, doctrine, and long-term consequences, which means decisions may unfold over weeks or months rather than days. This reflects the institution's orientation toward continuity and doctrinal integrity. For international partners working on time-sensitive projects, it helps to understand that this pace is intentional, not bureaucratic delay, and to frame proposals in ways that align with institutional priorities rather than external deadlines.

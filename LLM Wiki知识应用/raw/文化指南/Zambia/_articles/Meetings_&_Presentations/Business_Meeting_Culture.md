@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Zambia typically open with greetings and brief personal conversation before any agenda begins. This reflects a relational logic where the tone and comfort of the interaction signal respect and trustworthiness. People evaluate intent through interpersonal pacing, so rushing into content can undermine credibility before you've started. The practice draws on patterns like *insaka*, a Bemba term for a gathering place where wisdom is shared through presence and measured listening rather than assertion. In professional settings, this means how you participate often says as much about your character as what you propose. If you're working with counterparts who expect decisions to move quickly and agendas to be followed tightly, the slower opening may feel inefficient. From the Zambian side, skipping relational grounding can feel abrupt or transactional, making it harder to build the trust that supports longer-term collaboration.
-
-Hierarchy shapes who speaks first and how disagreement is expressed, especially in mixed-status rooms. Silence in a meeting can reflect respect for seniority or caution about causing someone to lose face publicly, rather than absence of opinion. Critique often moves into side conversations or private follow-up. If you're chairing, facilitate in ways that invite quieter input, such as round-robin formats, written reflections, or questions directed to specific individuals. Avoid forcing public yes-or-no moments on sensitive points.
-
-Regional variation exists. Urban Copperbelt settings, shaped by mining-era social mixing, can display a more relaxed cross-group ease in meetings than regions where chiefly traditions hold stronger influence. Adapt your expectations by location and institutional context rather than assuming a single national style.

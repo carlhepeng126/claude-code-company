@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In Greek professional circles, particularly in Athens and Thessaloniki, how you dress reveals your social literacy. People notice whether your outfit shows μέτρο, a sense of proportion and appropriateness. The judgment goes beyond formal versus casual. It's about whether the combination sits right, whether you've understood the unspoken line between making an effort and overdoing it. A rigidly corporate suit can read as tone-deaf, as can turning up to a ministry meeting in flip-flops and a backpack. Greeks expect business wear that is well-fitted and slightly expressive, a good shirt with one interesting element, not head-to-toe grey. When someone has clearly put thought into their appearance, it registers as respect for the relationship.
-
-Island settings may appear more relaxed, but smart-casual here is still carefully curated. A supplier or hotelier might wear linen shirts and espadrilles rather than a suit, but those choices are deliberate. They communicate a professional identity rooted in the place and lifestyle, drawing a boundary between tourist and working here. Arriving in crumpled beachwear to discuss a contract suggests you haven't grasped that distinction. Keep your tourist wardrobe separate from your working-in-Greece wardrobe.
-
-Black clothing, especially among older women, often marks extended mourning. In some communities, this can last for years or a lifetime. If a local partner is wearing black, it may signal recent bereavement. Pitching something upbeat without first asking gently about family, Πώς είναι η οικογένεια, can feel jarring. Paying attention to these visual cues helps you gauge the right tone before you begin.

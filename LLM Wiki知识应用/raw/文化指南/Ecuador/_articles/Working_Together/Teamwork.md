@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-In Ecuador, teamwork is shaped by the expectation that managers lead with both authority and personal warmth. Team members look to their manager not just for direction but for guidance that extends beyond tasks. A manager who sets clear expectations but also takes time to understand personal circumstances, ask how someone's family is doing, or offer help with a challenge outside work will build far stronger team cohesion than one who focuses only on efficiency. This relational foundation is where trust forms, and trust is what makes collaboration possible.
-
-Feedback within teams follows this same logic. Public praise can be generous and motivating, but criticism is handled carefully. Singling someone out for a mistake in front of the group risks embarrassment and can damage both individual morale and team unity. A manager from a culture where direct, open feedback is standard might see this as avoiding tough conversations. From an Ecuadorian perspective, the same manager's approach may feel unnecessarily blunt and inattentive to the relational cost of being called out publicly. Addressing concerns privately, with empathy and a clear path forward, preserves dignity and keeps the team intact.
-
-In urban centers and within multinational firms, more structured team-building activities are becoming common, though they tend to favor connection over competition. Shared meals, outdoor activities, or creative workshops that allow people to interact naturally often work better than high-pressure exercises. The goal is to strengthen relationships, not test performance, reflecting the broader cultural preference for collaboration rooted in trust rather than tasks alone.

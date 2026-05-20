@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership credibility in Uruguay is built on composure, fairness, and quiet authority. The cultural ideal draws on historical figures like José Artigas, remembered for resisting centralizing power and defending collective autonomy, and José Batlle y Ordóñez, whose reforms shaped Uruguay's faith in institutions as guarantors of stability. Leaders who appear principled, restrained, and focused on making systems work well tend to earn more trust than those who project personal grandeur or sell themselves loudly. Understatement reads as strength. A manager who stays calm, speaks plainly, and delivers steadily will often be seen as more credible than one who performs status or promises big changes without follow-through.
-
-The memory of the 1973–1985 dictatorship remains a moral reference point. Heavy-handed authority, opacity, or coercive tone can register more sharply than the immediate situation might suggest. Because of this, effective leaders tend to explain decisions, invite questions, and avoid cornering people into public submission. Fair process matters as much as the outcome. When a decision is made, showing what inputs were considered and why builds legitimacy in a way that simply announcing the result does not.
-
-A colleague from a culture where decisions are made quickly and directive leadership is expected may read this consultative style as slow or hesitant. From a Uruguayan perspective, a leader who moves too fast without explaining the rationale or checking for alignment may appear reckless or dismissive of people's dignity. The difference is not about efficiency but about what legitimizes authority. In Uruguay, leaders earn credibility by treating people's autonomy and input as non-negotiable, even when the final call rests with them. Keeping promises realistic and delivering on them consistently reinforces that trust over time.

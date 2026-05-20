@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Slick, buzzword-heavy presentations often trigger skepticism in Australian audiences. The instinct is to suspect hype or evasion. Presenters who rely on too many abstract models, glossy videos, or consultant-speak risk appearing as though they have something to hide. Australians respond better to straight talk, real data, and practical examples. A good presentation blends story, grounded facts, and a concrete "so what." Show you know your material, but also show what it means in practice. This preference reflects a broader cultural distrust of pretension and performance over substance. Modesty and clarity build credibility faster than polish.
-
-Self-deprecating humor can help establish rapport quickly, especially if you acknowledge your own accent, a past mistake, or the limits of your own knowledge. Being upfront about risks and gaps builds more trust than projecting false certainty. A colleague from a culture where presentations emphasize formality and deference to expertise may read this candor as unprofessional or under-prepared. In turn, an Australian presenter might find a highly formal, credential-heavy introduction unnecessary or even off-putting. The difference lies in where credibility is thought to come from: demonstrated competence and honesty, rather than status or rhetorical flair.
-
-Expect some level of audience participation, though it varies. Some groups will interrupt with questions, challenges, or even jokes. Others will stay quiet during the session and raise concerns later, at the coffee break or one-on-one. Both are normal. Treat challenges as collaborative problem-solving, not confrontation. Answer questions directly and without defensiveness. If you are co-presenting with local colleagues, let them front sections where local context matters. This shows genuine partnership, not remote control.

@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Presentation in Spain is understood as a visible form of respect, credibility, and self-discipline. How someone dresses communicates both their regard for the relationship and their sense of professionalism. Urban Spain leans toward stylish, contemporary tailoring, though the degree of formality varies widely by sector, region, and company culture. In traditional industries like law, banking, or government, suits remain standard, and the expectation is polished rather than flashy. Creative industries, technology firms, and younger companies often accept smart-casual, but even there the approach stays intentional. People dress with care, regardless of the setting.
-
-Regional variation also plays a role. Madrid tends toward more formal business attire, while Barcelona and coastal cities may adopt a slightly more relaxed style. The Mediterranean climate shapes fabric choices, with lighter materials common in summer, but the heat does not translate into casualness in formal contexts. Following the lead of Spanish colleagues is often the clearest guide. If they loosen ties or remove jackets, it becomes acceptable to do the same. Still, it's worth keeping a jacket accessible, especially for restaurants or higher-end venues where dress codes may still apply, even if company norms have relaxed.
-
-Grooming and overall presentation are noticed as much as clothing itself. Accessories and jewelry should be visible but understated. Overly casual clothing, particularly when meeting senior staff or government officials, can undermine the impression you make before any words are exchanged. For colleagues from cultures where dress codes have shifted toward comfort and informality across all professional settings, the sustained attention to appearance in Spain may feel detailed. From a Spanish perspective, a more casual approach can read as lack of preparation or diminished regard for the occasion.

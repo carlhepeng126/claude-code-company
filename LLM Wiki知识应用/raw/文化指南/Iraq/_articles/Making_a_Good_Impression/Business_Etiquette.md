@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Hospitality in Iraqi business life has a moral weight. Even in damaged or modest offices, tea, coffee, sweets or an entire meal may appear, offered by people who have lived through war and scarcity. Iraqis who have hosted well under hardship often take extra pride in it. Accepting this gesture, even briefly, acknowledges the relationship. Waving everything away or rushing through it can be read as rejection. If you're working with someone who has made the effort to prepare something, sit for a moment, accept what's offered, and let the conversation settle before turning to work.
-
-Public disagreement, especially with a senior colleague, is filtered through the lens of personal and family honor. Contradicting someone in front of their team can be remembered long after the meeting ends, in a society where tracking allies and adversaries has been a matter of survival. Challenge ideas calmly and, with seniors, often in private rather than in front of others. A colleague from a culture where direct feedback in meetings is expected may read this as avoidance, while an Iraqi counterpart may see the same public correction as an unnecessary humiliation that damages trust.
-
-Political and sectarian identity runs through everyday conversation in ways that outsiders may not immediately notice. People often avoid naming parties or militias directly, preferring euphemisms or coded language. Let your Iraqi colleagues signal what can be said explicitly and what needs more careful phrasing. Asking directly about someone's sectarian background or political affiliation, even in what feels like casual conversation, can close a relationship before it starts.

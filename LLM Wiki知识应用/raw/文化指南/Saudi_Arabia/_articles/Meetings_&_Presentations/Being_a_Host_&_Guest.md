@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Saudi Arabia is a practical expression of honour and social skill. A host is expected to create cohesion, manage introductions thoughtfully, and attend to guests without drawing attention to the effort involved. This extends from formal business lunches to coffee rituals in the office. Coffee service, for example, follows a clear order: elders and guests are served first, using the right hand, and the sequence itself communicates respect. As a guest, receiving this attentiveness graciously and expressing thanks clearly helps avoid awkwardness. As a host, pacing the interaction well and avoiding anything that singles someone out keeps the encounter comfortable.
-
-In professional settings, the expectation is that the host covers costs and takes the lead on logistics. Where host and guest roles are unclear, such as during a casual lunch between colleagues, there may be visible insistence on paying. Splitting a bill undermines the relational logic that underpins the interaction. A colleague from a culture where costs are routinely shared may read this as overly formal, while a Saudi professional may interpret cost-splitting as a lack of generosity or interest in the relationship.
-
-In expat-heavy workplaces, these expectations are often negotiated quietly. Non-alcoholic options are standard, and colleagues generally respect prayer times without discussion. Gift-giving when visiting someone's home is less common than in some other cultures, though a small gesture for children or the household may be appreciated if the relationship is established. The focus remains on presence and participation rather than the exchange itself.

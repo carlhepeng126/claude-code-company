@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Formal address in Rwanda reflects deeper values of dignity and social care. The concept of *agaciro* (dignity or worth) influences how people speak to each other, and formality protects that dignity by showing measured respect. This is reinforced by ideals around *ubupfura*, often understood as nobility of character or integrity, which favors interaction styles that avoid embarrassment and maintain face. In practice, this means using titles and surnames until explicitly invited to do otherwise, and keeping your tone calm rather than effusive.
-
-A quick, soft handshake is standard in professional settings, sometimes accompanied by a slight nod. When greeting someone senior or an elder, a two-handed handshake—where the left hand supports the right forearm—expresses deeper respect. Among peers, once rapport is established, first names may be used, but in hierarchical organizations junior colleagues typically wait for senior figures to initiate that shift. Academic and professional titles such as Doctor, Professor, or Engineer are widely respected, and an older foreign colleague may be addressed as Professor or Doctor as a sign of respect, regardless of their actual credentials. Accept this graciously rather than correcting it.
-
-Rwanda's post-1994 emphasis on national unity and civic cohesion has made careful, respectful language even more important. Speech that feels socially safe and non-divisive is valued, and humor that leans on identity or stereotypes can be read as disrespectful. In meetings, praise can be given publicly, but any critique or correction should be reserved for private conversation to protect the dignity of the person involved.

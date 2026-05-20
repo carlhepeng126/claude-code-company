@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Tunisian conflict resolution prioritizes dignity and relational repair over simply fixing the problem. Public confrontation or anything that shames someone is strongly discouraged, so disagreements are typically handled privately or through intermediaries. This approach reflects broader traditions of mediation and the cultural importance of preserving face and social standing. When you raise an issue directly in front of others, you risk isolating the person and damaging the relationship beyond the immediate disagreement.
-
-Directness varies. Some urban professionals, particularly those with international experience, may be more straightforward in their phrasing. Many others prefer diplomatic language, indirect cues, or even silence to signal dissent. Reserved disagreement should not be read as indifference. A colleague who says little in a meeting or shifts the topic may be signaling concern without escalating tension. If you press for an immediate yes or no, you may force a response that closes down further conversation rather than opening it.
-
-For colleagues from cultures where disagreements are aired quickly and resolved on the spot, this indirectness can feel slow or unclear. From a Tunisian perspective, rushing to confront someone may look aggressive or dismissive of the relationship. The goal is not to avoid resolution but to find a path that allows everyone to remain engaged and respected. Involving a trusted third party can help when the stakes are high or the relationship is strained. Solutions tend to hold when they emerge from dialogue that includes all voices, not from decisions imposed unilaterally.

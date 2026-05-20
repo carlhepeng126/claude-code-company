@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Business etiquette in Bermuda is shaped by a culture that values formality, respect for hierarchy, and British-influenced social norms. First impressions are taken seriously. Professional dress leans conservative, particularly in banking, insurance, and legal sectors. Men typically wear jackets and ties, while women favor business suits or dresses. The Bermuda shorts suit, a tailored outfit pairing knee-length shorts with a blazer and tie, is a distinctive local style accepted in many business settings, particularly during warmer months. This tradition reflects Bermuda's ability to honor formality while adapting to its subtropical climate.
-
-Greetings follow a formal pattern. Use titles and surnames until invited to do otherwise. A firm handshake, direct eye contact, and a polite greeting establish credibility. Jumping to first names too quickly can be read as overly familiar or presumptuous. This preference for formality grows from Bermuda's small, tightly connected professional community, where reputation is both visible and enduring. People know each other, or know of each other, and how you present yourself in one interaction can echo into the next.
-
-Punctuality matters. Arriving late to a meeting without explanation can be seen as disrespectful, especially when meeting senior colleagues or clients. At the same time, social and business lines can blur in Bermuda's close-knit environment, and some meetings may begin with brief personal exchanges. Allow space for this without mistaking it for informality. The tone remains professional even when the conversation feels warm.

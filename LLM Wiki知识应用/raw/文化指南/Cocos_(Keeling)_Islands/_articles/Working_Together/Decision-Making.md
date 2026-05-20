@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-On the Cocos (Keeling) Islands, decisions tend to unfold gradually within close-knit networks. The small population and isolation of the two main communities, West Island and Home Island, mean that most choices affect people you know and will continue to interact with. This relational proximity shapes how decisions are made. Leaders and business owners are more likely to consult informally before settling on a direction, especially where the outcome might touch on family ties, community obligations, or longstanding social bonds. A manager might discuss a staffing change or supplier decision with trusted contacts well before any formal announcement, not to delay the process but to ensure it sits well across overlapping circles of influence.
-
-Authority still plays a role. Senior figures, whether in local government, community organizations, or family-run businesses, hold considerable sway, and their approval often marks the point at which a decision becomes real. But that approval is rarely given in isolation. It usually follows rounds of quiet conversation and relationship-checking, particularly where decisions could create tension between the predominantly Malay Muslim population on Home Island and the more mixed demographic on West Island. A colleague accustomed to fast, individual decision-making may read this as hesitation or indirectness. From a Cocos perspective, a decision made without relational groundwork can feel reckless or socially blind.
-
-Expect timelines to shift when family events, religious observance, or community priorities come into view. A project deadline may be honored in principle but adjusted in practice if it clashes with local commitments. Pressing for closure before informal soundings are complete can undermine both the decision and the relationship behind it.

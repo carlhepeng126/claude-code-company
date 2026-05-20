@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Lithuanians bring a distinctive combination of realism, structure, and persistence to the negotiating table. The cultural preference for doing things properly, visible in settings from formal rituals to organizational life, means proposals that are specific, feasible, and clearly staged tend to be received more seriously than sweeping promises or aggressive tactics. Big claims can trigger suspicion. Understatement and attention to detail are read as markers of credibility, so if you're preparing terms, anchor them in facts rather than optimism. This builds confidence that the commitment can be delivered.
-
-Reserve and quiet stretches of conversation are part of the process. Lithuanians often favour long periods of silence to think through what has been said. This is not hesitation or disengagement. It reflects a cultural logic rooted in careful coordination and disciplined effort without spectacle, qualities historically valued during periods when survival depended on quiet networks and sustained follow-through. If you fill the silence with talk or push for a faster close, you risk reading as impatient or unserious. Let the silence do its work.
-
-Lithuanians negotiate with a calm exterior but real toughness underneath. An initial proposal may be met with caution or mild disappointment, followed by a counter-offer delivered with renewed energy. If their own proposal is rejected, discussion can become more heated, though the aim is still to reach an outcome that benefits both sides. Flexibility is usually on the table, but it is earned through respect for the process rather than pressure. Contracts are generally honored, though Lithuanians may return later to revisit points, particularly if earlier terms felt unbalanced.

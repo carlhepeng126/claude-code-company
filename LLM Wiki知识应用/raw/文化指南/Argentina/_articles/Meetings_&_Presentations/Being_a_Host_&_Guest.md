@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Argentina is a form of relationship-building, and the choice of venue sends a message about how you see the connection. Cafés and parrillas (steakhouses) function as intentional spaces for wide-ranging conversation where business topics weave in naturally rather than dominating. A packed, noisy parrilla where the owner greets your guests by name will resonate more deeply than a stiff, ultra-formal venue that emphasizes distance or inequality. Warmth and liveliness count for more than polish. If you're hosting, a basic familiarity with classic cuts like asado, vacío, or entraña, or an informed question about the house wine, shows respect for the local food culture. Total indifference codes you as disconnected.
-
-When you're invited to someone's home or quinta (country house), treat it as a trust milestone. These invitations signal that the relationship has shifted from professional courtesy to something more personal. Put your phone away, engage with extended family, and listen to the stories being shared. If there's an asado, respect the role of the asador by praising the food and offering to help with side tasks like plating or salads, but don't try to manage the grill unless you're explicitly invited. Bring a thoughtful gift that starts a conversation, something tied to where you're from or a small producer, rather than something flashy or generic.
-
-When hosting Argentine colleagues in your own context, recreate some of that warmth rather than aiming for formality. An open kitchen, shared tasks, music, and extended conversation will feel more familiar than a perfectly choreographed dinner party. The goal is connection, not performance.

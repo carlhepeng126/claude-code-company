@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Ecuador's approach to time is relationship-centered rather than schedule-driven. Deadlines and appointments exist, but they respond to the quality of connection and the weight of personal context. Someone who builds genuine rapport and demonstrates sustained interest in the partnership will often find that timelines become more predictable and commitments are honored more closely. A business contact known only through a single email or meeting may experience delays that reflect their lower relational standing, not deliberate obstruction.
-
-This flexibility is stronger in smaller cities, family-run businesses, and public-sector settings, where relational continuity shapes daily rhythms. In Quito's export-oriented firms or multinational offices in Guayaquil, punctuality is treated as a professional standard and meetings begin closer to the scheduled time. Even there, a formal start time may allow for ten minutes of informal conversation before the agenda is addressed. Younger professionals working in globally integrated sectors tend to align more closely with clock-based schedules, while senior figures in traditional industries may prioritize the moment that feels right over the one that was planned.
-
-A colleague from a culture where precision is central may read this as inefficiency or lack of commitment. From the Ecuadorian side, rigid insistence on a timeline without acknowledging the human element can feel transactional and hollow. If you need something by a fixed date, state it clearly and early, then confirm progress through ongoing contact. Silence is not confirmation, and a vague agreement often reflects courtesy rather than a binding plan.

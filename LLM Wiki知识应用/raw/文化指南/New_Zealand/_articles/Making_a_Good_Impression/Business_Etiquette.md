@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-New Zealand's workplace manners rest on a strong cultural preference for egalitarianism and modesty. Overt displays of status or hierarchy sit badly here. Managers are expected to pitch in alongside their teams, and the instinct is to downplay difference rather than emphasize rank. This egalitarian reflex extends to how people present themselves. Hard self-promotion or talking over quieter colleagues tends to land poorly, reflecting the tall poppy tendency to cut down anyone who appears to be getting above themselves. Achievements are routinely understated, even when significant. A "pretty good year" might mean a record-breaking one. If you're leading a pitch or introduction, let your track record speak more than your sales talk. Confidence grounded in evidence will be better received than swagger.
-
-This preference for modesty also shapes how meetings unfold. The loudest voice in the room is not automatically the most credible. In fact, rewarding only those who speak first or most often can sideline valuable input from people who contribute more quietly. Drawing in participants who haven't yet spoken, and giving space for considered responses, will be read as good facilitation rather than slowing things down.
-
-In Māori and Pasifika professional contexts, formality shifts. Respectful greetings, acknowledgment of elders, and appropriate opening or closing protocols such as mihi (formal introductions) or karakia (blessings or prayers) matter deeply, even when the rest of the interaction feels relaxed. Ask how to open and close meetings appropriately, and follow the lead of those hosting or holding mana (authority and standing) in that space. The contrast between surface informality and underlying respect is real, and both need to be honored.

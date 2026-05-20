@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Luxembourg reflects the country's multilingual, super-diverse professional culture. Invitations to lunch or dinner mark a genuine interest in building a working relationship, but the tone remains measured. Hospitality here tends to be welcoming without intruding—hosts make people comfortable, help them navigate, and create ease rather than demanding instant closeness. In a place where foreign nationals make up a large part of the workforce, this restraint is practical: it allows connection without assuming a shared cultural script.
-
-Meals are often the setting where relationships move forward, but business itself may stay largely off the table. Conversation during lunch or dinner tends to be wide-ranging and relaxed, and it's usually the host who decides whether to touch on work at all. Bringing up business too soon can feel transactional. The gathering itself does the work—it allows people to observe how others interact, to build trust incrementally, and to signal that the relationship has potential beyond the project at hand. A colleague from a culture where deals are closed over dinner may find this approach reserved or indirect, while a Luxembourger hosting such a colleague might read their directness as skipping necessary groundwork.
-
-Regional textures also come through. Luxembourg's Moselle wine culture—Crémant, seasonal wines like Fiederwäissen—offers a distinctly local bridge for entertaining that feels rooted without being overly formal. Public traditions like the late-August Schueberfouer, a medieval market still running today, create culturally safe connection spaces that cross professional and national backgrounds. If you're invited to join colleagues at one of these, accept. It's a form of inclusion that works through participation, not explanation.

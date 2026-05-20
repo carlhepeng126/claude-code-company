@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Delegating effectively in New Zealand means trusting people to get on with the job. The culture places high value on individual competence and autonomy, shaped by a frontier history where practical skill mattered more than rank. Micromanagement is read as a clear sign that you doubt someone's ability, which undermines both morale and respect. Managers who delegate broadly and step back are seen as confident in their team. Those who hover or insist on approval at each stage risk being viewed as controlling or insecure.
-
-Authority works best when it is downplayed. Māori leadership philosophy, increasingly present across workplaces, describes a leader as someone who weaves people together rather than standing above them. This aligns closely with the broader New Zealand discomfort with hierarchy. A manager who asserts rank too visibly or ignores others' expertise will quickly lose credibility. Consultation before decisions is a genuine expectation, and being informed afterward feels dismissive. Framing direction as a collaborative suggestion is the norm, but clarity still needs to be there. A polite question like "I was wondering if we could finish this by lunchtime?" is an instruction, and people will treat it as one.
-
-Teams are informal and relatively flat. First names across all levels are standard, and people expect direct communication without unnecessary layers. If a team member from another area has stronger technical knowledge, it is common to involve them directly rather than working through channels. The focus is on solving the problem quickly, and competence opens doors across structure.

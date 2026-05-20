@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Ethiopians use a given name plus their father's name, so what looks like a surname is actually a parent's first name. Referring to someone by that second name alone, as though it were a family name, can feel odd or disrespectful. The person you know as Mulu Tesfaye should be addressed as Mulu, or more formally as W/ro Mulu (Mrs Mulu) or W/rt Mulu (Ms Mulu), depending on marital status. Men are addressed as Ato plus the given name. This pattern reflects a naming system that traces lineage through fathers rather than shared family surnames, and using the full form as given avoids confusion and shows respect.
-
-Titles anchor social authority and professional standing. Doctor, Engineer, Pastor, Abba (a religious title), or Sheik are used regularly in most sectors, and leaving them out can subtly diminish someone's standing, especially outside younger, more informal tech or NGO environments. When colleagues introduce someone as Doctor Hana or Engineer Mulugeta, follow that form. These titles are embedded in a culture where hierarchy, religious identity, and earned credentials shape how people relate, and using them correctly acknowledges that structure. If you are working with a colleague accustomed to first-name-only environments, they may read this as overly formal or slow to build rapport. From an Ethiopian perspective, skipping titles or jumping straight to first names can feel rushed and signal a lack of regard for the person's position or the relationship itself.
-
-Default to Ato, W/ro, or W/rt with the first name until someone explicitly invites you to drop the honorific. Let introductions guide you, and avoid creating Western-style surnames from the Ethiopian form.

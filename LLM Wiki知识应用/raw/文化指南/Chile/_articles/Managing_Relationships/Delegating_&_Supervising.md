@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Chilean managers are expected to lead with authority and provide clear direction. Openly consulting subordinates on decisions or delegating too much decision-making responsibility can be read as uncertainty rather than inclusion. The assumption is that the manager knows what needs to be done and will guide the team accordingly. This reflects a culture where leadership is formal and hierarchical on the surface, though warm and relationship-driven underneath. The concept of pitutos, personal connections that open doors and build trust, shows how much professional cooperation depends on who you know and the quality of the relationship you've built.
-
-Roles and responsibilities need to be defined clearly so everyone knows who is doing what. Ambiguity will not be filled with initiative. It will be filled with caution. Many employees prefer to be led rather than placed in positions where they might be blamed if something goes wrong. This is rooted in a strong cultural aversion to failure and public exposure. Employees will generally work to resolve problems within the team before escalating them, protecting both the manager's reputation and their own. This is a form of collective care in a culture where dignity and honour run deep. For a manager from a culture that values early escalation and transparency around risk, this can feel like information is being withheld. From a Chilean perspective, bringing a half-resolved issue to a manager too soon can seem careless or disrespectful.
-
-New approaches need to be introduced with care and evidence. Chileans are not resistant to innovation, but they need to feel the risk has been thought through. A track record of success elsewhere helps. Creating private, low-stakes channels for concerns to surface early will serve you better than expecting problems to be raised in group settings or before solutions have been attempted.

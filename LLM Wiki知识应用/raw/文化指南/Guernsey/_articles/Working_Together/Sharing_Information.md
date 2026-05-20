@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-In Guernsey, information flows along established lines of trust and familiarity rather than through formal channels alone. The island's small size means professional and personal networks overlap considerably, and people rely on these relationships to verify facts and gauge credibility. A newcomer might find that certain details are shared readily in informal settings but remain opaque in meetings, not because they are confidential but because trust has not yet been established. Building that trust takes time. Colleagues want to see that you respect local protocols, keep confidences, and follow through on commitments before they open up fully.
-
-This caution reflects both the island's history of self-governance and its tight-knit community structure. In a place where reputations are long-lasting and everyone seems connected by one or two degrees, sharing information carelessly can have lasting consequences. People are mindful of how their words might travel, particularly when discussing sensitive business matters or internal decisions. A colleague from a culture where transparency is highly valued and information is shared widely by default might read this reserve as evasiveness. Conversely, someone from Guernsey may perceive rapid, unfiltered information sharing as imprudent or even risky, lacking the necessary foundation of mutual understanding.
-
-Once trust is established, information flows more freely and relationships become notably collaborative. Investing in informal interactions, such as brief conversations after meetings or casual check-ins, helps build the personal connection that unlocks fuller communication. Demonstrating consistency and discretion in early exchanges signals that you understand how the island operates and can be relied upon over the long term.

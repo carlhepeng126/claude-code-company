@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leaders in China are expected to provide clear direction while visibly attending to their team's well-being. This dual expectation reflects a broader cultural understanding that authority comes with responsibility for the group. A respected leader makes decisions, sets the course, and shares credit when outcomes go well. Public shaming or displays of temper undermine that standing quickly, because composure and calm problem-solving preserve dignity for everyone involved. If criticism is needed, it happens privately, allowing both leader and team member to maintain face.
-
-Title alone does not secure confidence. Teams expect evidence of capability, a track record of results, and demonstrable expertise. A manager who leads on positional authority but cannot demonstrate competence will struggle to earn trust, especially where decisions require technical judgment or carry risk. Sharing concrete achievements early helps establish legitimacy beyond rank, particularly when leading a new team or entering a role from outside.
-
-Influence extends beyond formal channels. Leaders who take time to understand personal contexts and build one-to-one relationships find their authority amplified. Regular, informal check-ins strengthen these ties and create the relational foundation through which much workplace coordination happens. This approach is especially resonant with younger employees, who expect not only task direction but also developmental guidance. Coaching matters to emerging generations, and leaders who offer it build loyalty that formal hierarchy alone cannot sustain.

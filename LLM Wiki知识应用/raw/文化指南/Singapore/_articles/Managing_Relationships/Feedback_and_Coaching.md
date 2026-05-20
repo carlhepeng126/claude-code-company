@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Singaporeans are used to structured performance reviews, KPIs, and calibration processes. The formality itself is not the problem. What causes real discomfort is public shaming, vague complaints, or feedback delivered as a surprise at the end of the year. The culture expects clarity and process, but it also expects face to be preserved. If you have concerns, raise them early, privately, and with specific examples tied to agreed expectations. Waiting until the annual review to surface something serious will feel like ambush, not rigor.
-
-Coaching works best when it is framed around capability building rather than character judgment. The national narrative of lifelong learning and SkillsFuture means that development conversations framed as "leveling you up for the future economy" resonate far more than critiques that feel personal or moral. Phrasing feedback around skills, career trajectories, and adaptability makes it easier to receive. Telling someone they are lazy closes the conversation. Telling them what specific behavior needs to shift, and offering resources to support that shift, keeps it constructive. Follow feedback with something tangible: a course, mentoring, a stretch project. Development talk without follow-through reads as hollow.
-
-Singapore's workplaces are culturally mixed, and people here are used to calibrating feedback styles across that range. Some colleagues may be comfortable with direct critique, others prefer a more face-saving approach. Asking someone how they prefer to receive feedback, and adjusting slightly within reason, is seen as emotional intelligence, not weakness. Flexibility in tone does not dilute the message. It makes the message more likely to land.

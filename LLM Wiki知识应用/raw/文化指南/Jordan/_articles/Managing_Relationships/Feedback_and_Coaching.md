@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In Jordan, a person's standing is relational, shaped by family name, network, and reputation. Public correction can damage *karāma* (dignity) and land as a social injury even when the content is accurate. The question becomes not only whether the feedback is true, but whether it humiliates. That reaction is rooted in how identity is held: less as individual performance and more as shared standing. If the delivery feels exposing, the message becomes harder to hear, and the person may respond to the breach rather than the lesson.
-
-Feedback that registers as protecting rather than judging tends to land more cleanly. The concept of *naṣīḥa*, sincere guidance offered with goodwill and discretion, gives correction a moral shape that preserves the relationship. This is different from softening a message to avoid discomfort. It frames development as care, which keeps the person inside the group rather than positioning them as deficient. A manager working across cultures may read this indirectness as evasion, while a colleague from Jordan may find a blunt performance debrief unnecessarily harsh and relationally careless.
-
-The most effective coaching often happens away from formal settings: in a quiet hallway conversation, over coffee, or through a trusted intermediary. This is a face-saving mechanism, and it works. Similarly, framing issues through *ʿayb*, what is considered socially improper, can register more sharply than a technical critique, because it speaks to social competence and honor. Give corrective feedback privately, and frame it around fixable actions and shared standards rather than personal shortcomings.

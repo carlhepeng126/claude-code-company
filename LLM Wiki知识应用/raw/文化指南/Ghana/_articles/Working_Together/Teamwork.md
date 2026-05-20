@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-In many Ghanaian workplaces, one or two older colleagues quietly become the "Mummy" or "Daddy" of the office. These are people who mediate disagreements, remember birthdays and funerals, and hold the team together emotionally. Their role is informal but essential, rooted in the cultural respect for age and the belief that elders bring wisdom and relational care. If you introduce a change or navigate a sensitive issue without involving these figures, you risk losing the informal trust network that actually makes the team function. Include them early, not as a courtesy, but because they shape how the team receives what you propose.
-
-Teams often move between registers with ease. The same person who sends a formal, polished email in English may switch to Twi or Pidgin in the corridor to sort out a problem quickly. This reflects both Ghana's inherited British administrative formality and the practical, street-level communication that gets things done. A colleague from a culture where written and spoken styles stay consistent might read the shift as unprofessional, while a Ghanaian colleague may find a single-tone approach rigid or tone-deaf. Recognize that surfing both registers shows skill, and use informal check-ins to unblock what formal channels leave unresolved.
-
-In national teams, the divide between Accra head office and field staff in cities like Tamale, Takoradi, or Bolgatanga can fracture collaboration. Field teams often implement the work but feel ignored in planning or blamed when things go wrong. If you want full commitment from the field, involve them in debriefs and spend time there. The imbalance is regional but also relational, and it shows up in lower morale and weaker execution when field voices are left out.

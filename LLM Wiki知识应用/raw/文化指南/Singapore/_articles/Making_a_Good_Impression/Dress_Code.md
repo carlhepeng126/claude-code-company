@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Singapore's dress norms are adapted to a tropical climate and a culturally plural society. In CBD offices, multinational corporations, and government settings, the standard leans toward smart casual or business formal, but fabrics are light. Long-sleeved shirts are common, but ties are usually unnecessary unless the meeting is high-stakes or with senior government officials. Women wear structured blouses, dresses, or tailored skirts that look professional without trapping heat. The emphasis is on neatness and care, not formality for its own sake.
-
-The visual contrast between the CBD and the heartlands is immediate. In industrial estates, smaller local firms, or public-facing roles, you'll see polo shirts, company T-shirts, or uniforms. In the financial district or at a pitch to a multinational, the look is sharper. Singaporeans read these distinctions quickly, and your choice of clothing can signal whether you understand the setting. For site visits to ports, construction zones, or worker dormitories, practical closed-toe shoes and a willingness to follow safety protocols show you're familiar with the work, not just the boardroom.
-
-Religious and ethnic dress is visible and unremarkable. You'll see hijab, tudung, sari, kurta, and cheongsam, particularly around festive periods. The workplace expectation isn't uniformity but modesty and neatness. Avoid beach casual, but also avoid conspicuous luxury branding in public sector or social enterprise settings, where it can feel misaligned with the values of the organization. The goal is to look prepared and respectful of the context, not to impress through expense.

@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In Malta, appearance is less about personal taste and more about what you communicate to the setting and the people in it. The country's smallness means signals travel quickly, and the effort you put into how you present yourself is often read as respect for the occasion and for others. This habit is reinforced by festa culture, where communities prepare for months to stage highly visible public rituals that celebrate local identity. That world trains a strong sense of occasion awareness, and it shows up in professional life too. A colleague from a culture where casual dress is seen as approachable or efficient may read Maltese formality as stiff or unnecessary, while a Maltese professional may read casual dress in a formal setting as inattentive or dismissive of the context.
-
-The setting itself can shift expectations. A business meeting in Valletta or another heritage-heavy area raises the baseline of what feels appropriate, because these spaces are experienced as representing Malta, not just housing it. A harbour-area venue, a village setting, and a modern international office can each call for different levels of formality, even within the same sector. In traditional industries and government offices, suits and formal tailoring remain standard. In tech and iGaming companies, business casual is more common, but even there, people tend to dress deliberately rather than casually. Some workplaces adopt Casual Friday, but that still means smart casual, not informal.
-
-When you are in a community-facing or heritage space, treat your dress as a respect marker for the place as well as the people. Until you have read the baseline for a specific setting, err toward polished and context-aware.

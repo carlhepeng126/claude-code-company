@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Botswana is shaped by a deep commitment to collective harmony and respect for interpersonal bonds. Direct criticism, especially in public, risks damaging relationships and disrupting the social fabric of the workplace. Even when performance concerns are serious, managers tend to approach them carefully, framing feedback in ways that preserve dignity and allow the person to save face. This reflects the wider cultural value placed on ubuntu—the idea that a person's identity and wellbeing are tied to the group. To criticize someone openly is to isolate them, which weakens the team as a whole.
-
-Positive feedback is shared more openly, though often in low-key, conversational ways rather than formal announcements. Praise that highlights individual achievement over team effort can feel uncomfortable or even divisive. Managers may acknowledge contribution in passing or through quiet recognition rather than singling someone out in front of others. For colleagues from cultures where public recognition is routine and motivating, this can seem understated. From a Botswana perspective, however, visible individual praise risks creating hierarchy or envy within the group.
-
-Developmental feedback usually happens in private and through indirect language. A manager might suggest an adjustment by framing it as something that would help the team or by asking a reflective question rather than naming the problem outright. The goal is to guide improvement without confrontation. Colleagues accustomed to direct, solution-focused feedback may find this approach slow or unclear, while someone from Botswana might read bluntness as disrespectful or dismissive of the relationship. Building trust before offering critique makes the conversation more effective, and checking understanding afterward helps ensure the message has been received without forcing agreement on the spot.

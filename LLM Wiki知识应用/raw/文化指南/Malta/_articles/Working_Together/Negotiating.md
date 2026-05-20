@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in Malta unfolds inside long social memory. In a small island society where repeat contact is almost guaranteed, deals are rarely viewed in isolation. People often weigh offers not just on immediate terms but through the lens of future dealings and reputational impact. A tough position today may complicate a partnership next year, or affect how you are talked about in circles where names travel fast. This expectation of continued connection shapes how people approach bargaining. The goal is often a sustainable relationship, not just a favorable close.
-
-Being known changes leverage. Credibility frequently comes from who vouches for you and how you are socially placed, not only from formal credentials or opening arguments. A trusted connector or shared tie can speed agreement because it reduces uncertainty. For a colleague from a culture where proposals are assessed primarily on their technical merit, this relational grounding may feel indirect. From a Maltese perspective, a counterpart who enters negotiation without relational context may seem disconnected or harder to read, making the process feel riskier than it needs to be.
-
-Dignity protection runs through the process. In a high-visibility environment where reputations are long-lived, pushing someone into a public corner can create friction that outlasts the deal. People tend to prefer solutions that allow everyone to remain respected, especially when future contact is likely. Forcing a public concession may win the point but lose the relationship. Framing agreements as mutually face-saving, rather than zero-sum, aligns with how most Maltese professionals manage both the negotiation and what comes after.

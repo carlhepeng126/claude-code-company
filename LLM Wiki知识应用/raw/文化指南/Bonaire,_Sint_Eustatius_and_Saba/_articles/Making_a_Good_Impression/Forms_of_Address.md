@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Formality in address runs through both Dutch and Caribbean traditions across all three islands, and this combination shapes how people are greeted and referred to in professional settings. Titles are used consistently. "Meneer" (Mr.) and "Mevrouw" (Mrs.) in Dutch, or "Señor" and "Señora" in Papiamentu or Spanish, are paired with surnames until someone explicitly invites first-name use. Professional titles such as "Doctor" or titles linked to public office are acknowledged and used. This formality reflects respect for role and position, which remain valued even in small island settings where personal networks are tight.
-
-The shift to first names usually happens through relationship rather than instruction. As trust builds and the connection becomes more personal, informality follows naturally, but it is rarely rushed. Colleagues from cultures where first names are offered immediately may read the sustained formality as distant or overly cautious, while local professionals may view rapid informality as presumptuous or lacking in respect for the stage of the relationship.
-
-Greetings vary by context and familiarity. A handshake is standard in business introductions, often accompanied by direct eye contact and a warm demeanor. Among colleagues who know each other well, especially in social or informal professional settings, a cheek kiss or a brief embrace may accompany or replace the handshake. This warmth does not erase the expectation of respectful address. In written communication, including email, formal openings and closings remain the norm until the tone has clearly shifted over time.

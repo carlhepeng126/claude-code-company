@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Bosnia and Herzegovina follows social and relational logic rather than rigid scheduling. The country's history of multiple governance systems, from Ottoman administration through Austro-Hungarian bureaucracy to Yugoslav socialism, layered formal timekeeping onto a culture where personal connection and situational context often take precedence. Today, meetings may start late or extend beyond their planned duration, less from carelessness than from a belief that rushing through conversation shows disrespect. A colleague who arrives fifteen minutes after the agreed time may still expect the full discussion, and pressing them to hurry can be read as prioritizing process over people.
-
-The approach varies by sector and generation. In international companies, banks, and organizations with strong ties to European partners, punctuality functions as a professional standard and deadlines hold. In public institutions, family businesses, or smaller enterprises, flexibility persists. Younger professionals working in global environments may align more closely with fixed schedules, while colleagues shaped by socialist-era workplace norms may see time as something to be managed around relationships rather than against them.
-
-A manager from a culture where meetings begin precisely on time may interpret late arrival as lack of commitment. From a Bosnian perspective, the same manager's insistence on starting without waiting for everyone may suggest impatience or a lack of regard for the group. Setting clear expectations early, confirming timing in advance, and allowing buffer time between appointments helps bridge these differences. When planning deadlines, factor in that decisions often require extended discussion, particularly when they involve coordination across different networks or institutions.

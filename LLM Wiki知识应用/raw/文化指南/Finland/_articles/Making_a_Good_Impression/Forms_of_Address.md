@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Finnish workplaces shift to first names almost immediately, even across levels of seniority. The move from "Mr Järvinen" or "Ms Korhonen" to "Matti" or "Hanna" typically happens within the first meeting or email exchange, and once made, the shift is permanent. This reflects Finland's low power distance, where hierarchy exists in function but is deliberately softened in how people address each other. Formality in address can read as coldness or unnecessary distance, so defaulting to first names once introductions are made helps build the kind of straightforward, collegial tone Finns expect.
-
-Titles such as "Doctor," "Professor," or "DI" (Diplomi-Insinööri, or chartered engineer) do exist and are valued, but they're used mostly in formal writing, academia, or introductions at official events. In conversation, dropping the title is normal, even with senior figures. Overusing titles in daily speech can come across as status-conscious or insincere, as though you're flattering rather than engaging on equal terms. Respect in Finland is shown through preparation, fairness, and directness, not through elaborate forms of address.
-
-Getting names right does matter. Finnish pronunciation includes diacritics like ä and ö, and making the effort to say "Järvinen" correctly or asking how to pronounce a name properly is noticed and appreciated. Starting an email with "Hei" instead of "Dear" aligns with the informal, functional tone of most Finnish professional communication. Where Swedish-speaking Finns are involved, acknowledging the language difference by asking "Is Finnish or English better for you?" is a small gesture that shows cultural awareness and courtesy.

@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Hierarchy runs deep in Ivorian professional life, shaped by both French colonial influence and longstanding respect for age, status, and authority. Addressing people correctly is one of the clearest ways to show you recognize their position and take the relationship seriously. In French, always use *vous* (the formal "you") rather than *tu*. Pair this with titles such as Monsieur or Madame, and include professional titles where they apply: Monsieur le Directeur, Madame la Chef de Service. First names come later, and only when invited. In written communication, especially initial emails or letters, it helps to make your own qualifications visible. Credentials establish credibility and place you in the hierarchy, which in turn shapes how you are received.
-
-Greetings begin with a handshake and eye contact, though the duration of the gaze varies by context. Prolonged eye contact can read as confrontational. If you are meeting a tribal chief or elder, lower your eyes after the initial contact as a sign of deference. Among women who know each other, three kisses on alternating cheeks are common. Men should wait for a Muslim woman to extend her hand before offering a handshake. These adjustments recognize religious and cultural variation within the country and prevent unintended offense.
-
-Business cards are exchanged at first meetings and should be printed in French or bilingual format. Academic and professional qualifications belong on the card. They are read carefully and help situate you within the professional order, which influences how much weight your voice will have in the room.

@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Benin's approach to time reflects a social framework where relational obligations and hierarchy shape when things happen, not the schedule alone. Meetings may begin after greetings, status acknowledgements, and exchanges that reaffirm connection. Someone arriving from a culture where meetings start on the minute may interpret this as lateness, while a colleague from Benin may see the initial fifteen minutes as part of the meeting itself, establishing the tone and trust that allow work to proceed. The clock moves differently when relationship comes before agenda.
-
-Flexibility increases when kinship or seniority enter the picture. A senior figure's availability can shift a timeline without explanation, and questioning the delay openly risks showing disrespect. In family-owned businesses or public offices, decisions may wait for the right person or the right relational moment. Younger professionals or those working in joint ventures with international firms may push for tighter timelines, but even then, social logic can quietly reassert itself. If a deadline conflicts with a funeral, a naming ceremony, or an elder's request, the deadline adjusts.
-
-This does not mean time is disregarded. It means time bends around people and context. A contract signing or client presentation will hold to schedule when formality and external expectations demand it, particularly in sectors tied to regional trade or foreign investment. But internal coordination, especially across hierarchies or family networks, often follows rhythms that value alignment over speed. Naming a clear milestone and checking in relationally, rather than only by email, helps clarify where a timeline truly stands.

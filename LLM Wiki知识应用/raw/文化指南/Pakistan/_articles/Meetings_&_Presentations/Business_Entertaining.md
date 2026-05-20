@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Hospitality in Pakistan is understood as a moral obligation, not just a social courtesy. The concept of *mehmaan nawazi* (honouring guests) reflects deeply on personal and family standing, and hosting generously is seen as an expression of integrity. Invitations to lunch or dinner are common once a working relationship begins to take shape, and these gatherings often serve as the real testing ground for trust. How someone speaks, behaves, and treats others in informal settings can reveal more than anything said in a formal meeting, and refusing hospitality too firmly can unintentionally block the host from fulfilling what they see as an ethical duty.
-
-Food itself carries meaning beyond the meal. Regional cuisines from Punjab, Sindh, Khyber Pakhtunkhwa, and Balochistan each reflect distinct identities and local pride, and Karachi's cosmopolitan food culture draws on all of these. Serving traditional dishes can be a way of welcoming someone into a particular cultural world, and showing genuine interest in the food and its regional roots often strengthens the connection. Business may not be discussed at all during these occasions, or only lightly, and that should be seen as intended, not as lost time. The gathering itself builds the relationship.
-
-Gender norms and family structures shape how entertaining unfolds. In many contexts, mixed-gender business entertaining is uncommon, and dinners may be men-only even in large cities. When family members are present, the tone and boundaries of conversation often shift. These formats reflect local respectability codes rather than personal preference, and following the host's lead on structure, guest mix, and conversational boundaries is expected.

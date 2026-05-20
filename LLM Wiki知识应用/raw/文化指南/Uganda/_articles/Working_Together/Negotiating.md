@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Trust comes before terms in Uganda. The conversation will only move toward the details of an agreement once your counterpart understands who you are, how you arrived, and whether you take the relationship seriously. This relational foundation reflects the influence of close-knit communities and networks, where someone's reliability is often assessed through social proof — who introduced you, how you have conducted yourself elsewhere, and whether you demonstrate visible respect. When someone offers a deal, they are also considering whether your working partnership will hold over time, and whether both sides can rely on each other beyond this single transaction.
-
-That foundation builds through language that connects fairness to shared values. Uganda's Christian and Muslim communities both contribute to a moral vocabulary that frames negotiation in terms of responsibility, gratitude, and doing right by others. Raising fairness explicitly — what is reasonable, what protects both parties — will resonate more strongly than pushing for efficiency or speed. Meanwhile, long familiarity with informal markets and everyday problem-solving creates a practical, flexible style. People are used to adjusting terms, finding alternatives, and working through constraints, especially in urban centers. Offering several workable options rather than a single preferred solution often reads as seriousness, not indecision.
-
-Expect the conversation to remain courteous even when positions diverge. A quiet "yes" may mean "let's continue talking" rather than firm agreement. Follow up with written confirmation to close the gap between politeness and commitment, and summarize next steps clearly so trust can attach to what actually gets delivered.

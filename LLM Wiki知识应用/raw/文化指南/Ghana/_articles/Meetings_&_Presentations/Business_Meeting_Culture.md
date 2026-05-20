@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Seating follows hierarchy, and observing it quietly builds credibility. The managing director, chief or senior figure often takes the head of the table, and others wait for them to speak first. Sitting in that seat uninvited can be read as overstepping, even in corporate environments. When meeting traditional authorities, the protocol becomes more formal. You may speak through an okyeame (a linguist), who frames your message in proverbial Twi before translating it. Rushing to speak directly to the chief or skipping opening libation or prayers disrespects the palace script. Allow time and budget for proper engagement, including drinks and linguist fees, rather than treating it like a standard office call.
-
-Meetings serve multiple purposes. Initial meetings build relationship and assess fit; business may barely be discussed. Conversations can be lively, illustrated with stories and proverbs, and may be interrupted by drop-in visitors or phone calls. Patience is expected. Decisions are made by consensus and may take longer than colleagues from cultures where senior figures decide quickly might anticipate. In turn, a Ghanaian colleague may perceive a fast decision as rushed or insufficiently consultative.
-
-A formal agreement in the meeting room does not always mean implementation is settled. Real decisions may be finalized later that day in a smaller inner meeting, or that evening on calls with a godfather, party executive or family elder. Follow up in smaller conversations with key influencers rather than assuming the formal "yes" is final. This allows you to understand who holds influence and where the decision truly sits.

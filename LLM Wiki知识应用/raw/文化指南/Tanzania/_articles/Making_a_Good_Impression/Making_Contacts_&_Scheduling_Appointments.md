@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Making contact in Tanzania begins with recognition of the person, not just the task. Tanzania's post-independence emphasis on *umoja* (unity) across a diverse range of ethnic communities created a baseline expectation of social inclusion and mutual regard. Greetings tend to be extended and inquiry-based, acknowledging someone's presence and wellbeing before any practical matter is raised. This establishes social safety and confirms that the other person is seen and valued. If you open with a warm greeting and some initial conversation, you signal that you understand the relationship comes before the request.
-
-A personal introduction through a shared network substantially reduces uncertainty and speeds coordination. Tanzanians generally prefer to work with people who come recommended, especially through trusted colleagues or community ties. In coastal regions and Zanzibar, where centuries of Indian Ocean trade shaped a culture of sustained contact and reputation, relationships are understood as part of wider living networks rather than isolated exchanges. In urban centers like Dar es Salaam, these connections may be more fluid and diverse. In rural or kin-based contexts, referrals and longer relationship arcs often precede firm commitments.
-
-When scheduling, allow time for greetings and confirm plans with courtesy rather than pressure. Meetings may start late or shift as priorities change, and uninvited visitors may join along the way. This flexibility reflects *utu*, the emphasis on maintaining dignity through calm tone and respect for each person's standing. A colleague from a culture where punctuality is tightly enforced might read this as disorganization. From the Tanzanian side, rigid insistence on fixed timing can feel abrupt and socially dismissive.

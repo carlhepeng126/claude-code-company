@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Malaysia is read through the filter of *budi*, the term for moral intention and social intelligence. Before assessing whether feedback is accurate, many Malaysians ask whether it sounds caring, respectful, and relationally aware. A comment delivered bluntly, even if true, can feel socially unsafe if it lacks this softer framing. Making your intent explicit at the outset, such as stating that you want to support someone's success or help protect quality, aligns with how *budi* shapes interpretation and makes the conversation easier to receive.
-
-Privacy is central. Because *malu*, the culturally significant experience of embarrassment and shame, functions as a moral guide, public critique can feel like social harm rather than development. Feedback given in front of others threatens face and dignity, even when the content is mild. Malaysian Malay-language research links face management, or *pengurusan air muka*, directly to linguistic politeness, meaning that preserving dignity is part of communicating competently, not a secondary concern. Coaching works best when it happens one-on-one, uses indirect or softened language, and allows the person to reflect without exposure.
-
-A colleague from a culture where feedback is direct and task-focused may read this approach as vague or overly cautious. From a Malaysian perspective, the same colleague's directness may come across as socially tone-deaf or even unkind, suggesting a lack of relational skill rather than efficiency. The difference lies in whether clarity or dignity takes priority in the exchange.

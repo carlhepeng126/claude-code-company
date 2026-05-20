@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in the Faroe Islands relies heavily on trust and an expectation that both sides will deal plainly. The islands have a small, interconnected population where reputations travel quickly, and people prefer to work with those they already know or who come recommended. This means the opening stages of a discussion often focus on establishing credibility and shared understanding before terms are put on the table. If you push for quick closure or lead with aggressive positioning, you risk being seen as someone who doesn't value the relationship beyond the immediate transaction.
-
-The process tends to be straightforward once trust is in place. Faroese negotiators usually state their position clearly and expect the same in return. Indirect tactics or sudden shifts in stance can create confusion or suspicion, particularly in a culture where consistency and transparency are closely linked to trustworthiness. Because most business networks overlap, a commitment made in one setting will likely be remembered in another, so people take care not to overcommit or promise what they cannot deliver.
-
-Decisions may take longer than expected, especially if the matter involves multiple stakeholders or community considerations. This reflects both the collaborative nature of decision-making and a preference for consensus over speed. A colleague from a culture where decisions are made quickly may interpret this as hesitation or lack of interest, while a Faroese counterpart may view rapid agreement without consultation as reckless or insufficiently grounded. Building in time for internal discussion and follow-up shows respect for how decisions are actually made.

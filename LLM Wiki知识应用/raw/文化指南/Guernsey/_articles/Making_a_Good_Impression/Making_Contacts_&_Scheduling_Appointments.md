@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Guernsey's small size and closely connected community shape how professional contacts are made. With a population of around 65,000, most islanders are already linked by family, school, or workplace ties. This means the most effective way into a business network is through a mutual connection. A direct cold call or unsolicited email may receive a polite response, but a personal introduction from someone already known and trusted moves things forward more quickly. When a local colleague or friend vouches for you, it provides immediate context and reassurance in a place where reputation travels fast and reputations are long remembered.
-
-Scheduling appointments is straightforward once contact has been established. Guernsey professionals generally work within structured business hours and appreciate advance notice. A few days' lead time is usually enough, and confirming by email is both expected and practical. Meetings tend to start on time and follow the agreed agenda, reflecting an environment where efficiency matters and time is respected. That said, if your contact has multiple roles across the island's finance, legal, or horticultural sectors, you may need to coordinate around a busy and sometimes unpredictable schedule.
-
-Because the island is physically compact, face-to-face meetings are the norm and often preferred over lengthy email exchanges. Suggesting a coffee or a brief meeting in St. Peter Port is rarely seen as premature once an introduction has been made. Building the relationship in person allows both sides to assess fit and build the kind of trust that underpins longer-term collaboration in a community where professional and personal worlds routinely overlap.

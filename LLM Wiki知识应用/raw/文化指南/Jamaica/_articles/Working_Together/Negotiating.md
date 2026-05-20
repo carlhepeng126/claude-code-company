@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in Jamaica is a reputation event. How you conduct yourself shapes not only the outcome but your future standing in that person's network. People remember whether you were fair or extractive, respectful or pushy, genuine or performative. This memory influences access, trust, and opportunity long after the agreement is signed. Proposals are often read through a fairness lens rooted in historical experience of exploitation and inequality. A deal that feels one-sided, even if technically standard elsewhere, can trigger distrust quickly. Make sure your offer feels balanced and transparent, and that you signal respect for the other side's position from the start.
-
-Jamaican negotiation style combines directness with warmth. People go straight to the bottom line and expect to haggle, so keep something in reserve and be ready for back-and-forth. At the same time, the tone may include humor, metaphor, and storytelling that soften friction while still making firm positions clear. This is how people keep the interaction workable without losing clarity. A colleague from a culture that prefers formal, structured negotiation may find this informality unsettling or interpret it as lack of seriousness. From the Jamaican side, a heavily scripted or impersonal approach can read as evasive, rigid, or even extractive.
-
-People pay close attention to whether you seem genuine, consistent, and respectful. The emotional feel of your approach is treated as evidence of whether you'll behave fairly after the deal is done. If you need to change direction during talks, be honest and upfront. Once an agreement is on paper, it's considered final, so any late shift that feels opportunistic can damage your credibility permanently.

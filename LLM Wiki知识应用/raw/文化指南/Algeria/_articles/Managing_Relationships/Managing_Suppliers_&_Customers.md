@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-In Algeria, reputation often functions as informal credit. Reliability is assessed through who knows you, what others say about you, and whether you honor obligations consistently. This reflects a wider trust ecology where formal systems may not be assumed to protect people, so social verification becomes the foundation for confidence. Deliver what you promise and do so repeatedly. People watch whether commitments hold over time, and consistent follow-through builds the kind of credibility that confident assurances alone cannot achieve.
-
-How you treat someone as a person directly shapes how they judge the quality of what you offer. Warmth, attentiveness, and behavior that protects dignity are read as seriousness and moral standing. This can feel unfamiliar to professionals from cultures where service is evaluated mainly on technical precision or speed. For them, the level of interpersonal care may seem unrelated to the transaction. From an Algerian perspective, efficiency without respect can suggest unreliability at a deeper level. Building loyalty means recognizing that treatment quality is socially meaningful, especially in smaller cities and community-rooted contexts where relationships carry more continuity.
-
-When problems arise, handle them without public exposure. Avoiding blame and protecting the other party's dignity prevents the kind of long-term distrust that public conflict can trigger. Discreet problem solving preserves the relationship and signals that you understand the cultural preference for repair over humiliation. Regional variation is real: internationalised urban markets may follow more standardized service approaches, while identity-salient settings, including some Amazigh communities, may place even greater emotional weight on recognition and fairness.

@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Senegalese forms of address operate across multiple registers at once. The same person may be Monsieur Ndiaye at a ministry meeting, Serigne Ndiaye in a religious context, and Moussa among peers. Choosing the right form for the setting shows you understand how context shifts meaning. French formal address remains the default in business and government, so Monsieur or Madame paired with the family name is a safe starting point. The formal "vous" is expected until someone explicitly invites "tu," and even then the shift may not happen quickly. Academic and professional titles such as Professeur, Docteur, or Ingénieur are used widely and taken seriously because they mark status and achievement.
-
-Religious and traditional titles operate on a parallel track and hold real social authority. Terms like Serigne (a Mouride marabout), El Hadji or Adja (someone who has completed the pilgrimage to Mecca), Imam, and Saltigué (a Serer ritual specialist) signal roles that command respect beyond formal rank. Recognizing these titles, especially in mixed or community settings, shows awareness of the hierarchies that shape daily life. Treating everyone as simply Monsieur or Madame can come across as tone-deaf when someone's religious or traditional standing is well known.
-
-Age and seniority shape how people address each other outside formal structures. Younger colleagues often use "grand frère" or "grand sœur" (older brother or sister), or "tonton" or "tata" (uncle or aunt), even with people they are not related to. This softens direct address and reinforces respect. Using a bare first name with someone noticeably older, without any marker of deference, can feel blunt. If unsure, pairing a first name with a respect term will usually land better than casual familiarity.

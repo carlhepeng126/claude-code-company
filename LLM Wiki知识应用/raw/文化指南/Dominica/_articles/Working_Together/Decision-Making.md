@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-In Dominica, decisions follow a consultative rhythm shaped by the island's social fabric and history of communal resilience. Leaders rarely move forward without gauging the views of those they trust, and consensus building is a practical necessity as much as a cultural value. The small size of the society means that decisions can ripple quickly through networks, affecting relationships and reputations beyond the immediate workplace. Managers are expected to maintain their formal authority while also listening widely, especially to those with experience or local standing. A decision made without this input risks being seen as disconnected or poorly judged.
-
-Consultation often happens informally, through conversations that may feel social but serve a strategic purpose. A manager might speak with key colleagues, community figures, or family members before finalizing a direction, not to undermine their own position but to ensure the decision fits both operationally and relationally. This approach reflects a broader expectation that leadership involves balancing clarity of role with sensitivity to how decisions land in the community. Announcing a plan before that groundwork is done can lead to quiet resistance or delayed implementation.
-
-For colleagues from cultures where decisions are made quickly and communicated top-down, this process can feel slow or unclear. From a Dominican perspective, moving too fast without consultation may appear disconnected or even reckless, a sign that relationships and social context have been overlooked. Understanding that consensus is not avoidance but a form of social diligence helps prevent misreading the pace as indecision.

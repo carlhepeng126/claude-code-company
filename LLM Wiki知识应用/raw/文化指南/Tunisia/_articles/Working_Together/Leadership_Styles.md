@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Tunisia reflects a blend of inherited authority and evolving expectations shaped by the country's French administrative past and post-revolution political culture. Leaders are expected to be steady, rational and approachable, but also to hold their position with dignity. The hierarchical tradition rooted in family and community structures remains recognizable, particularly in older public institutions and family-run businesses, but it now sits alongside a growing preference for fairness, accountability and consultation. Younger Tunisian professionals, especially those in multinationals and newer sectors, favor more participatory approaches.
-
-Despite this shift, fully autocratic management is rare. Studies show it accounts for only around 5% of cases. Instead, most Tunisian leaders adopt consultative or what is sometimes called pseudo-consultative styles. Input is invited and discussion is encouraged, but the final decision often stays with the person in charge. This is less about manipulation than about social function. Consultation preserves dignity, maintains harmony and affirms belonging, even when outcomes have already been shaped. It reflects values drawn from Islamic tradition and Mediterranean diplomacy, where being seen to include others upholds cohesion and allows authority to be exercised without creating division.
-
-Influence in Tunisian workplaces often moves through informal networks and conversation before it surfaces in formal meetings. A manager who combines visible authority with personal accessibility, and who takes time to consult key stakeholders individually, will build credibility faster than one who issues directives from a distance. Demonstrating moral integrity and treating people with consistent fairness matters more for long-term legitimacy than technical expertise alone.

@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Mexico begin with relationship, not agenda. Early conversations centre on family, weekend plans, or shared interests, and this warm-up is rarely rushed. The goal is to establish comfort and trust before turning to formal business. Skipping or cutting short these opening exchanges can come across as impatient or impersonal. If your approach to meetings is agenda-first, you may find the pace slower than expected. A colleague from Mexico, meanwhile, may interpret an immediate focus on timelines or deliverables as a sign you view the partnership purely as transactional. Begin with genuine small talk, and allow your counterpart to signal when the discussion is ready to shift.
-
-Respect for hierarchy shapes who speaks and when. Senior participants are acknowledged first, and junior team members often hold back until invited to contribute. Direct disagreement, especially in front of others, is unusual. Disagreement is more likely to be softened with indirect phrasing, humour, or raised privately after the room has cleared. Decisions are rarely finalised in the meeting itself. What is agreed in the room may be revisited with key stakeholders afterward, so expect post-meeting alignment to continue quietly behind the scenes.
-
-Regional communication patterns vary. Groups from northern states such as Nuevo León may be more direct and faster-paced, while central areas lean toward greater formality, and southern or Indigenous groups may prioritise relational trust even more strongly. Summaries sent after the meeting help turn broad discussion into clear next steps, and written follow-up confirms what may have been left implicit in conversation.

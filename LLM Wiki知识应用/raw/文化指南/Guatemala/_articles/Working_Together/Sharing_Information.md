@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-When someone in Guatemala is asked to share information, especially anything sensitive, their first instinct is often to wonder who else will see it. Generations of surveillance and unpredictable consequences have taught people to stay guarded when they cannot be certain how information will be used. A staff member may hold back details in a report or meeting if there is any chance it could reach their boss in an unfiltered form, let alone local authorities or criminal groups. When asking for data or feedback, explain clearly who will have access, how it will be protected, and what will not be shared onward. That transparency makes it far easier for people to respond openly.
-
-Much of the information that actually moves through an organization does not travel through email or formal channels. WhatsApp groups function as the real-time nerve system, carrying security alerts, road closures, extortion warnings, family emergencies, and local rumors as they happen. A colleague from a culture where formal documentation drives decision-making may see WhatsApp as too informal or hard to track, while a Guatemalan counterpart may find email slow and disconnected from the rhythm of daily life. Rather than dismissing WhatsApp as unprofessional, integrate it deliberately. Summarize key decisions in voice notes, follow up in writing when needed, and recognize that this is where urgent, ground-level information lives.
-
-Language gaps quietly hide misunderstandings. A Kaqchikel agronomist might nod politely during a rapid Spanish presentation full of acronyms, then later admit to a colleague in Kaqchikel that half of it made no sense. Build in moments for bilingual clarification. Ask a trusted colleague, "Does this make sense in K'iche' or Q'eqchi'?" and be ready to rephrase without assuming that silence means agreement.

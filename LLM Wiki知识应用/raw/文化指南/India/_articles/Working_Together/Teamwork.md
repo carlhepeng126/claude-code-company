@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Indian teams often feel warm and collaborative, yet they operate within clear senior-junior layers. Seniors guide, decide, and shelter juniors from risk or exposure; juniors execute, respect authority, and avoid openly contradicting seniors in group settings. This reflects a broader cultural expectation that hierarchy creates order and that protecting dignity, especially in public, maintains trust and harmony within the group. A team meeting may feel informal and even humorous among peers, but when a senior is present, the tone shifts. Silence from junior members rarely means agreement; it may simply mean they are waiting for the appropriate moment or channel to express their view, often after the meeting or through a trusted intermediary.
-
-When formal systems or resources fall short, teams rely on *jugaad*, a term describing resourceful, improvised solutions that draw on personal networks, creativity, and whatever tools are at hand. Colleagues may stretch beyond their formal roles, call in favors, or bypass slow processes to meet deadlines. This adaptability makes Indian teams resilient, but it can also blur boundaries around compliance or formal procedure. For collaborators used to following documented processes closely, agreeing upfront on where flexibility helps and where it risks problems becomes essential.
-
-Teams can feel like extended families. People share food, cover for colleagues during personal crises, and stay late when the group is under pressure. This closeness fosters loyalty and mutual support, but it also comes with expectations: one more favor, one more late night, one more task is often met with effort rather than refusal. For partners negotiating deadlines or scope, recognizing this dynamic and building in realistic buffers helps keep collaboration sustainable.

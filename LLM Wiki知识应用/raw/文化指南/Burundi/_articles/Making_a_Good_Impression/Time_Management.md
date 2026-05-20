@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Burundi's professional life follows relational rhythms, not the clock alone. Meetings begin when the right people arrive and conversations have concluded properly, which can mean an hour or more after the stated time. This is rooted in a culture where connection and hierarchy matter more than schedules. Rushing through a greeting or cutting someone off mid-conversation to honor a timetable risks appearing disrespectful or transactional. For colleagues from cultures where start times are fixed expectations, this can feel disorganized. From a Burundian perspective, a colleague who checks their watch or ends a discussion abruptly to move to the next appointment may seem cold or dismissive of the relationship.
-
-Deadlines exist, but they bend when relationships require it or when senior figures need more time to consider a decision. This flexibility reflects a social order where maintaining harmony and respecting seniority outweigh abstract timelines. A project timeline that assumes linear progress without room for consultation or unexpected delays will likely need revision. Building buffer time into plans and checking in regularly without framing the question as pressure will yield more realistic commitments.
-
-Urban professional settings, particularly those with international exposure, show more adherence to punctuality and deadline discipline. Even there, however, the expectation is that time will accommodate people, not the reverse. Arriving exactly on time to a meeting may mean waiting, and that wait is not wasted but an acknowledgment that the social fabric takes precedence.

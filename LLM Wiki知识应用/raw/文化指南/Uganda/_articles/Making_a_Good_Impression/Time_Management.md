@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-In Uganda, time is shaped by social and relational obligations more than by the clock. Availability reflects responsibilities to extended family, community events, and religious commitments, which often sit alongside professional schedules. A colleague may need to attend a funeral upcountry, respond to a family emergency, or fulfill a community obligation at short notice. These are legitimate priorities, and the expectation is that time will bend to accommodate them. This reflects a relational view of time, where people come before deadlines and presence at certain events signals respect and social accountability.
-
-Kampala's density and commuting challenges add a practical layer to timing. Traffic congestion and infrastructure constraints can make travel times unpredictable, even for short distances. Scheduling meetings with tight back-to-back windows often leads to delays, not because people are indifferent to time but because movement itself is difficult to control. Offering flexible windows and confirming plans closer to the day helps accommodate these realities. If someone is running late, they will often communicate the delay and propose a new time, maintaining the relationship rather than letting the schedule collapse entirely.
-
-Major ceremonies such as weddings and funerals operate on a different rhythm. These events begin when people arrive, because collective presence and relational acknowledgment are central to the occasion. Trying to schedule professional commitments during or immediately around these gatherings will create tension. Colleagues from cultures that prioritize strict clock time may read this flexibility as disorganization, while Ugandan colleagues may see rigid adherence to schedules during important social events as disconnected from what holds communities together. Planning around these moments, rather than competing with them, recognizes the weight they hold.

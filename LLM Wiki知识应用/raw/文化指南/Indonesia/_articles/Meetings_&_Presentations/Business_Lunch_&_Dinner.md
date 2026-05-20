@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-For many Indonesians, a meal without rice is belum makan — you haven't really eaten. Even in upscale restaurants, rice appears alongside fish, beef, or vegetables, regardless of what else is on the table. This reflects a practical reality rooted in everyday life. Rice provides substance and balance, turning what might otherwise feel like a light dish into a proper meal. If you're hosting, make sure rice is always available, even if you've planned a Western menu. Framing pasta or bread as the main carbohydrate for everyone can leave Indonesian colleagues feeling like they've only had a snack.
-
-Business meals don't always happen in hotel dining rooms. You may be invited to a warung, a rumah makan Padang with dishes stacked in the window, or a lesehan where people sit on mats. These are everyday places, often noisy and informal, and choosing to eat there with a partner says you're willing to step into their world. It builds trust in a way that a polished restaurant rarely does. In more traditional settings, people still eat with the right hand only. Sambal, a chili paste central to most meals, often becomes a talking point. Using your left hand for shared food or visibly struggling with spice can draw quiet attention.
-
-During Ramadan, the rhythm of business meals shifts entirely. Daytime meals disappear, and evenings are organized around iftar, the breaking of the fast. Inviting partners to a well-planned iftar, or simply acknowledging that they may be tired or distracted before sunset, shows genuine cultural understanding. Avoid scheduling lunch meetings during this period. Instead, ask if a joint iftar would be welcome, and plan around prayer times and the traffic surges that follow.

@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Americans are often eager to share ideas openly, especially within teams and in the early stages of projects. Brainstorming sessions, email exchanges, and collaborative meetings are standard ways to gather input and refine thinking. This openness reflects a cultural emphasis on participation and the value placed on generating fresh ideas from across the group. Once an agreement is reached, Americans typically spell out decisions in writing, making expectations and responsibilities clear. The written record serves as a reference point and helps avoid misunderstanding later.
-
-At the same time, there is a clear boundary around what gets shared and when. Information is often released on a need-to-know basis, particularly in negotiations or competitive situations. Holding back certain details is seen as a practical way to retain leverage and protect interests. Americans are especially protective of intellectual property, and non-disclosure agreements are common when sharing sensitive material. This caution coexists with the broader openness and is understood as responsible practice rather than mistrust. Colleagues from cultures where information flows more freely once initial rapport is established may find the formal controls surprising, while Americans working in those settings may feel uncertain about how widely their contributions will be circulated.
-
-Putting agreements in writing is not just about legal protection. It reflects a preference for clarity and a reliance on documentation over verbal assurances. If something is important, it should be recorded. This makes follow-up easier and ensures everyone is working from the same understanding.

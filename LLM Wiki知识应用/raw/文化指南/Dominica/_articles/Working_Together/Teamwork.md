@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teams in Dominica tend to function through personal connection rather than role assignment alone. People work together more comfortably when there is time to build trust and familiarity first. A colleague joining a project mid-stream may find the group cordial but not immediately open. Colleagues who move quickly into task allocation without informal conversation can seem abrupt or overly transactional. If you are leading a team, allow time at the start for casual exchange. If you are joining one, a few minutes spent asking about weekend plans or family before diving into the agenda will ease the path.
-
-Hierarchies are present but lightly held. Senior colleagues guide more than direct, and junior members are often expected to learn by observation rather than through explicit instruction. Direct challenge to a senior colleague's view, especially in group settings, is rare. This reflects a broader cultural preference for preserving dignity and avoiding public disagreement. If you come from a setting where debate is welcomed as a sign of engagement, be aware that silence in a meeting may signal respect rather than agreement. If you need to raise a concern, consider doing so one-on-one first.
-
-Age and experience shape how collaboration unfolds. Younger team members, particularly those with international exposure, may be more comfortable with direct task division and written communication. Older colleagues may rely more on verbal agreement and expect follow-up through personal contact. If the team spans generations, check in individually to confirm understanding rather than assuming a single email will reach everyone in the same way.

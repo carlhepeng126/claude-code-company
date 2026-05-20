@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-The setting you choose for a business meal tells a story about identity. Traditional mehanas (taverns with folk décor, grilled meats, and folk music) signal a desire to share "real Bulgaria" and are often used when the host wants to emphasize warmth and local pride. Newer bistros in Sofia and Plovdiv reflect a more European, urban identity. Where someone suggests meeting locates them on that cultural map, and choosing carefully shows you've understood which version of themselves they want to bring into the room.
-
-The meal itself follows a choreography built around sharing. Bulgarians order shared salads, grilled platters, and rounds of drinks as a way of creating connection. Itemized "every man for himself" ordering can feel cold and transactional. Toasts, known as nazdrave, serve as brief emotional signals that reinforce the relationship. A colleague from a culture where everyone orders their own plate and settles their own bill might read this communal structure as inefficient or awkward. From the Bulgarian side, individual ordering without the rhythm of sharing can seem distant, as if the relationship hasn't truly begun.
-
-Many Bulgarians keep a clear line between work and intimate family life. Inviting business contacts into deeply private spaces such as family events or children's birthdays is a big step, especially if someone has seen work relationships sour in the past. Don't push too quickly for invitations into homes. Let social intimacy grow at the pace your counterparts set, and recognize that a restaurant meal may be where the warmth lives.

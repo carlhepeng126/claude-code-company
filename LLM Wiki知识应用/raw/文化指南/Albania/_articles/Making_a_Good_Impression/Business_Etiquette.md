@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Albanian business culture is built on personal connection, and that begins with how you greet someone. Handshakes are standard, firm and direct, and usually accompanied by steady eye contact. In informal settings or among colleagues who know each other well, greetings may include a light kiss on both cheeks. First names are used early and often, which can feel surprisingly casual to professionals from more formal environments. This informality reflects a preference for warmth and approachability over distance and protocol. Address people as they introduce themselves, and follow their lead on tone.
-
-Titles are used selectively. In government, academia, or large organizations, formal address using a title and surname shows respect, especially with senior figures. In startups, NGOs, or smaller businesses, first names dominate from the outset. The dividing line is often generational as much as sectoral. Younger professionals, particularly those working in international or entrepreneurial contexts, tend to move quickly to informal terms. Older colleagues or those in traditional hierarchies may expect more formality until a relationship develops. If in doubt, start with a title and let your counterpart soften the frame.
-
-Dress is generally smart and conservative, especially in formal settings like banking, law, or government. Men wear suits or tailored trousers with a shirt; women opt for professional attire that covers shoulders and knees. In tech companies or creative sectors, the code loosens, but even there, presentation matters. Appearance is read as a sign of respect for the occasion and the people you are meeting. Arriving in overly casual clothing, especially at a first meeting, can be interpreted as a lack of seriousness. Pay attention to the context, and when uncertain, err on the side of formality.

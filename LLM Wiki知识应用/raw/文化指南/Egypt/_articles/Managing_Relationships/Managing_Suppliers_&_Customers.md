@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Before many Egyptian businesses choose a supplier or extend credit to a customer, someone picks up the phone. They ask trusted contacts whether the other party pays on time, whether they are respectable—*'ālī 'asl*—and whether they play games with terms or deadlines. This informal due diligence through *wasta* networks often outweighs glossy presentations or formal tenders. In an environment where formal contract enforcement can be slow and unpredictable, reputation becomes the real currency. If you pay suppliers reliably, word travels quickly and opens doors that no brochure can.
-
-Egyptian supply chains frequently operate as pyramids. Small workshops and traders sit beneath a few large contractors, who in turn depend on state agencies or major corporates. Payment delays cascade downward, turning a two-week hold at the top into real hardship at the bottom. When working with smaller suppliers, rigid penalties for late delivery may miss the point. The bottleneck is often structural—customs clearance, forex allocation, permit approvals—and joint problem-solving around these obstacles will yield more than contractual enforcement alone.
-
-Customer loyalty in Egypt is less about the lowest price and more about being personally known and looked after. A bank manager who calls when there's an issue, a supplier who fixes a problem without bureaucratic back-and-forth—these gestures generate repeat business. For international firms, combining solid processes with named relationship managers who can solve problems directly will build stronger customer retention than efficiency alone. People return to those who recognize them, not just to those who deliver on time.

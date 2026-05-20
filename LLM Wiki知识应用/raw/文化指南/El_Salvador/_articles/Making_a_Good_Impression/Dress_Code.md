@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional presentation in El Salvador is shaped by respect, formality, and an awareness of how appearance reflects on relationships and status. In business settings, people generally dress conservatively. Men wear long trousers and collared shirts, often adding a tie or jacket for formal meetings. Women typically choose modest blouses, skirts, or tailored trousers. Dark or neutral colors are common, and the overall impression leans formal rather than casual. This reflects a broader cultural expectation that how you present yourself communicates how seriously you take the meeting and the people you're meeting with. Arriving well-groomed and appropriately dressed signals professionalism and builds initial credibility.
-
-The level of formality varies by sector and setting. In banking, law, government ministries, and traditional corporate environments, full business attire is standard. Suits are expected for senior-level meetings, especially first encounters. In more contemporary industries like technology startups or creative agencies, business casual may be acceptable, but even here the style remains polished and deliberate. A colleague from a tech environment used to wearing jeans and sneakers may be surprised by the more buttoned-up norm, while a Salvadoran professional entering a highly informal workspace abroad might initially read the relaxed dress as lack of seriousness.
-
-San Salvador tends to be more formal than smaller cities or rural areas, where dress codes soften slightly. Younger professionals, particularly those who have studied or worked abroad, may adopt a more relaxed style, but they still adjust upward when context requires it. If you're unsure, aim slightly more formal. Overdressing is rarely a problem; underdressing can create an unintended impression of informality or disregard.

@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiations in Ecuador are built around trust and personal connection, and those foundations take time to establish. Early conversations may spend more time on relationship-building than on contract terms, and that investment is expected. Counterparts want to know who you are, not just what you're offering. Moving too quickly to numbers or timelines before the relationship has taken shape can feel transactional, and may stall progress rather than speed it up. If you are working with someone from a culture where decisions are made quickly and contracts are signed early, this phase may feel indirect. From the Ecuadorian side, a partner who pushes for closure before rapport is established may seem uninterested in a genuine, lasting relationship.
-
-The process itself may not move in a straight line. A point you thought was settled might be revisited later, or the conversation may shift to a new topic before the current one feels finished. This circling back allows both sides to refine their understanding and confirm that all concerns have been addressed. It reflects a collaborative approach rather than a linear one, and can surface issues that might otherwise be missed.
-
-Pace also plays a strategic role. A slower rhythm may indicate the need for internal consultation, or it may suggest that your counterpart is assessing flexibility on your side. For this reason, presenting your best offer too early can leave little room to negotiate. Bargaining is understood as part of reaching a fair outcome, and leaving space for movement helps both parties arrive at an agreement that feels balanced.

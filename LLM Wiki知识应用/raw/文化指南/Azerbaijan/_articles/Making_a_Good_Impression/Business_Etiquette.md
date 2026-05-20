@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Azerbaijan's professional etiquette rests on two layers that do not always align. On the surface, offices feel modern and secular. Underneath sit codes of honor (*şərəf*) and shame (*ayıb*) that govern how people treat each other. Public rudeness, raised voices or humiliating someone in front of others are strongly frowned upon, even if no one states this directly. If you need to challenge a colleague or raise a concern, do it calmly and in private, preserving the person's dignity. Public criticism, however efficient it may feel in the moment, can damage the relationship in ways that take a long time to repair.
-
-Hospitality is woven into professional behavior through *qonaqpərvərlik*, the Azerbaijani ethic of welcoming others. Offering tea, sweets and sometimes fruit is standard practice in meetings and throughout the workday. A manager who never offers anything to visitors or staff looks cold, regardless of how efficient they are. Accept tea or at least water whenever you can. Treating hospitality as an interruption or a nuisance suggests impatience and a lack of respect for the culture's rhythm.
-
-Certain topics carry emotional weight that goes beyond business logic. Karabakh, territorial integrity and national heroes are not simply geopolitical talking points. Even cosmopolitan professionals may react strongly if they feel these subjects are being treated lightly or framed as open questions. Be careful with jokes or analogies that play with borders or identity, and show that you understand the sensitivity involved. How a host treats their own staff and you during these interactions reveals deeper values and offers a preview of how they will behave in a long-term partnership.

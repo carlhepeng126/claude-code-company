@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Access to decision makers in Guinea runs through networks built on region, faith and family. A contact from Labé will look first for Fulani from Fouta Djallon when they arrive in Conakry; a trader from Kankan relies on Malinké connections that stretch through mining towns and markets. These regional webs, shaped by Guinea's distinct geographic zones (Haute Guinée, Basse Guinée, Fouta Djallon, Guinée Forestière), define who is willing to vouch for you and who will listen when they do. Introductions from marabouts in Fouta, Mandé griots in Upper Guinea, or respected elders in forest towns open doors more effectively than any formal letter. Their word signals you are known, not just another passing project. If you are working through official channels alone, expect slower progress and more rescheduling.
-
-Once introduced, expect to meet gatekeepers before you meet decision makers. Offices in Conakry sit behind walls, guards and crowded courtyards. Receptionists, guards and messengers decide who gets in and when, managing risk in a capital shaped by coups and protests. How you treat them echoes up the chain. Courtesy, calm and willingness to accept tea while you wait say more about your reliability than any business card.
-
-Waiting is common, sometimes for hours. People watch whether you stay composed, greet everyone who passes, or show irritation and status anxiety. Visible respect under these conditions earns trust. Colleagues from cultures where tight schedules signal professionalism may read this as disorganization; Guineans may read impatience as arrogance or a lack of seriousness about the relationship itself.

@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Many Senegalese audiences expect a presentation to follow a narrative arc. This reflects the griot tradition, in which storytellers set the scene, honor those present, invoke shared values, and then land the point. Opening with who you are, why you're there, and how your message connects to Senegalese realities—regions, sectors, youth unemployment, religious practice—creates common ground. A presentation that launches straight into bullet points or data can feel abrupt and miss the relational foundation that makes the content credible.
-
-French is the formal language of business, but in a single presentation people may slide between French, Wolof, Pulaar and occasional English. Key ideas will be translated into Wolof on the fly, and what ultimately resonates is whether they sound right in Wolof, not just in polished French. Design content that can be easily rendered in any language: simple structures, clear metaphors, no bureaucratic jargon. Expect side-talk and partial translation during your delivery. Pause and invite recaps in Wolof or Pulaar rather than trying to control every moment.
-
-This is a culture of music, rhythm and visual flair, shaped by mbalax, rap, bright textiles and vibrant public life. Dry, text-heavy slides clash with how many people are used to absorbing information. Photos of villages, markets, mosques, rice fields, fishing piers or wrestling arenas speak more powerfully than charts alone. Use images, short anecdotes, and where appropriate—after checking with local colleagues—a proverb or two to make your points land. Story and sensory detail do the work that polish cannot.

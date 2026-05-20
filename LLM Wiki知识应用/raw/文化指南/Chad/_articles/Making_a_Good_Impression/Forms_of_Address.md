@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Chad, respect in professional life begins with how you address someone, and this reflects a deep awareness of social position, age, and experience. Formal titles are the standard starting point. Addressing colleagues as "Monsieur" or "Madame" followed by their surname is expected in early interactions, and professional titles such as "Docteur" or "Ingénieur" should be used where they apply. In francophone settings, written formality extends into emails and letters, where greetings like "Cher Monsieur" and closings such as "Cordialement" signal the seriousness of the exchange. First names are reserved for established relationships, and waiting for an invitation to use them shows that you understand hierarchy.
-
-This formality is rooted in Chad's respect for age and social standing, where seniority often determines authority in both public and private sectors. Moving to first names too quickly can suggest a lack of awareness or an attempt to flatten distinctions that others see as meaningful. Even in more relaxed settings, the shift happens gradually, and it is often led by the senior person in the relationship.
-
-In Arabic-speaking communities, forms of address reflect similar deference but draw on different linguistic conventions. Titles tied to religious or community roles, such as "Sheikh" or "Hajj," are used with care and recognition. A colleague from a culture where first names are used early in a working relationship might read Chad's formality as stiff or slow to build rapport, while a Chadian counterpart may view immediate informality as presumptuous or disrespectful. If unsure, err on the side of formality and let your counterpart guide the tone.

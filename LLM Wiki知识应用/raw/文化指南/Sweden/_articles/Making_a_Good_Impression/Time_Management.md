@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Punctuality in Sweden is treated as a form of respect. Turning up on time to meetings, or a minute or two early, shows that you take others and their schedules seriously. Being late without a good reason is read as disorganized or dismissive, and it undermines the reliability others expect from you. If you are delayed, sending a quick message with an updated arrival time is the expected response. Meeting culture reflects this same precision: sessions start and finish when scheduled, and letting discussions drift past the endpoint weakens confidence in your planning.
-
-Work-life boundaries are taken seriously, even by ambitious professionals. Work that regularly spills into evenings, weekends, or holidays is understood as a sign of poor planning rather than dedication. Teams will put in extra effort when deadlines require it, but building plans that assume constant late nights or weekend availability will generate quiet resistance and erode goodwill over time. The expectation is that time is managed well enough during working hours that private time remains protected.
-
-Sweden's calendar has built-in slowdowns that shape decision cycles. The July and early August *industrisemester* (industrial holiday) brings a dramatic pause, with many people away for several weeks. School holidays, parental leave schedules, and afternoon pickup times for children's sports and activities also influence availability. Avoid scheduling major deadlines, rollouts, or workshops during peak holiday weeks, and check local school calendars if you need significant commitment. Long weekends in summer often mean people leave for lakeside cabins on Friday afternoons, so late-week expectations should adjust accordingly.

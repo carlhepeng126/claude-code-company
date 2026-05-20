@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-In Uruguay, shared food often bridges the gap between polite formality and genuine connection. Business meals move gently from public correctness toward relational warmth, particularly when sobremesa — the time spent lingering at the table after eating — is allowed to unfold. This extension of the meal, often over coffee or another round of drinks, is where trust deepens and conversation shifts from surface topics to more substantive exchanges. If you cut the meal short or signal readiness to leave immediately after the last course, you may inadvertently close the door on the rapport you came to build.
-
-Restraint in tone and gesture often signals confidence and good taste. Ordering modestly, speaking without dominating the table, and avoiding overt displays of status are read as tact rather than timidity. Strong opinions and humor are welcome, but the interpersonal tone remains contained and dignified. A colleague from a culture where animated debate is expected might interpret this restraint as disengagement, while a Uruguayan counterpart might read high-volume argument as a breach of respect and composure.
-
-The setting itself shapes the social cues. A meal in Montevideo may carry a more cosmopolitan, measured tone, while gatherings in rural areas or resort towns can be more relaxed and informal. Bring heavier topics in gradually, listen proportionately, and protect dignity if disagreement surfaces. Let the host guide the pace, and recognize that the most valuable part of the meal may come after the plates are cleared.

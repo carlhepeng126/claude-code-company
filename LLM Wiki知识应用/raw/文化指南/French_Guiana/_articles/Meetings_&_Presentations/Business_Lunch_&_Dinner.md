@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in French Guiana reflect the department's layered identity as both a French overseas territory and a Caribbean-South American crossroads. French dining conventions provide the baseline structure. Lunch is the main meal of the day and can extend well past an hour, particularly when hosted at a sit-down restaurant rather than a quick counter. Meals follow a recognizable French rhythm: a starter, main course, and dessert, often punctuated by coffee at the close. The pace is relaxed, and conversations meander between work topics and personal exchanges. Moving too quickly through courses or steering every pause back to business can feel abrupt and may suggest you are more focused on the transaction than the relationship.
-
-The menu itself often bridges influences. French staples like baguettes and wine sit alongside Creole dishes such as colombo (a curry-influenced stew) or bouillon d'awara (a slow-cooked dish made with the local awara fruit). Fresh fish and cassava are common. In Cayenne and larger towns, international restaurants reflect the mix of French expatriates, Creole communities, and arrivals from Suriname, Brazil, and Haiti. Asking about ingredients or showing genuine interest in the food tends to be well received. It signals respect for the cultural hybridity that shapes daily life here.
-
-Alcohol, particularly wine, is widely available and often part of business meals, following metropolitan French norms. That said, not everyone drinks, and offering or declining without explanation is perfectly acceptable. If you have dietary restrictions, mention them in advance. Vegetarian options are less common outside Cayenne, and assumptions about what is available may not hold across all settings.

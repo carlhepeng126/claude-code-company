@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Many urban professionals in Ethiopia support extended networks that reach back to rural families and home villages. They pay school fees, contribute to church building, cover funeral costs, and send money for relatives' medical bills. A steady salary does more than support one person; it sustains a web of obligations that tie someone to their *beteseb* (close circle) and their community of origin. Managers who understand this will see why small delays in payroll cause real distress, and why financial reliability anchors loyalty in a way that performance bonuses alone cannot.
-
-Training opportunities, overseas conferences, and recognized certifications are powerful motivators. People view them as long-term assets that survive political change and economic turbulence. These opportunities hold particular appeal for younger professionals, but distributing them transparently across regions and groups prevents resentment. Offering professional development to only one faction or ethnic group risks being read as favoritism, undermining the very motivation you are trying to build.
-
-Recognition becomes meaningful when it connects individual work to specific communities. Framing an achievement as helping farmers in Wollega, saving water in Tigray, or strengthening schools in Sidama taps into both regional identity and a sense of purpose that abstract KPIs cannot match. A colleague from a culture where individual performance metrics drive motivation might find this community-oriented framing indirect, while an Ethiopian colleague might find purely individual recognition hollow or even isolating. Praise that names the place and the people served lands with emotional force.

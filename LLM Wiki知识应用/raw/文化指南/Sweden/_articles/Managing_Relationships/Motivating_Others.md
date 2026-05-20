@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-In Sweden, motivation flows from trust and autonomy far more than from oversight or material reward. People expect to be given responsibility and then left to do their work. Micromanagement deflates engagement quickly, signaling that the manager does not believe the person is competent. When team members are trusted to organize their own approach within clear goals, and when they have the tools and training to do the job well, they are far more likely to invest creativity and care in the outcome.
-
-The story a role tells about itself also matters. Swedes gravitate toward work that contributes to something beyond profit alone: public service, climate action, equality, innovation that improves lives. A project framed only around growth targets or shareholder return will struggle to inspire. Frame the same work around how it serves users, patients, or communities, and the team's commitment often deepens. This is not idealism detached from results. It is a deeply rooted sense that good work should benefit the collective, and that personal effort gains meaning when it does.
-
-Work-life balance is not a perk in Sweden. It is a baseline expectation. The ability to collect children from preschool, take parental leave, use vacation time, or spend summer at the cottage is central to how people define a good life. A job that constantly intrudes into private time, no matter how prestigious, will lose its appeal. If you must ask someone to work late or defer leave, treat it as exceptional and compensate it fairly. Recognize teams for sustained, reliable delivery over time, not for late-night heroics or weekend sprints.

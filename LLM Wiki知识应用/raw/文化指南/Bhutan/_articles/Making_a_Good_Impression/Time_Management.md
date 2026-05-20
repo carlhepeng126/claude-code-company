@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-In Bhutan, time is understood through the lens of Buddhist values and a relational society where personal connection and spiritual wellbeing shape how schedules unfold. Deadlines exist, but they rarely override the need to maintain harmony, consult appropriately, or allow space for reflection. A meeting may start later than planned if a senior figure is delayed or if consensus has not yet formed. This reflects a belief that rushing a decision or bypassing proper process can damage relationships and lead to poorer outcomes. For colleagues from cultures where punctuality signals professionalism, this can feel uncommitted. From a Bhutanese perspective, the insistence on rigid timing at the expense of thoughtful consultation can seem transactional and disconnected from the substance of the work.
-
-Flexibility does not mean absence of accountability. In government ministries and formal institutions, timelines are acknowledged and progress is expected, but the path to meeting them often involves layers of consultation and approval that take longer than outsiders anticipate. Pushing for speed can be read as disrespectful, particularly if it appears to dismiss hierarchy or the need for collective input. Setting realistic timelines at the outset, and building in time for discussion and alignment, avoids unnecessary friction.
-
-Urban offices and younger professionals, especially those with international exposure, may adopt more structured approaches to scheduling. Even so, the underlying rhythm remains relational. Arriving on time to a meeting is courteous, but the meeting itself may not begin until greetings are exchanged and the social tone is set. Time serves the relationship, not the other way around.

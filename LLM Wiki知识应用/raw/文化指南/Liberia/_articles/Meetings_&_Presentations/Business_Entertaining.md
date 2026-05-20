@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Liberia is where relationships are truly built. Hosting communicates respect and inclusion, and the generosity with which someone receives you forms part of how they present themselves morally. A meal invitation is more than courtesy; it's a sign that your counterpart wants to create a space of safety and connection. Accepting warmly and reciprocating when possible strengthens the bond.
-
-Meals are social events, and the act of eating together shifts the tone of a relationship. This is where people observe character through small cues: how you interact with others at the table, your ease with the rhythm of the gathering, your respect for the setting. Business may come up lightly, but the real purpose is relational. Bringing up contract details too early or treating the meal as a working session can feel transactional. If you've been invited out by a group rather than an individual, expect it; Liberians often enjoy dining in larger gatherings, and this preference for accompanied events reflects comfort with collective presence, especially in mixed-gender settings.
-
-Rice sits at the center of Liberian food culture, often served with soup or stew. Choosing a venue that reflects this, or showing ease with local dishes when hosted, reinforces connection. In Monrovia, you'll find a wider range of restaurants, including American, Lebanese, and Asian options, and several beach-side spots. Outside the capital, choice is more limited, and entertaining may feel more community-anchored with stronger elder visibility. Reading the setting and adjusting your tone accordingly will help you navigate both contexts with credibility.

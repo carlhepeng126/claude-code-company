@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-The yearly or semi-annual development discussion, known as *kehityskeskustelu* (development discussion), holds real weight in Finnish workplaces. Many Finns see it as the main structured moment to talk openly about workload, goals, wellbeing, and development. If a manager rushes through it or treats it as a tick-box exercise, employees quietly downgrade their trust. The expectation is that you come prepared with examples, listen more than you talk, and agree on a few concrete steps. Following up on what was discussed builds credibility; letting it disappear into the HR file drains it away.
-
-Finnish feedback tends to be blunt in content but restrained in form. A manager might say "This report is confusing" or "This isn't at the level we need" very directly, but usually in a low, steady voice. Emotionally loaded words, sarcasm, or managerial theatrics feel unprofessional. People are reading your control of yourself as much as they're hearing the words. A colleague from a culture where feedback is layered with encouragement or positive framing may find this abrupt, while a Finnish colleague working abroad may interpret elaborate cushioning as evasive or unclear. Self-critique is also expected. People are used to being asked "How do you think this went?" and answering honestly, including what they could do better. Starting a session by asking for the employee's own assessment makes the conversation more collaborative and respects their professionalism.
-
-Praise exists but is dialed down. It tends to be specific and modest: "This section is clear" or "Customers reacted well to that." Over-the-top compliments, especially in front of others, can embarrass the receiver. The absence of any positive feedback over time, though, erodes motivation. When you give it, ground it in evidence rather than personality labels.

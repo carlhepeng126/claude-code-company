@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Colombia bends around relationships and the realities of daily life, then snaps tight when formal stakes are high. A morning meeting can drift by 20 minutes because of traffic on the Autopista Norte, a sudden downpour, a street protest or an unexpected *trámite* (administrative errand), and that fluidity is understood. People arrive when they can, and the meeting starts when enough trust is in the room. But hard deadlines tied to export shipments, government filings, tender submissions or bank cut-offs are treated with precision. The difference lies in whether the commitment is relational or institutional.
-
-Regional rhythms shape how elasticity plays out. A team on the coast may treat start times as approximate, reflecting a rhythm where social flow takes precedence. In Bogotá's corporate offices, clocks hold more authority, though even there, relationships still frame how time is used. The same person often shifts style depending on where they are working, adjusting to local expectations without losing the underlying logic that people come before punctuality.
-
-Security quietly reshapes schedules. Colleagues may avoid late evening meetings or certain neighborhoods after dark, especially if they rely on public transport or ride-hailing apps. The calculation is practical, weighing risk against benefit, and suggesting a daytime slot or a safer location will be read as sensible, never as timid. Confirm key meetings via WhatsApp the same day, ask about traffic or planned marches, and build realistic buffers into your schedule. For critical project milestones, translate *mañana* and *pronto* into specific dates, times and responsibilities, then follow up in writing to ensure alignment without pressing for speed where it will only create tension.

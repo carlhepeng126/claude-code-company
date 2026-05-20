@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Kiribati flows through relationships, not systems. Performance conversations are shaped by the need to protect dignity and maintain group harmony, and they rarely happen in isolation. Criticism delivered directly, especially in front of others, risks public shame for the recipient and can damage the relationship beyond repair. Managers and colleagues avoid putting someone in a position where they lose face, even when performance concerns are serious. A colleague from a culture where candid, real-time feedback is expected as a sign of investment in someone's development may interpret this indirectness as lack of concern or avoidance of accountability. From a Kiribati perspective, blunt critique in front of others can feel aggressive and disrespectful, and the person giving it may be seen as lacking social skill or empathy.
-
-When feedback needs to be given, it usually happens privately and through indirect language. A manager might mention a concern in general terms, or speak to a trusted intermediary who can raise the issue informally. This allows the recipient to adjust without the weight of a formal confrontation. The message may take time to land, and change may come gradually as the person reflects and responds in their own time. For international colleagues working on joint projects, this can mean that concerns about missed deadlines or unclear outputs are not raised immediately or explicitly, and the expectation is that the relationship itself will guide the correction.
-
-Praise, when given, is also understated. Public recognition can single someone out in ways that create discomfort or envy within the group. Affirming someone's contribution quietly, or acknowledging the team's collective effort, fits more naturally into the local context and reinforces cooperation rather than individual distinction.

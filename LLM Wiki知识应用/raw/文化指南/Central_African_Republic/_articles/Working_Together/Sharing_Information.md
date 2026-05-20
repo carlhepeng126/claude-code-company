@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in the Central African Republic moves slowly and selectively, especially in formal settings and new professional relationships. Years of political instability and violent conflict have taught people to be careful about what they reveal and to whom. In a context where shifting allegiances and sudden power changes can put people at risk, trust is not assumed. It is earned through repeated interactions and demonstrated reliability. Colleagues will observe how you handle earlier exchanges before deciding whether to share more openly. This means early meetings may feel guarded or surface-level, with little detailed information offered upfront. That caution reflects a rational response to lived experience, not reluctance to collaborate.
-
-Within organizations, information often stays within trusted circles rather than flowing freely across teams or departments. Personal relationships determine access. A colleague with strong local ties or family connections may know far more about a situation than formal channels would suggest. For an outsider working on a project that depends on timely updates, this can create gaps. If you are accustomed to regular status reports or shared documentation, the absence of these may read as disorganization. From a Central African perspective, however, sharing too widely or too soon can feel risky, particularly when the consequences of misplaced information are unpredictable. Building one strong relationship with a trusted local contact often opens doors that formal requests cannot.
-
-Reciprocity helps. Sharing your own information first, demonstrating discretion, and following through on commitments signal that you can be trusted. Patience and consistency over time matter more than pressing for transparency in early stages. Once trust is established, information becomes more accessible and collaboration deepens.

@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Slovenia run best when they feel calmly structured and proportionate in tone. Share a clear purpose in advance, outline how the discussion will run, and avoid overly theatrical presentations. This preference for clarity reflects a deeper cultural comfort with structured explanation, rooted in a long narrative of identity preserved through language and learning. Coherent wording and well-organized material read as seriousness and respect, not formality for its own sake. When you circulate an agenda or follow up with a written summary, you're working with that instinct, not against it.
-
-Expect early meetings to feel reserved. Slovenes may appear subdued or even awkward at first, particularly in mixed or unfamiliar groups. This initial formality often gives way to warmth once trust is established, but pushing too early for personal connection or high-energy enthusiasm can come across as performative. A colleague from a culture where rapport is built quickly through expressiveness may misread this restraint as disinterest. From the Slovene side, effusive openness before credibility is established can feel disproportionate or hollow. Aim instead for steady, human-scale interaction: measured relationship-building without overperforming warmth.
-
-In diverse settings, particularly in border areas or urban groups with post-Yugoslav mobility, don't assume one default identity or language preference. A lighthanded check on language comfort and reference points shows awareness that "who's in the room" can include distinct identity worlds, even in a country often perceived as homogeneous. Treating Slovenia as its own center rather than a region of somewhere else also matters. Small cues of equal-partner respect register more strongly than you might expect, shaped by a national memory of independence earned and dignity defended.

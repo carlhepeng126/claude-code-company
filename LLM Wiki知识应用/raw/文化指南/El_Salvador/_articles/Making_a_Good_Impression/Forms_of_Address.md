@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In El Salvador, how you address someone in a professional setting reflects not just politeness but recognition of hierarchy, social standing, and the value placed on personal dignity. Titles like "Señor" (Mr.), "Señora" (Mrs.), and professional designations such as "Doctor," "Ingeniero" (Engineer), or "Licenciado" (for university graduates) are used routinely, paired with the family name. Using a first name without invitation can come across as presumptuous or dismissive of status. This formality is rooted in a culture where respect for position and experience shapes daily interactions, and where moving too quickly to casual terms can undermine the trust-building process.
-
-The shift to first names happens gradually and usually after multiple interactions or an explicit invitation. Younger professionals or those in less hierarchical organizations may move to informal address sooner, but even then, it's safer to wait. In written communication, this formality extends further. Email openings such as "Estimado Señor [Last Name]" and closings like "Atentamente" or "Cordialmente" remain standard across digital platforms. A colleague from a culture where first names are used immediately may interpret this distance as coldness, while a Salvadoran counterpart may read premature informality as a lack of seriousness or respect for professional boundaries.
-
-When meeting in person, a firm handshake with direct eye contact is the norm in business settings. Among colleagues who know each other well, a single cheek kiss may be added, especially between women or between men and women. Reading the situation and mirroring what others initiate helps avoid missteps.

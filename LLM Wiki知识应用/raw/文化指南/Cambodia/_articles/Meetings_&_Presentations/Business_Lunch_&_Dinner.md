@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-For most Cambodians, rice is the meal. Vegetables, fish, or meat sit alongside it, but they are accompaniments, not substitutes. A business lunch in a Western-style bistro that serves individual plated salads or a steak without rice can leave Cambodian colleagues politely full but not quite satisfied. This is more than preference. Rice anchors the meal culturally and physically. Choosing a restaurant that serves shared Khmer dishes with rice lets the conversation unfold in a rhythm that feels familiar to everyone.
-
-Meals are typically eaten from shared plates placed at the center of the table, with individual bowls of rice in front of each person. Who reaches for which dish first, who serves whom, and how much someone takes are all part of a quiet social exchange that reinforces hierarchy and connection. A guest from a culture where individual portions are the norm might read shared dishes as informal or unclear about boundaries. A Cambodian colleague, in turn, might find individual plating a little isolating, removing the chance to offer and receive food as a gesture of care. Watching how your hosts eat and mirroring the pace and style helps you fit into that group rhythm without overstepping.
-
-Religious and personal commitments shape what people can eat, but they may not announce it in advance. Some Cambodian Muslims avoid pork, alcohol, or venues where cross-contamination is likely. Buddhists may observe precept days, during which they eat no meat and drink no alcohol. These commitments are taken seriously but often mentioned only if directly asked, out of politeness. Checking discreetly with a local colleague before choosing a venue means no one arrives to find nothing they can comfortably eat or drink.

@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Tanzanian teamwork draws on a history of deliberate national unity. After independence, cohesion across ethnic lines was actively nurtured to prevent fragmentation, and Kiswahili became the shared bridge. Many people still grow up navigating mixed classrooms and neighborhoods, so working across difference feels familiar rather than exceptional. In professional teams, this translates into a strong instinct for inclusion and a reluctance to let internal divisions show. A colleague who draws too much attention to their own contribution, or who speaks over others in group settings, may be seen as prioritizing visibility over collective balance.
-
-Collaboration tends to happen quietly. Instead of open debate in meetings, alignment often comes through side conversations, informal check-ins, and careful coordination outside the group forum. This protects dignity and avoids the risk of public disagreement. A manager from a culture where robust discussion is the norm might read this as avoidance, while Tanzanian colleagues might view the manager's directness as careless with relationships. If you need input, asking gently in a smaller or one-to-one setting will usually yield more than pressing for it in front of everyone.
-
-Team conduct also reflects a wider moral accountability. How someone behaves at work reflects not just on them, but on their family, community, and reputation. This means trust and collective reputation are taken seriously. Publicly undermining a colleague or forcing someone into a position where they lose face can damage relationships well beyond the immediate team. Recognizing contributions in ways that honor the group, rather than singling out individuals, helps sustain both morale and cohesion.

@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in Kazakhstan blends steppe pragmatism with relationship-based trust. People respect direct constraints and practical trade-offs, but they also expect the process to feel honorable, especially once hospitality has been exchanged. This means discussions may revisit earlier points or circle back to test flexibility and fairness. The goal is a deal that both sides can stand behind over time, which often takes precedence over speed. A colleague from a culture where decisions are made quickly may read this as unnecessary delay, while a Kazakh counterpart may view rapid closure as a sign the other side is unserious or only interested in short-term gain.
-
-Who speaks first, who is deferred to, and how senior voices are acknowledged shapes the room more than any slide deck. Openly contradicting someone senior is seen as disrespectful, and decision-making authority is typically concentrated at the top. The person you need to persuade may not be the loudest in the room. If you meet someone with direct access to that authority, the conversation can move from talk to tangible action more quickly.
-
-Kazakhs are tenacious negotiators and expect you to hold your ground. Becoming animated during discussion is common and does not signal aggression. It is part of the rhythm of bargaining. You may be asked to make concessions to move things forward, and it is wise to leave room for them rather than presenting your best terms at the start. The process may shift unexpectedly, with new experts brought in or ground rules revisited. Plan for flexibility, and once a deal is struck, follow up in writing while recognizing that a person's word is generally taken seriously.

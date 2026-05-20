@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Presentation is taken seriously in Kenya, rooted in a culture where how you appear reflects your respect for the people you meet and the occasion itself. This extends across economic lines. Even in households with limited resources, children are dressed immaculately and a professional heading to an office meeting will arrive in a well-tailored suit. The attention to detail says something about how you value the relationship, not just your own standing.
-
-Urban Kenya blends global trends with African fashion and religious dress codes, creating a business environment that is cosmopolitan but still context-sensitive. In Nairobi's corporate offices, standard business attire is common: suits for men, tailored dresses or trouser suits for women. Lighter fabrics in neutral or pale tones work well given the climate, but the overall impression should be polished. In coastal regions where Muslim communities are larger, or in more traditional industries and government settings, expectations lean more conservative. Skirts and dresses that fall below the knee, covered shoulders, and formal tailoring help maintain credibility, especially when meeting senior stakeholders or working outside the capital.
-
-For social occasions like dinners or evening receptions, Kenyans often dress with care and flair. Women may invest time in hairstyling and jewelry, and men will turn up looking sharp. Matching that effort shows you understand the weight of the invitation. Younger professionals in tech or creative sectors may adopt business casual styles, but even here the approach feels deliberate rather than relaxed. Overly casual dress risks being read as indifference, particularly in first meetings or formal settings where trust is still forming.

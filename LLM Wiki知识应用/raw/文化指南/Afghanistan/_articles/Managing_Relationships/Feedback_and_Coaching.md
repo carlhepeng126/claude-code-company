@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Giving feedback in Afghanistan requires considerable care, rooted in the deep emphasis on honor, face, and the relational bonds that hold professional and personal life together. Direct criticism, particularly in front of others, risks damaging someone's reputation and the trust that underpins the working relationship. Managers often rely on indirect approaches—gentle suggestions, broad observations, or conversations framed as advice rather than correction. A supervisor might say, "In my experience, this kind of approach has worked well," leaving room for the other person to adjust without being told they were wrong. This indirectness protects dignity and keeps the relationship intact.
-
-Negative feedback should always be given in private and framed with respect. Even in one-to-one settings, bluntness can feel harsh and may be taken as a personal affront rather than professional guidance. Phrasing that acknowledges effort, attributes difficulty to external factors, or invites joint problem-solving helps the feedback land without blame. For someone from a culture where critique is expected to be clear and immediate, this indirectness can feel vague or non-committal. From an Afghan perspective, a colleague who delivers feedback bluntly may seem insensitive or unaware of the relational stakes involved.
-
-Praise, by contrast, is welcomed and can be shared more openly, though even here, singling someone out too sharply may create discomfort or envy. Recognition that honors the group or ties individual achievement to collective effort tends to sit more comfortably within Afghan workplace culture.

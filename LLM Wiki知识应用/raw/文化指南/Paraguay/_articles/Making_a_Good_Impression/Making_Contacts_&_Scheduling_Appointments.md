@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-In Paraguay, access often moves through relationship rather than role. Family ties, school connections, and godparent networks quietly shape who gets through and how quickly trust forms. A person is frequently known through someone else, and a credible introduction from a mutual contact can change the entire tone of a first meeting. Cold outreach is possible, but the path tends to be slower and more uncertain without a relational bridge. This pattern reflects social structures shaped by long memory and overlapping circles, where reputation travels faster than a job title.
-
-The Stroessner dictatorship left behind habits of discretion that still show up in how people approach new contacts. Decades after its end, some circles remain cautious about what they share early on, especially around politically sensitive topics or anything that might affect reputation. This means initial conversations may feel measured, and trust builds in stages rather than all at once. A colleague from a culture where openness and directness signal efficiency may read this as evasiveness, while Paraguayans may view rapid disclosure as socially reckless or naive.
-
-Appointments are usually set several days ahead and should be reconfirmed the day before. Plans can shift without much notice, and meetings often start fifteen to thirty minutes past the scheduled time. The delay reflects social rhythm more than disrespect. Once the meeting begins, expect an extended opening conversation that establishes warmth before any formal agenda. Skipping this phase to move straight into business can feel transactional and may undermine the relationship you're there to build. Avoid scheduling late afternoon meetings, as this is protected time for family and social life.

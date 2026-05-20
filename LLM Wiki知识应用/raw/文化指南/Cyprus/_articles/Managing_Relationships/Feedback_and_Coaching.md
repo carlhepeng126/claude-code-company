@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In Cyprus, feedback is best delivered in a way that preserves dignity and relationship. Direct criticism, especially in front of others, risks causing embarrassment and damaging trust. Managers who want to address performance issues typically do so in private, using careful language that acknowledges effort and context before raising concerns. This approach reflects the broader Cypriot emphasis on face-saving and maintaining harmony within the group. Public praise is welcomed and helps build team morale, but singling someone out for correction in a meeting can feel humiliating and may harm the working relationship long-term.
-
-Coaching conversations often involve indirectness and warmth. A senior colleague might share a story from their own experience or frame feedback as a suggestion rather than a directive. This allows the person receiving the input to reflect and adjust without feeling personally attacked. In cross-cultural teams, managers from cultures where feedback is expected to be immediate and explicit may find this indirect style frustrating or unclear. From the Cypriot perspective, however, bluntness can come across as disrespectful and lacking in empathy, making the recipient less likely to act on the advice.
-
-It helps to recognize that coaching in Cyprus is relational, not purely transactional. Feedback is more likely to be heard and acted upon when it comes from someone the person trusts and respects. Building that relationship first, through informal conversation and genuine interest, creates the foundation for constructive guidance later. Formal performance review systems can feel cold or overly impersonal unless they are paired with face-to-face dialogue that acknowledges the person behind the performance.

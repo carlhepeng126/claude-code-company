@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Belarus builds through recognition that acknowledges both effort and professional standing. Colleagues respond to appreciation that lifts their reputation within the team and affirms their value in front of others. Public acknowledgment at a team meeting or including someone in a high-visibility project tells them they belong and that their contribution is seen. Quiet competence matters deeply, so recognition works best when it is specific, credible, and tied to real skill rather than generic praise.
-
-Hierarchy shapes how motivation appears. Deference to authority runs alongside a strong desire for fairness and transparent process. People work harder for managers who explain decisions clearly and treat team members equitably than for those who rely solely on positional power. Arbitrary directives or abrupt target shifts without context can drain engagement quickly. A manager who sets expectations openly and follows through on commitments will see steadier commitment than one who changes course without explanation.
-
-Financial incentives are valued, but they function best alongside stability and predictable conditions. Sudden changes to responsibilities or unclear reward criteria create unease rather than drive. Younger professionals in international firms may respond to development opportunities or visible career progression. In smaller organizations or outside Minsk, job security and a respected role may mean more than short-term bonuses. Across settings, the desire to maintain professional dignity and contribute to something lasting sustains effort more reliably than pressure alone.

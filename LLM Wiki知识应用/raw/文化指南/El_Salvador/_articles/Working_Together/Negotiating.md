@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in El Salvador proceeds slowly, and the pace reflects both cultural style and deliberate strategy. Salvadorans often take time to read the other side, consult informally with trusted contacts, and consider how a deal might hold up over time. This measured approach is not hesitation. It allows room to assess whether you are serious, whether the relationship will last, and whether the terms being proposed are genuinely the best on offer. For a colleague from a culture where decisions are made quickly and proposals are meant to be taken at face value, this can feel like stalling. From the Salvadoran side, a partner who pushes for a fast close may appear transactional or untrustworthy. Leaving space in your initial offer for movement is practical. Bargaining is expected, and presenting your final terms too early can remove the flexibility needed to reach agreement.
-
-The conversation may circle back to points you thought were settled. This is not disorganization. It reflects a preference for revisiting terms as new information comes in or as internal consultation continues. Rolling with this rhythm, rather than insisting on a linear sequence, signals that you understand how decisions are actually made. Pushing for closure before everyone is aligned can prompt retreat rather than commitment.
-
-Building rapport before terms are finalized strengthens the process. Salvadorans want to know that the partnership will be reliable, not just that the contract is clean. Investing time in the relationship early, and staying visible throughout the negotiation, demonstrates that you are in it for more than a single transaction.

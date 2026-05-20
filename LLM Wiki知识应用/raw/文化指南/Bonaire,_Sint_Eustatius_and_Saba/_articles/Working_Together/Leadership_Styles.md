@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership across Bonaire, Sint Eustatius and Saba reflects the islands' small scale and Dutch administrative framework, but with a strong Caribbean emphasis on personal connection and accessibility. Leaders are expected to be approachable and visible, not remote or formal. Authority exists, but it tends to be exercised through relationship and reputation rather than through overt hierarchy. In workplaces, this means decisions may be made at the top, but staff expect to be heard and to have their concerns acknowledged. A manager who issues instructions without first building personal rapport or explaining the reasoning may find resistance expressed indirectly, through disengagement or informal channels rather than open challenge.
-
-Consultation happens, but its purpose is often relational as much as procedural. Leaders may seek input to maintain trust and group cohesion, even when the final decision has already been shaped. This reflects a broader Caribbean pattern where preserving dignity and avoiding public conflict are valued highly. A colleague from a culture where consultation implies joint decision-making may find this frustrating or unclear. From the islands' perspective, a manager who delegates without maintaining connection or who changes course rapidly based on input alone may seem weak or unpredictable.
-
-Younger professionals and those in newer private-sector roles may prefer more collaborative styles, while public-sector and longer-established organizations tend to maintain clearer hierarchies. Across all settings, leadership credibility is built through consistency, personal integrity, and being present when things go wrong, not just when they go well.

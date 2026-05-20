@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In Costa Rica's Central Valley, where the climate holds steady in what locals call "eternal spring," business dress defaults to neat, modest, light fabrics: collared shirts or blouses, smart trousers, dresses, and closed shoes. The look is presentable and clean rather than particularly dressy, reflecting a culture where seriedad — a sense of seriousness and professionalism — shows up in how carefully you put yourself together, not how expensive the outfit is. On the coast, where heat climbs, people adapt to the temperature, but even there the expectation leans toward looking put together rather than casual.
-
-Formality shifts noticeably by sector and setting. Government offices and public banks, especially in San José, tend to expect more formal clothing: jackets for men, tailored suits or smart separates for women. Tech firms, environmental NGOs, and tourism operators skew toward smart casual, but looking sloppy still reads as a lack of respect for the occasion. If you arrive underdressed for a ministry visit or overdressed for a beach-town eco-lodge meeting, the mismatch will register, so ask in advance or default to neat business wear and adjust from there.
-
-In environmental and community-facing contexts, ostentatious luxury can clash with Costa Rica's green, modest, Pura Vida ideal. In research institutes, conservation organizations, and ecotourism settings, people notice when someone's clothing signals flashy wealth rather than understated quality. Choosing well-made but unpretentious pieces fits better with the values these organizations hold. For official visits or tenders, lean slightly more formal than your counterpart might be, even if the setting feels relaxed. Your effort to dress appropriately will be read as respect for the partnership itself.

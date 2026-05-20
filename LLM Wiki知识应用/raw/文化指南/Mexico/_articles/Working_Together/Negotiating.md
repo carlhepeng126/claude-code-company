@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Relationships shape the deal as much as the terms do. Mexico's tradition of trade and diplomacy, from Indigenous market systems through colonial commerce to modern business, has long favored soft signals, tact and storytelling over blunt refusals. This means early meetings often focus on building rapport before numbers are discussed. Rushing into price or contract clauses can feel transactional and abrupt. A colleague used to fast-paced negotiations may wonder why progress feels slow, while someone from Mexico watching a counterpart open with detailed terms might read it as pushy or lacking respect for the relationship. Trust takes time, and deals typically unfold across multiple conversations, not a single session.
-
-Conceding too quickly can suggest weakness, but holding too firm may seem inflexible. The goal is to leave room for movement. Fairness and mutual benefit are persuasive themes, and offering something of real value while remaining open to compromise shows good faith. Information is shared selectively, and a vague "maybe" or mañana may signal hesitation or a polite no rather than commitment. Tone, context and non-verbal cues matter more than the word itself. If you sense avoidance, follow up with a question that allows clarification without forcing a direct refusal.
-
-Regional variation adds nuance. Northern business settings may be more direct, central regions more formal, and southern contexts more relational. In family-owned firms, personal loyalty can outweigh price, while corporate environments increasingly weigh quality, reputation and competitive terms. Either way, maintaining the relationship is as important as closing the agreement.

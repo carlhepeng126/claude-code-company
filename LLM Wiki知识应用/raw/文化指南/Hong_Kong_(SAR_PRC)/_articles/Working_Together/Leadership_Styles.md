@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Strong leaders in Hong Kong are judged on their ability to navigate practical constraints, not just inspire vision. Lease renewals, licensing complexities, hiring under quota rules, cross-border tax compliance — these are the operational realities that define success. A leader who speaks well at town halls but cannot handle the regulatory and administrative pressures of doing business in Hong Kong will lose credibility quickly. This reflects the city's history as a trading hub where commercial viability has always depended on mastering logistics, relationships, and shifting regulatory ground. If you lead in Hong Kong, demonstrate fluency in the local mechanics of your business. Strategy matters, but so does knowing how things actually get done.
-
-Teams also expect leaders to act as both shield and sponsor. Respect goes to those who take heat from headquarters, clients, or regulators while pushing their people to grow. Leaders who simply cascade pressure downward without pushing back up are quietly resented. This dual role reflects the concentrated authority that many Hong Kong professionals still expect from senior figures, but it also shows that deference is conditional. Authority is earned by protecting the team's interests and creating space for advancement, not by distance alone. When external demands threaten your team unfairly, take visible responsibility and absorb what you can.
-
-Since the implementation of the National Security Law, leaders are also expected to have sharp judgment about political and reputational risk, particularly around China-related content, data flows, and social media. Cluelessness in this area feels dangerous. Be explicit about what topics, channels, and public stances are off-limits, and explain why. Don't leave people guessing where the boundaries now sit.

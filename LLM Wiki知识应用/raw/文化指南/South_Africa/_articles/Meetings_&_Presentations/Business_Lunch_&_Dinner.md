@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-South Africa's food cultures draw from layered histories: African staples and regional cuisines, Cape Malay traditions, Indian South African culinary worlds especially strong in KwaZulu-Natal, Afrikaans farm and small-town cooking, and contemporary urban fusion. This means the table itself can reflect plural origins, and your colleague's relationship to any one dish or style may be deeply personal or entirely unfamiliar. Avoid assuming shared references or turning the diversity into a conversation topic unless your host brings it up naturally.
-
-Lunch and dinner are relationship space, but they are also quietly evaluative. Humility, respect, and humor come through in small behaviors: how you speak to service staff, whether you listen more than you push, whether you keep the tone easy rather than transactional. These cues build trust in ways that agenda-driven conversation often does not. A colleague from a culture where meals are used to advance specific outcomes may find the pace indirect, while a South African counterpart may read visible impatience or over-steering as a lack of care for the person across the table.
-
-Norms around alcohol, formality, and dietary practice vary widely by community, faith, and setting. Some gatherings center on wine or beer, others avoid alcohol entirely. Ask about dietary restrictions before choosing a venue, and don't assume one style fits all. Logistics also shape the experience. Long commutes and transport variability in major metros mean location, safety, and accessibility often count more than prestige when selecting a place to meet.

@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Costa Rican professionals tend to admire leaders who resemble good teachers or coaches: knowledgeable, willing to explain, and genuinely invested in helping others grow. This preference is rooted in the country's long commitment to education and a national identity that rejects military authority and celebrates democratic values. An aggressive or authoritarian style feels out of step with a society that takes pride in having no army and in its constitutional commitment to peaceful governance. Leaders who explain the reasoning behind decisions and invite questions fit this model far better than those who simply issue directives.
-
-The ideal leader is accessible and approachable, joining team lunches or coffee breaks, but maintains professional distance and fairness. Playing favorites or building a tight inner circle that monopolizes the leader's time and attention will draw quiet criticism. For a colleague from a culture where leadership means clear separation and formality, this approachability might read as overly casual or even weak. From a Costa Rican perspective, the same formal distance might feel cold or disengaged, as though the leader does not care about the team as people.
-
-Leaders are also judged on how they handle public resources and social impact. Because Costa Rica's social model rests on education, health, and environmental protection, cynical corner-cutting or decisions that disregard these values will be heavily criticized. Making your stance on integrity, environmental responsibility, and social impact explicit, and acting consistently with it, builds credibility. People are watching for alignment between what you say and what you do, particularly when collective resources or shared well-being are at stake.

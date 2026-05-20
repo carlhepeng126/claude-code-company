@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Curaçao are arranged with reasonable notice, though the timeline may be shorter than colleagues from highly structured planning cultures expect. Confirming details a few days ahead is common practice, and doing so reflects professionalism rather than formality. First meetings often include a senior person from the organization, as hierarchy remains visible in business settings. Decision-making authority typically rests at the top, so invitations should reach the right level if you expect progress beyond discussion.
-
-The meeting itself usually opens with informal conversation. This serves a real function: people in Curaçao prefer to understand who they are working with before moving into business. Rushing this phase or treating it as filler can create distance. Once the agenda begins, expect a conversational tone rather than a rigid structure. Meetings may drift from the planned order, and tangents are often welcomed as part of relationship-building. A colleague from a culture where agendas are followed closely may read this as inefficiency, while someone from Curaçao may see strict adherence to a schedule as overly transactional or impersonal.
-
-Communication during meetings is typically polite and indirect, shaped by the island's multilingual, relationship-focused culture. Disagreement is rarely voiced bluntly in the room, especially in front of others. If someone avoids a direct answer or defers to a later conversation, it often means they need more time or want to preserve group harmony. Follow up privately if clarity is needed, rather than pressing in the moment.

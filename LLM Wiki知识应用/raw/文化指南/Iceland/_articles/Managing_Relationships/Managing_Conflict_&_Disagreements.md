@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Icelanders approach disagreements with steady calm, shaped by a context where volatile weather and small-town interdependence make composure a practical virtue. Losing your temper over workplace matters feels out of proportion in a place where real hazards are environmental, and where the same people face storms and rescues together. This restraint shows up as measured responses even when stakes are high. Shouting or visible loss of control reads as immature rather than passionate, and will undermine your credibility quickly.
-
-The overlap between work and social life discourages confrontations that burn bridges. The colleague you disagree with today may be in your choir, at the community pool, or sitting next to you at a village event next week. This proximity encourages pragmatic compromise and solutions that allow people to coexist comfortably afterward. A manager from a culture where conflict is addressed through direct, high-intensity exchanges might see this as soft or overly cautious, while an Icelandic colleague might view those same exchanges as reckless disregard for long-term working relationships.
-
-Because overt blow-ups are rare, conflict often surfaces through quiet exclusion. Someone left out of informal conversations, not consulted on decisions, or rarely invited to group activities is experiencing a form of social rejection that can be more damaging than a loud argument. This pattern is especially painful in a small society where professional and personal networks intertwine. If you notice these signs, address the underlying issue early and directly, before the frost hardens into something harder to repair.

@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-In Santiago, a typical business meeting follows a formal script: printed agenda, PowerPoint slides, someone recording *acta* (minutes). The structure is orderly and the tone polite, especially in traditional or family-owned firms. But the formality can be deceptive. The room may include people from mining regions, the south, or Mapuche areas, each holding quiet resentment about centralismo, the way companies operate, or the state's role. Those tensions rarely surface in the meeting itself. Instead, the real reactions emerge afterward, in the corridor, the lift, or the coffee corner. That is where you hear "esto no va a pasar" or "suena lindo, pero en faena no funciona" (sounds nice, but on site it won't work). If you assess a proposal's prospects solely by the courteous atmosphere in the room, you will miss the verdict.
-
-Hierarchy shapes who speaks and when. In many firms, the *jefe* or *jefa* and one or two trusted lieutenants dominate the conversation. Others speak only when invited, even if they see problems. The reluctance reflects two things: not wanting to outshine the boss and not wanting to expose yourself unnecessarily. If you want broader input, explicitly invite quieter voices by saying something like "me interesa mucho la mirada de operaciones" (I really value the operations perspective) and protect them if they say something unpopular. Otherwise, silence in the meeting does not mean agreement.
-
-In unionized or heavily regulated sectors such as mining, ports, or utilities, participants listen with a legal and labor ear. They mentally flag anything that affects the *convenio* (collective agreement), safety protocols, or overtime rules. They may not argue in the room, but the issues will resurface later. Showing awareness of union, safety, and legal dimensions early on signals you understand the realities and prevents your proposals from quietly dying in the *pasillo*.

@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in Jordan is about reaching a good outcome and protecting everyone's dignity in the process. Honour and standing matter, especially in a relationship-oriented culture where reputation travels through tight networks. How you negotiate is visible beyond the room. A counterpart will often watch whether you corner someone publicly, press for immediate answers that leave no room to consult, or force concessions that make the other side look weak. Building room for pauses, offering phased steps, and allowing face-safe exits are all part of responsible deal-making. When negotiations stall, it may be a polite signal that interest has cooled or that someone needs to consult a senior figure before moving forward.
-
-Fairness is judged not only on terms but on tone and generosity. In a society where word-of-mouth and family reputation matter deeply, deals that feel exploitative can damage trust far beyond the transaction. Jordanians often respond to whether you acknowledge their constraints, offer flexibility where possible, and negotiate without aggression. Leaving space for reciprocal concessions is expected and earns respect. Presenting your strongest offer early removes the back-and-forth that confirms mutual goodwill.
-
-Cultural patterns of reconciliation also shape bargaining. Jordan has long-standing practices for cooling time after conflict and restoring relationships, and these instincts can appear in commercial settings. Pausing, consulting, and returning with a revised position is often normal rather than obstructive. A colleague from a culture where decisions are made quickly may read this as delay or indecision, while a Jordanian counterpart may find immediate closure pushy or dismissive of the need to build alignment.

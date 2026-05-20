@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Open disagreement functions like social pollution in Japanese professional settings. It dirties the shared atmosphere, forces colleagues to choose sides, and can linger for years within a team. This is one reason why conflict is avoided on the surface, even when underlying differences exist. The goal is to preserve the group's ability to cooperate, which depends on maintaining harmony (known as *wa*, the state of collective cohesion).
-
-Resistance rarely arrives as a direct objection. Instead, it appears in layers: a subtle hint that reconsideration might be needed, then a delay, then procedural obstacles that seem unavoidable, then quiet non-cooperation. By the time someone says "this proposal is difficult for us," resistance is already mature. A colleague from a culture where disagreement is voiced early and directly may read this as evasion or dishonesty. From a Japanese perspective, a colleague who raises objections bluntly before the group has had time to absorb and process them may seem abrasive or unwilling to protect the team's cohesion. If you notice small difficulties, slowed responses, or procedural nitpicking, treat these as invitations to discuss concerns quietly, not as minor irritations to push past.
-
-When conflict does break into the open, particularly with customers, regulators, or partner firms, there is often a ritualized sequence: deep bows, carefully scripted apologies, executives taking pay cuts or stepping down. This restores moral balance and allows cooperation to resume. If something serious goes wrong in a partnership, co-create a response that includes visible contrition and concrete fixes, even if your own culture favors moving on quickly. After the formal resolution, invest time in shared meals or informal gatherings to re-knit the relationship at a human level, not just tick procedural boxes.

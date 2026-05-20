@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Japanese leaders are expected to be guardians of the group, not stars. Their authority rests on protecting their people, making careful decisions that preserve collective stability, and taking public responsibility when things go wrong. A leader who negatively affects group morale or appears to put personal interests ahead of the team can lose legitimacy quickly, even if their decisions were technically sound. Relationships are harder to repair than strategy. Many senior figures let mid-level staff speak for them in meetings to demonstrate the team's consensus and total commitment, and the most senior person at the table may stay silent.
-
-The core skill is steering *nemawashi* (informal consensus-building that happens before formal decisions are made). Leaders must know who to consult, in what order, and how to adjust a proposal so it becomes acceptable without abandoning its aims. This means providing multiple angles and versions of an idea, often quietly and over time, so that colleagues can build internal support without being pressed into dramatic public commitments. If you are proposing something to a Japanese leader, emphasize how it protects and strengthens their people and reputation, not just the metrics. Give them tools to own the idea internally rather than expecting a fast yes in the room.
-
-Visible self-sacrifice reinforces loyalty. Leaders who take pay cuts during downturns, apologize publicly, or stay until the end share the hardship and signal that they will not disappear when there is difficulty. In many firms, leaders rose through technical or functional expertise and are respected for deep knowledge and measured judgment rather than charisma. If you lead Japanese colleagues, demonstrate that you will stand with them when there is criticism, not behind them.

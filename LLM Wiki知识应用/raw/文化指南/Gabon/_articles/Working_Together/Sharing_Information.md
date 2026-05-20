@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Gabon tends to move through personal channels rather than formal systems. Relationships determine access. A Gabonese colleague may share critical project details over coffee or after a meeting, but hold back the same information in a broader group setting. This reflects a wider pattern where trust and personal connection unlock knowledge that official channels alone cannot. Hierarchies also shape what gets shared and when. Junior staff may hesitate to volunteer information upward, especially if it might reflect badly on their team or suggest criticism of a decision already made. Preserving harmony and showing respect for authority often take precedence over transparency.
-
-The reluctance to share openly across departments or levels is not about withholding for strategic advantage. It stems from a concern with face and the desire to avoid exposing mistakes or creating conflict. If a problem is still being managed internally, bringing it into the open too soon can feel premature or disrespectful. A colleague from a culture where early transparency is valued might interpret this as evasiveness, while a Gabonese professional might see the insistence on immediate disclosure as insensitive to dignity and group cohesion.
-
-Building trust takes time but changes the flow of information significantly. Demonstrating reliability, keeping confidences, and showing genuine interest in the relationship all help. Once credibility is established, colleagues share more freely and the relationship deepens. Informal settings often work better than formal requests. Asking for input over lunch or in a relaxed conversation signals respect and invites openness in ways that a direct email or meeting agenda may not.

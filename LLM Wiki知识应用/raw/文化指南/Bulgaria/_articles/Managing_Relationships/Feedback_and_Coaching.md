@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Many Bulgarians experienced publicly harsh feedback at school, then entered workplaces where silence is the norm until something goes badly wrong. This creates a professional culture where people are braced for criticism but genuinely uncertain what constructive feedback looks like. When a manager from a culture with regular one-to-ones begins scheduling weekly check-ins, a Bulgarian colleague may assume each conversation signals trouble. A Bulgarian manager working with colleagues used to continuous feedback may wonder why they need so many conversations when things are fine. Building a rhythm of regular, low-stakes feedback breaks the association between feedback and punishment, and helps people see development conversations as normal rather than alarming.
-
-Feedback carries more weight when it comes from someone seen as technically strong and experienced. People will take critique seriously if they believe the person giving it has walked the path themselves and understands the constraints on the ground. A manager perceived as theoretically clever but practically weak may receive polite nods, but the advice will be quietly ignored. If you are giving feedback, demonstrate your own competence visibly and show that you understand the real obstacles in the system before offering solutions.
-
-When discussing performance gaps, expect to hear system stories: the machine is old, the tender was rigged, the supplier always delays. These explanations blend real structural constraints with a degree of self-protection. Dismissing them as excuses misses the point, but taking them entirely at face value may leave performance issues unaddressed. Acknowledge the genuine barriers, offer to help remove what can be fixed, then redirect the conversation to what can be done within the current reality.

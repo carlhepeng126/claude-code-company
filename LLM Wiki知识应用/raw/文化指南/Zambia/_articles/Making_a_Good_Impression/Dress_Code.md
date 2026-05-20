@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-How you present yourself in Zambia conveys your seriousness and respect for the setting. Neat, well-considered dress is read as social regard rather than vanity, and it functions as an early credibility cue in professional and institutional contexts. People expect clothing to be clean, pressed, and appropriate, and will notice when it isn't. This expectation grows stronger in formal meetings, government offices, and traditional industries, where a jacket, tie, and tailored trousers for men, and conservative blouses, skirts, or trousers for women remain the default. Revealing clothing can prompt quiet disapproval, especially in mixed or public-facing settings where modesty aligns with widely held Christian public values.
-
-Dress norms vary more than a single national rule suggests. Lusaka and the Copperbelt tend to be more mixed in style, with some flexibility in newer sectors like tech or creative industries. Smaller towns and rural areas often hold more conservative expectations, particularly in public spaces. Denomination and local community also shape what feels appropriate. Everyday life can include both cosmopolitan and conservative styles side-by-side, so what reads as neutral in one context may feel off in another. If you're unsure, ask a local colleague what the setting expects before a first meeting or site visit.
-
-Ceremonial life and solemn events like funerals or major traditional gatherings, including large cultural occasions such as the Kuomboka ceremony in Western Province, have strong dress expectations tied to honor and belonging. People remember whether you showed visual respect, and those memories last. Choose appropriateness over self-expression in these moments, and keep your presentation understated and professional throughout.

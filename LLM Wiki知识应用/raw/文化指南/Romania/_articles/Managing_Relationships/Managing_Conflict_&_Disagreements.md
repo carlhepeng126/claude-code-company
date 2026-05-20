@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Disagreements in Romanian workplaces are rarely escalated into open confrontation. People tend to manage friction through tact and containment, especially when hierarchy or personal reputation might be at stake. A colleague may signal frustration indirectly or withdraw rather than challenge someone publicly, particularly if that person holds seniority. This preference reflects a concern for dignity and a historical wariness of direct pressure. Romania's experience under authoritarian rule left a legacy of sensitivity to heavy-handed authority; when someone feels cornered or moralised at, they may comply outwardly while disengaging privately. If a disagreement needs resolution, moving it to a private conversation and focusing on specific behaviours rather than personal criticism will make progress more likely.
-
-Regional identity and minority politics are live social stakes, and conflict can escalate quickly if these are treated carelessly. Jokes or stereotypes about Transylvania, Moldavia, or Roma communities can trigger real offense. A colleague from a workplace culture where banter crosses personal lines might read Romanian restraint as oversensitivity, while a Romanian colleague may see that same directness as careless or disrespectful. These are not abstract concerns; they reflect tensions that still shape public and professional life.
-
-After a difficult moment, Romanians often repair relationships through shared gestures rather than lengthy verbal processing. A short check-in, a reset meeting, or a practical act of goodwill can restore working trust. Cultural practices rooted in seasonal rhythms remind people how relationships are often re-knit through presence and ritual, not only through talk.

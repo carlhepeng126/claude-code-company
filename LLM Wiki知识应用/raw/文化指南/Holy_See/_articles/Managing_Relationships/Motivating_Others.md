@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in the Holy See flows primarily from a shared sense of mission. People who work here, whether Vatican employees, religious personnel, or lay professionals, are drawn by commitment to the Catholic Church's spiritual and moral purpose. Financial compensation exists, but it rarely drives effort in the way it might elsewhere. What sustains engagement is the conviction that one's work serves something transcendent. A manager who connects daily tasks to the broader mission of the Church, who frames a project as contributing to evangelization, diplomacy, or the care of souls, will see far greater commitment than one who relies on salary incentives or performance bonuses alone.
-
-Recognition works best when it acknowledges contribution to the collective good rather than individual achievement. Public praise that singles someone out for personal success can feel awkward or even unwelcome in a culture shaped by humility and service. Instead, thanking someone for supporting a key papal event or quietly noting their role in a successful negotiation aligns with the values that guide behavior here. A colleague from a culture where individual recognition fuels motivation may find this restraint puzzling, while someone from the Holy See may view overt self-promotion as inconsistent with the spirit of service.
-
-Hierarchy and tradition shape what feels possible. People rarely push back on decisions from senior clerical leadership, and innovation tends to move slowly through established channels. Younger lay staff, particularly those with international experience, may seek more autonomy or faster decision-making, but this remains the exception rather than the norm. Managers who understand that motivation here is less about personal advancement and more about faithful stewardship of a centuries-old institution will find it easier to inspire sustained effort.

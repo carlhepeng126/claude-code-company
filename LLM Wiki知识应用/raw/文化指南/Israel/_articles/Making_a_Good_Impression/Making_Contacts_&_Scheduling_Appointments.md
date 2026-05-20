@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-In Israel, who you know shapes how quickly you get through the door. Protexia, the informal network of connections built through military service, university, and shared community, is how most professional relationships begin. Almost everyone in a given age cohort served in the Israel Defense Forces together or knows people who did, creating an unusually dense web of mutual contacts that functions as a parallel professional network. A warm introduction from someone already trusted can compress the trust-building process dramatically. Finding a shared connection, a mutual contact, a shared university, or a shared unit opens conversations that a cold email rarely will.
-
-Once contact is made, Israelis move quickly. Expect fast responses, direct scheduling, and little ceremony around setting up a meeting. Dragging out the process or adding layers of formality reads as unserious. Meetings can be arranged at short notice, and follow-up happens at pace. Someone from a culture where appointments are set weeks in advance and confirmed through multiple channels may find this abruptness unsettling. From the Israeli side, elaborate scheduling rituals can look like hesitation or a lack of real intent.
-
-Punctuality still holds. Arriving late to a scheduled meeting without warning can create friction, even in a culture that values flexibility in other areas. That said, meetings may shift, run long, or accommodate unexpected visitors. The speed with which things are arranged does not reflect a lack of preparation. Israelis value efficiency, and directness in scheduling is part of that. If you have a mutual contact, use it. If you don't, find one before reaching out.

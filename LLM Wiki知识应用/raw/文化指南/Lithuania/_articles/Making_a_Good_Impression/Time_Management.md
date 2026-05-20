@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Punctuality in Lithuania reflects a broader preference for order and reliability. Formal settings operate on the expectation that people will arrive on time and follow through as agreed. This stems from a cultural logic where predictability reads as respect, both for the person you are meeting and for the shared structure that makes collaboration possible. Arriving early is considered awkward rather than courteous, and lateness of more than a few minutes requires a phone call with an explanation. The emphasis is less on rigid adherence to the clock than on not creating disruption for others without good reason.
-
-Social occasions follow a different rhythm. Once hospitality begins, time stretches. Dinner or drinks at someone's home can last for hours, and leaving early signals disinterest rather than efficiency. This shift is consistent with the same cultural logic: time bends where relationship-building is the point, but not where it undermines coordination. If you are scheduling around major ritual periods like Kūčios (Christmas Eve) or Joninės (Midsummer), expect that attention and availability will shift. These are not casual holidays. They pull people into family and place, anchoring continuity through ritual time.
-
-Lithuania's post-1990 mobility story has practical implications for planning. Many families operate across borders, and return migration patterns shape how people manage their calendars. Cross-border family life means travel, reunion logistics, and sometimes divided attention during key periods. Offering clear options and advance notice tends to work well. Leaders who rely on strong communication to keep projects on track will find that people are willing to put in extra hours, but the coordination needs to be explicit, not assumed.

@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Ivoirian business etiquette is shaped by a strong awareness of dignity and social standing. People communicate indirectly to protect face, both their own and others'. A colleague might recount an elaborate story or redirect responsibility rather than admit a mistake outright, because doing so preserves respect and avoids the shame of public failure. A question might be met with a vague answer or a gentle deflection rather than a direct no. Watch for what's shown rather than spoken. Gestures, pauses, and shifts in tone often reveal more than the words themselves.
-
-At the same time, Ivoirians tend to be expressive once rapport is established. Voices may rise, hands move freely, and emotion, including frustration, comes through clearly. You might witness a colleague venting loudly at a peer, then returning to normal moments later as though nothing happened. This emotional candor happens within bounds. It's rarely directed upward at a superior, and it's tempered by an expectation that outsiders maintain composure. If you lead or represent your organization, a reserved but approachable manner will serve you better than matching the intensity.
-
-Gift giving is appropriate after a relationship has developed, but not at the outset. An early gift risks being misread as an attempt to influence. Keep gifts modest and culturally appropriate. Avoid alcohol, pork, and chocolate, the last because cocoa is a major national export. Something that reflects your own country or company is ideal. Business cards should include French translations and any academic credentials, which hold weight. Exchange them early in the meeting, study the card you receive before putting it away, and expect to give several on a first visit. Titles and qualifications frame how you're understood.

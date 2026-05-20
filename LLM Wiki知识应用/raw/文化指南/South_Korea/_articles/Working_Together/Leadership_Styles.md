@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leaders in South Korea derive legitimacy from age, tenure, and the moral authority embedded in Confucian tradition. They are expected to model diligence, sacrifice, and self-control, acting as both social and ethical anchors for their teams. Executives who embody resilience and service to the organization, echoing the narratives of South Korea's post-war economic transformation, often attract deep loyalty. This heritage means that publicly undermining a senior leader can backfire, even when disagreement is justified. Respect for seniority remains strong, and leadership credibility rests more on consistency between words and actions than on charisma alone.
-
-At the same time, expectations are shifting. While paternalistic, top-down authority guided companies through rapid development, today's leaders are increasingly expected to combine decisiveness with emotional intelligence and global awareness. Many now invite input as they navigate fast-changing environments, though the invitation itself may be more consultative than collaborative. Teams may hesitate to challenge leaders openly, shaped by cultural deference and the strength of group cohesion, but this does not mean they lack opinions. Leaders who seek feedback one-to-one, rather than in public forums, can bridge hierarchical gaps more effectively.
-
-This dual expectation means that a leader from a culture where open debate is the norm may read silence as agreement or disengagement, while Korean team members may view direct challenge in a group setting as disrespectful or destabilizing. The practical implication: create private channels for input, and understand that visible commitment to team wellbeing and long-term development builds trust more reliably than invitations to speak up in meetings.

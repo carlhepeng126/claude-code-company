@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Hong Kong customers and business buyers hold you to global benchmarks. They compare pricing, contract terms, user experience and after-sales support against the best available anywhere, and "good enough for the region" will not close a deal. This reflects decades of international commerce and exposure to world-class service standards, which has made both retail consumers and corporate clients detail-focused and unforgiving of vagueness. If you cannot answer specific questions about service-level agreements, return procedures, security protocols or escalation paths, trust erodes quickly and the opportunity moves elsewhere.
-
-In many business-to-consumer sectors, your most consequential relationship may not be with the end buyer but with the landlord, mall operator or digital platform that controls access and foot traffic. Property groups and apps such as HKTVmall or food delivery platforms act as gatekeepers, and managing those relationships strategically becomes as important as the product itself. Building personal connection with suppliers and intermediaries still matters. Knowing someone before doing business, maintaining regular contact and showing respect all help ensure deadlines are met and service stays reliable.
-
-Many Hong Kong corporate clients operate with one eye on the mainland, even when they do not mention it in early conversations. They may be thinking in renminbi, planning around Shenzhen warehousing or navigating cross-border tax and customs realities because their own customers are often across the border. Showing you understand Hong Kong–mainland logistics, data flows and currency movements reassures them you will not stumble over the cross-border dimension of their operations. Map the full ecosystem around your customer and be ready to demonstrate that you know how the pieces fit together.

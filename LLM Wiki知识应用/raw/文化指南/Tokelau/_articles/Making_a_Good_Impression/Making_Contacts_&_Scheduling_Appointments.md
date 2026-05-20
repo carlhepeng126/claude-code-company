@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Tokelau's three small atolls are governed by councils of elders and village tradition, and relationships here are built through shared daily life, not formal appointments. There are no offices to visit, no receptionists to call, and no business districts where contacts are made. Professional or administrative exchanges happen through the *taupulega* (the village council) or through family networks. If you need to reach someone on Tokelau, the path goes through people who already know them. A direct approach from someone unfamiliar will meet polite uncertainty, not because of suspicion, but because there is simply no established channel for that kind of contact.
-
-Making a connection means finding someone who can introduce you or vouch for your intentions. This might be a family member, a church contact, or someone who has worked with the atolls before. The introduction itself is not a formality. It establishes your purpose and your character, and it allows the other person to decide whether and when to meet. Meetings do not follow fixed calendars. They emerge when timing, tide, and community obligations align. A colleague from a culture where meetings are scheduled weeks ahead and confirmed by email may read this as vague or uncommitted, while someone from Tokelau may see rigid scheduling as disconnected from the realities of island life and collective rhythm.
-
-If a meeting is arranged, expect it to take place in a setting shaped by the community, not individual convenience. You may be invited to join a gathering at a family home or to speak informally after a church event. The conversation itself will be unhurried, and jumping straight to business outcomes will feel jarring. Time spent building rapport is what makes the relationship viable over the long term.

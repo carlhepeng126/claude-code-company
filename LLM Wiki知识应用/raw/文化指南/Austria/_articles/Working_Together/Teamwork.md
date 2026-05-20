@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Austrian teams function through clearly defined roles and structured responsibilities. Each department has its brief, each person knows their scope, and the expectation is that you stay within it. This reflects a culture that manages complexity through protocol and clear accountability, a tradition that runs deeper than organizational preference. If you step outside your lane without checking first, or bypass your immediate manager to raise an idea with someone more senior, the friction is rarely loud, but it will be felt. Ambiguity in who does what is seen as a gap that needs closing, not an invitation to collaborate flexibly.
-
-Cooperation is genuine, but it follows the hierarchy. Junior team members can contribute, and their input may be welcomed, but it should come through the right channels. Speaking directly to someone several levels up, even with good intentions, can undermine both your manager and the structure itself. A colleague from a culture where decisions are made quickly and lines of authority shift easily may read this as bureaucratic or slow. An Austrian team member, in turn, may view rapid reorganization or ad hoc collaboration across levels as chaotic and unfair to those who have earned their seniority.
-
-When introducing change or new ways of working, explain how the proposal fits within the existing framework. Structural clarity reduces resistance. Teams respond better to innovation when the logic behind it is transparent and the implications for roles and reporting lines are spelled out early. Working with the structure, rather than assuming it will bend, builds credibility and helps ideas move forward.

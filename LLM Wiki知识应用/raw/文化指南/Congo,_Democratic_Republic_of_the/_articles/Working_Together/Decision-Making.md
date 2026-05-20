@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in the Democratic Republic of Congo move through layers of hierarchy and consultation that reflect both formal authority and the social networks that surround it. Senior leaders hold the final say, and their approval is usually required before action can proceed. Yet the process rarely moves in a straight line. Managers often consult informally with trusted colleagues, family members, or community figures before committing to a course of action. This is less about hesitation and more about ensuring that a decision will hold across the social terrain it touches. A choice that makes technical sense but lacks relational grounding may be quietly resisted or reinterpreted once it reaches the ground.
-
-The consultation itself is often indirect. A manager may seek input without stating that a decision is still open, or test an idea in conversation before bringing it to a formal meeting. This allows disagreement to surface without confrontation and gives space for adjustments before positions harden. For a colleague used to decisions being finalized quickly in meetings, this can feel circular. From a Congolese perspective, a decision announced without prior soundings can feel abrupt and socially risky.
-
-Regional and organizational context also shapes the tempo. In international firms or NGOs with expatriate leadership, timelines may be tighter and consultation more compressed. In state institutions or locally rooted enterprises, the rhythm tends to be slower and more relational. What remains consistent is that decisions are not purely technical. They are evaluated for their social fit, and that evaluation takes time and trust.

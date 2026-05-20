@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time management in Gambia is shaped by relational priorities and Islamic prayer rhythms, not by fixed schedules. Meetings may begin after greetings have been properly exchanged and social connection established, even if this means a delayed start. The five daily prayers provide a natural structure to the day, and business pauses to accommodate them. Colleagues from cultures where meetings begin exactly on time may interpret this flexibility as casual or uncommitted, while Gambians may view strict adherence to the clock, especially when it overrides relationship-building or religious observance, as transactional or impersonal.
-
-Punctuality expectations vary by context. In international business settings, government meetings with foreign partners, or roles tied to tourism and trade, timekeeping is taken more seriously. In local businesses, family enterprises, and rural settings, schedules remain fluid and decisions may wait for the right person or the right moment. Urban professionals, particularly younger Gambians working in formal sectors, are more likely to align with international norms around deadlines and meeting times.
-
-Flexibility is not the same as indifference. When a commitment is made within a relationship of trust, it will be honored, though not always according to the original timeframe. If you are working across contexts, confirm expectations clearly and early. In sectors where deadlines are firm, state this and follow up in writing. In more relational settings, allow time for consultation and adjustment, and recognize that a delay may reflect care in decision-making rather than disregard for the timeline.

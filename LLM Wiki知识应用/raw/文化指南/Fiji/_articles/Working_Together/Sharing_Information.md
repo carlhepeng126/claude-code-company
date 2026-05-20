@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information flows through relationships in Fiji, not through systems alone. Trust determines who learns what, and trust is built slowly through demonstrated loyalty, shared obligations, and community ties. A newly arrived manager who expects transparent, equal access to information across a team may find that certain updates reach some colleagues first, or that decisions are made based on knowledge never formally shared. This reflects Fiji's relational culture, where information moves through networks of kinship, friendship, and reciprocity. Sharing openly with someone you do not yet know well can feel risky or inappropriate. People protect both their own standing and that of others by keeping sensitive details within trusted circles.
-
-Hierarchies also shape what gets shared and when. Junior staff may hesitate to pass problems upward, particularly if doing so might embarrass a colleague or expose a mistake publicly. The cultural emphasis on maintaining harmony and avoiding confrontation means that difficult news is often softened, delayed, or delivered privately rather than aired in group settings. A colleague from a culture where transparency and directness are valued might read this as evasiveness or lack of accountability. From a Fijian perspective, the same colleague's directness might feel blunt or disrespectful, ignoring the relational care that should accompany honest feedback.
-
-Building access to information means building relationships first. Invest time in informal conversation, show genuine interest in people's families and backgrounds, and demonstrate reliability over time. Information becomes more freely available once you are seen as part of the network, not simply as someone passing through.

@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Estonia's professional dress norms reflect a culture that values understatement, technical competence, and the clear separation of work from social life. In business settings, people dress neatly and without fuss. Men typically wear dark suits or smart trousers with button-down shirts, while women opt for tailored trousers, skirts, or dresses in neutral tones. The overall impression is clean and functional rather than polished or fashionable. This reflects a broader Estonian preference for substance over presentation. Dressing well shows you take the meeting seriously, but overdoing it can read as performative or insecure.
-
-Sector and setting shape expectations. In government ministries, legal firms, and banking, formal business attire is standard. In Tallinn's thriving tech sector and creative industries, the norm shifts toward smart casual: clean jeans, simple sweaters, and minimal accessories. Even in these relaxed settings, though, people dress deliberately. Torn clothing, loud branding, or overly casual sportswear can come across as careless, especially in client-facing roles or first meetings. If you're uncertain, aim slightly more formal and adjust once you've observed the team.
-
-Generational differences are subtle but present. Younger professionals, particularly in startups and digital companies, are more comfortable with casual workwear, though they still avoid anything that feels sloppy. Older colleagues in traditional sectors often maintain a more conservative standard. Evening events follow the same logic: if the setting is formal, dress accordingly, but without needing to stand out. A well-fitted jacket or understated dress will fit in better than anything elaborate.

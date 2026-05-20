@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Lunch is the most common setting for business entertaining, often stretching late into the afternoon. Dinner invitations tend to follow once trust has started to build, and these evenings are generally more social than transactional. As the relationship deepens, you may find that spouses, siblings, or cousins join the table. This inclusion reflects how professional and family life overlap in Guatemala, where relationships are understood through a wider web of kinship and trust. Read the invitation as a sign that you're being folded into a more personal circle, not that boundaries are being blurred.
-
-Venue choice usually falls to the Guatemalan host, and the selection often reflects safety concerns as much as preference. Hotel restaurants, well-known steakhouses, or mall dining in Zones 10 or 14 of Guatemala City offer a controlled environment in a context where carjackings and extortion shape daily decisions. A colleague from a culture where spontaneity and exploring lesser-known neighborhoods signal openness may see this caution as overly controlled. From the Guatemalan side, insisting on an unfamiliar or edgy venue can come across as naïve or unaware of real risk.
-
-Religious commitments shape availability more than visitors often expect. Mid-week services, youth groups, and early-morning prayer meetings mean that late, alcohol-heavy evenings don't fit easily into many colleagues' lives. When someone says they have culto (church service), that's a genuine priority, and pushing beyond it puts them in an uncomfortable position. Offering earlier, lighter options for networking allows people to participate without choosing between faith and professional presence.

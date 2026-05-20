@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Austrian negotiating style grows directly out of the country's Sozialpartnerschaft tradition, the tripartite model through which employers, unions, and government have negotiated economic policy for decades. This national habit of seeking consensus and mutual benefit shapes commercial negotiations. The goal is rarely to extract maximum advantage. It's to reach a durable agreement that both parties can honour and build on. This means arriving with carefully prepared positions, grounded in fact, and expecting the other side to have done the same.
-
-High-pressure tactics and artificial urgency will backfire. Austrians dislike haggling and are unimpressed by opening offers that sit far from a realistic outcome. That approach reads as manipulative, not strategic. Instead, discussions tend to move point by point, each element debated and resolved before moving on. This can feel methodical to someone used to faster deal-making, but for Austrian counterparts, it's how seriousness and reliability are demonstrated. If a negotiator from a culture where speed and flexibility are prized tries to accelerate the process or reopen settled points, their Austrian counterpart may see it as a lack of preparation or, worse, a sign that the relationship won't hold.
-
-Demonstrating your company's longevity, track record, and stability will strengthen your position more than any single-deal incentive. Austrians are looking for partners, not transactions. A fair outcome, one where both sides feel the process was transparent and the result defensible, is valued far more than a clever win.

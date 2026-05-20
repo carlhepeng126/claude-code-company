@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Ghana travels through two channels at once. Written communication usually happens in English, especially in formal workplaces, but the real nuance often comes through in verbal explanations delivered in Twi or other local languages. A memo might set out the facts, but the staff durbar (a meeting for open discussion) is where people ask questions, clarify confusion, and genuinely understand what a policy means for them. Sending a PDF without follow-up conversation leaves room for misinterpretation. If you want a message to land clearly, plan for both the written announcement and the face-to-face explanation that brings it to life.
-
-Information also moves fast outside official channels. Radio stations like Peace FM, Adom, and Citi, along with social media, can break news about audits, policy leaks, or organizational changes before internal teams have been briefed. Staff may arrive at work already informed, or misinformed, by what they heard on the morning show. A manager launching a new policy cannot assume theirs is the first word. Acknowledge what people may have already seen or heard, then use that awareness to correct rumor and add context. Ignoring the external conversation doesn't stop it from shaping how your message is received.
-
-The risk of being quoted or exposed publicly makes managers cautious about what they commit to in writing. A WhatsApp message or email can be screenshot and shared widely, sometimes ending up on social media or talk radio. This leads to careful, sometimes guarded, phrasing in digital communication, particularly on topics with political or reputational sensitivity. Write with honesty, but also with the knowledge that your words may travel far beyond their intended audience.

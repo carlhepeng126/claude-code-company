@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In Luanda's government buildings, banks, and oil company offices, formal dress is the baseline. Tailored shirts, smart dresses, and polished shoes are the norm, a reflection of status and professionalism in a city marked by visible inequality. Wearing something sharp to an initial meeting shows you take the relationship seriously. The formality here is deliberate, not arbitrary. How you present yourself is read as a proxy for how you approach the work. While lightweight suits are a practical adaptation to Luanda's heat and humidity, the attention to appearance stays consistent. After a relationship is established, jackets may come off and ties loosened, but the underlying expectation of care in presentation remains.
-
-Step outside the air-conditioned offices and the context shifts quickly. On construction sites, in provincial towns, or on dusty rural roads, overly delicate clothing reads as disconnected from the realities of the setting. Bringing sturdy, site-appropriate shoes and breathable work clothes shows you understand the conditions your counterparts are working in. During the rainy season, Luanda's cracked pavements and mud-filled streets demand footwear that can handle it. Arriving prepared for these conditions builds credibility in a way that an expensive but impractical outfit will not.
-
-For church services, ceremonies, and official community visits, even in modest settings, people often wear their best. These occasions are taken seriously, and the effort people invest in their appearance reflects that. Matching that level of formality demonstrates respect for the occasion and the people hosting it. At the same time, avoid ostentatious luxury branding in poorer areas. The gap between resources is visible enough already, and drawing further attention to it through clothing can widen the perceived distance between you and the people you are there to work with.

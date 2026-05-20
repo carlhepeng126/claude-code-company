@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Greeks are raised in environments where people talk over each other, argue politics, and quote songs at family tables, and that liveliness follows them into the workplace. A meeting with no disagreement can feel unreal. Pushing back on ideas is a way of showing you care enough to think, and silence can feel awkward or even mistrustful. Conversations tend to be assertive, sometimes loud, and often embellished for emphasis. Eye contact is frequent, almost to the point of staring, because it communicates sincerity. A colleague from a culture where debate is kept polite and indirect might read this as confrontation or unprofessionalism, while a Greek counterpart might interpret a quiet nod of agreement as disengagement or lack of interest. Learning to steer heated discussion rather than shut it down, and using it to refine decisions, will help you work more effectively with Greek teams.
-
-There's a tension between cynical jokes about the system and a deep pride in finding a way despite it. The colleague who complains loudly that nothing works may also be your best fixer inside it. Instead of framing problems as roadblocks, ask how things could be solved given the way things actually work here. That instinct for creative rule-bending is often the fastest route forward.
-
-Personal life spills into the working day. Phone calls from mothers, children stopping by after school, someone stepping out to talk to a lawyer about inheritance—these are all part of the rhythm. Greeks share details of illness, divorce, or conscription with colleagues in ways that can surprise more reserved cultures. Offering some flexibility around family obligations is usually reciprocated in loyalty.

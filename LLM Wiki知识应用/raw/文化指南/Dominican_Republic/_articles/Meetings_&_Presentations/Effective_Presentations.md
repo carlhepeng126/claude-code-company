@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-A strong presentation in the Dominican Republic depends less on polished slides than on your ability to speak with confidence and adapt in the moment. Your audience will watch how you handle interruptions, respond to side comments, and recover when the conversation shifts direction. Dominican professionals value oral skill and improvisation, so prepare to weave in examples, address unexpected questions, and stay engaging even if the power cuts or someone takes a call mid-flow. Reading from slides or sticking rigidly to a script undermines credibility.
-
-Decision-makers expect headline numbers, but they also want to know how you will *resolver* when conditions change. That means addressing realistic contingencies, whether customs delays goods, a ministry alters regulations, or a hurricane disrupts supply chains. Showing you understand Dominican volatility builds trust more than perfect projections alone. Light references to national strengths such as resilience, diaspora networks, or creativity can help, provided they are specific and informed rather than clichés about beaches or tourism. Doing your homework beyond the obvious demonstrates respect and earns you a hearing.
-
-Saving face matters, especially for senior figures. Dominicans are polite listeners and rarely challenge weak data openly during a presentation. Instead, they will simply not follow up. If your numbers are shaky or your logic unclear, the silence in the room does not mean agreement. Invite questions gently, and consider offering one-to-one time afterward so people can clarify without embarrassment. A phrase like "seguro ustedes tienen mejores datos sobre esto" (surely you have better data on this) gives others room to correct you while protecting dignity on both sides.

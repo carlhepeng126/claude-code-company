@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information flows most freely in Mexico where trust has already been built. Oral traditions and relational norms mean that concerns, feedback, or strategic details often circulate through informal channels before they appear in writing. Someone may raise an issue over coffee or after a meeting rather than in front of a group, especially if the topic risks embarrassment or conflict. This preference reflects a desire to preserve dignity and maintain harmony, and it allows both parties to navigate sensitive ground without forcing anyone into a public position.
-
-Hierarchy shapes what gets shared and when. Information typically moves downward from senior management, and junior colleagues may wait to be invited before contributing opinions upward. This doesn't mean they lack insight, but respect for rank influences timing and channel. In some settings, particularly family-owned companies, information circulates more openly among senior family members than with non-family staff, reflecting different levels of trust within the organization. Silence in a meeting doesn't confirm agreement. It may mean someone plans to speak privately, or is waiting to see how the group responds first.
-
-Written channels are standard in corporate environments, but they often formalize what has already been discussed informally. If you rely only on official meetings or documented updates, you may miss the real conversation. Private one-on-one exchanges tend to surface issues earlier and more candidly than group forums. Building those relationships makes the difference between staying informed and staying behind.

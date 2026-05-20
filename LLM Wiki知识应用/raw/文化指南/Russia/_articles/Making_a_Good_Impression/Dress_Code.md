@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Appearance in Russian professional life functions as a credibility signal. A polished, put-together presentation communicates self-respect and seriousness before a word is spoken. Russians often dedicate significant personal budgets to clothing, not for show, but because looking the part is understood as part of the work itself. For men, a suit and tie in darker colors remains safe ground in formal settings. For women, smart, conservative tailoring is standard, though femininity is valued and visible. The emphasis is on structured polish rather than trend or flash.
-
-Formality expectations shift across sector and setting. Government offices and traditional industries still expect formal tailoring. Younger sectors like tech allow business casual, but even here, people dress deliberately. Evening events call for more effort. In good restaurants or at concerts, hosts arrive looking sharp, and matching that effort is a quiet form of respect. Colleagues from cultures where casual dress extends into evening social settings may read this as unnecessary formality, while Russian counterparts may interpret underdressing as a lack of regard for the occasion.
-
-Regional differences are real. Moscow and St. Petersburg set the fashion tone, but outside the two capitals, practical credibility often outweighs trend. In some Muslim-majority regions and culturally conservative settings, modesty expectations are more pronounced. Clean lines, good shoes, and weather-appropriate outerwear communicate readiness and respect without needing statement style. When in doubt, mirror local senior colleagues rather than relying on global norms. Clothing should support authority, not compete for attention.

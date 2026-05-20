@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Credibility in an Algerian presentation often comes from composure rather than confidence alone. Flashy delivery or aggressive persuasion can suggest someone trying too hard, while a steady, respectful manner reflects good judgement and moral grounding. In settings shaped by a long history of external authority and unreliable systems, people tend to trust proof over promise. Grand claims without tangible backing may be met with scepticism, so concrete examples, consistent track record, and realistic framing persuade more than polished performance. When you say you will do something, show how you have already done it.
-
-Structure and detail strengthen that trust. A culture with deep craft traditions values outputs that feel carefully made. Clean logic, coherent flow, and attention to finish are read as signs of competence. Supporting materials should reflect that same care, whether in French for technical and institutional contexts or Arabic for moral and national framing. In regions where Amazigh language carries local resonance, even a brief acknowledgment can shift perceived inclusion. Language is never neutral here; it shapes who feels addressed and how seriously the message is taken.
-
-Linking ideas to collective endurance, continuity, or shared identity often resonates more than individual success stories. Algerian pride draws on survival and the memory of colonisation and independence, so narratives grounded in resilience and dignity can feel more substantial than purely transactional benefits. In internationalised urban settings, a more modern, energetic style may be welcomed. In traditional or elder-weighted rooms, restraint and deference cues matter more. Across both, protecting dignity remains a baseline expectation, so avoid anything that risks exposing someone in front of their peers.

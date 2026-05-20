@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Turkmenistan is shaped by strong hierarchical expectations and the need to preserve dignity in all interactions. Teams tend to function through clear lines of authority, where the senior person guides the work and junior colleagues defer to their direction. This reflects broader cultural values around respect for age, experience, and position. Collaboration usually flows from the top down rather than through lateral peer-to-peer exchange. A team member from a culture where contributions are made freely and early in the process may find this structure constraining, while a Turkmen colleague working in a flatter environment may feel uncertain about when to speak without clear direction from above.
-
-Praise and criticism are handled with care. Public recognition is typically directed toward the group rather than singling out individuals, which helps maintain harmony and avoids creating discomfort or envy. Negative feedback is given privately and indirectly to protect face. A manager who offers direct, individual correction in front of others risks damaging trust and morale. For colleagues accustomed to transparent performance conversations, this indirectness can feel vague, but in Turkmenistan it reflects respect for the person's standing within the group.
-
-Personal relationships matter as much as professional competence. A manager is expected to show interest in a team member's well-being beyond their work output, and loyalty often develops through these bonds rather than through formal processes or explicit goals. Building trust takes time, and decisions are rarely rushed. Teams that allow space for relationship-building and show deference to hierarchy will find collaboration smoother and more productive.

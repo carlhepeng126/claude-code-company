@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Cambodian workplaces operate within a strongly hierarchical structure shaped by Theravada Buddhist values that emphasise respect for elders, harmony, and deference to authority. Employees do not act beyond what has been explicitly authorised. Taking initiative outside your assigned responsibility is seen as presumptuous, not proactive. This means that most team members will do exactly what has been asked of them, no more and no less. If you expect your team to raise issues, propose solutions, or adjust their approach mid-task, you need to ask for those things clearly and create conditions where people feel authorised to contribute. Waiting for them to volunteer ideas or flag problems will usually mean waiting indefinitely.
-
-Age and seniority add another layer to how delegation works. A younger manager directing older subordinates may encounter quiet discomfort, even if the formal reporting line is clear. Similarly, a young employee may find it difficult to delegate upward to an older colleague, even when the task requires it. If you are younger than members of your team, build your credibility through knowledge, consistency, and reliable judgment rather than relying on your title. The strength of the relationship often outweighs the formal authority of the role.
-
-Face, the social currency of reputation and dignity, governs how correction is handled. Public correction damages not just the moment but the relationship itself. All sensitive conversations should happen privately, framed in a way that preserves the person's sense of worth. The goal is to address the issue while maintaining trust and allowing the person to continue working with confidence. In a culture where harmony and respect anchor professional life, how you correct someone can define whether they stay engaged or withdraw.

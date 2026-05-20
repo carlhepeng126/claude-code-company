@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-In Greece, formal authority is concentrated at the top, but actual decisions often travel sideways and downwards before they move forward. The person with the title makes the final call, yet that person may need approval from people who will never appear in the meeting. Big personal decisions and some business ones are discussed at family tables, with parents, siblings, or a godfather weighing in. Their blessing or worry can shift what someone ultimately chooses. A senior manager may agree with you in principle but tell you they need to "go home and talk" before committing. This is neither delay nor evasion. The decision simply lives in more than one place.
-
-In public sector settings and state-owned companies, party directives and union reactions shape what is possible. A director may privately support a change but know that if a union federation calls a strike, the plan will collapse. Colleagues from cultures where decisions are made quickly within organizational boundaries may read this as indecisiveness. From a Greek perspective, ignoring these actors is reckless, not efficient. The decision that survives is the one that has been quietly cleared with the people who can stop it. This means mapping who holds influence beyond the room and addressing their likely objections early, rather than treating them as peripheral noise.
-
-Decisions often stall until a last-minute summit, where leaders bargain late into the night and emerge with a compromise. This pattern is not accidental. It reflects a comfort with prolonged negotiation and a belief that real resolution happens under pressure, when all sides finally show their limits. If a decision seems stuck, keep lines open and be ready for an intense final phase where things suddenly move. What looked like gridlock can resolve overnight, and the shift will feel abrupt only to those who expected steady progress along the way.

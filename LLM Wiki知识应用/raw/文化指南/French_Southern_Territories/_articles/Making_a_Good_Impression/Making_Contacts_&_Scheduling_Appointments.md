@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-The French Southern Territories host only temporary scientific and logistical personnel on rotating assignments, with no permanent business community or resident population. Contact networks are shaped entirely by institutional frameworks rather than spontaneous professional outreach. Research stations are managed by the French Polar Institute (IPEV) and supported by military and meteorological services, so access depends on formal authorization through these bodies. You cannot simply reach out to individuals on the ground. Any collaboration must be arranged well in advance through sponsoring organizations in metropolitan France or partner institutions abroad.
-
-Scheduling follows the rhythm of supply rotations and seasonal weather windows. The main research base on Kerguelen receives ships only a few times a year, and flights to the scattered islands are limited by extreme conditions. If you need to coordinate fieldwork or join an expedition, expect lead times of six months to a year. Proposals are reviewed by scientific committees, and slots are allocated based on research priorities and logistical capacity. Flexibility here means adjusting to the infrastructure, not asking for schedule changes once plans are set.
-
-Relationships in this environment are built through shared hardship and interdependence rather than formal networking. Trust develops onsite, where small teams rely on each other in isolated, often harsh conditions. Professional credibility is proven through competence and reliability in the field, not through introductions over coffee. For outsiders, this means your institutional backing and technical expertise matter far more than personal connection when seeking initial access.

@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Bermuda tend to move through relationship channels before they reach finalization. Senior leaders hold formal authority, but they rarely announce decisions without first gauging views across their network. This consultation happens informally, often outside the meeting room, and reflects a deeper expectation: that decisions should sit well socially, not just operationally. A manager may already know what direction they favor, but they will still sound out trusted colleagues, long-standing team members, or respected peers to confirm alignment and preempt friction.
-
-This approach serves a practical function in a small island environment where professional and personal circles overlap. A decision that disregards key relationships or creates visible tension can ripple quickly. Managers balance their positional authority with relational awareness, using informal channels to build consensus while retaining the final call. For a colleague from a culture where decisions are made quickly and communicated top-down, this process can feel opaque or drawn out. From a Bermudian perspective, moving fast without consultation can seem dismissive and socially tone-deaf.
-
-Flexibility is built into the process. Family considerations, community ties, or shifts in local context may influence timing or implementation. What was agreed in principle may be adapted quietly if circumstances change. If you are working with Bermudian counterparts, expect decisions to take longer than formal timelines suggest, and pay attention to who is being consulted outside the room. That informal groundwork is where the real decision is being shaped.

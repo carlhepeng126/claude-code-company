@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Eswatini is shaped by a deeply rooted system of traditional authority that extends from the monarchy into the workplace. The country's governance structure, centered on the king and traditional chiefs, influences how authority is understood and exercised in professional settings. Leaders are expected to embody both authority and care, making decisions that reflect responsibility for the collective rather than personal preference alone. This dual expectation means that leadership is rarely openly questioned, but it also creates an implicit obligation for leaders to consider the welfare of those they guide.
-
-In practice, most Eswatini managers adopt styles that appear consultative but remain decisively hierarchical. A leader may seek input from the team, listen carefully, and acknowledge contributions, yet the final decision rests with them and is rarely altered by the discussion. This reflects a cultural logic where consultation serves to maintain relational harmony and signal respect, rather than to distribute decision-making power. For a colleague from a culture where consultation implies shared ownership of outcomes, this can feel frustrating or tokenistic. From an Eswatini perspective, a leader who changes direction based on team input may seem weak or uncertain, someone who lacks the clarity expected of their role.
-
-Younger professionals and those in urban settings or international firms may prefer more participative approaches, but even then, deference to seniority and positional authority remains strong. Challenging a leader's decision openly, especially in a group setting, risks causing embarrassment and damaging the relationship. If you need to raise a concern, do so privately and frame it as a question or request for clarification rather than a correction.

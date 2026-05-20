@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Many professionals in Senegal move fluidly between local and Western business dress, choosing what fits the day, the setting, and the people they are meeting. In ministries, banks and NGOs, you will see suits, shirts and business dresses alongside boubous or grand boubous in rich fabrics, especially on formal days or Fridays. Women often wear tailored outfits in wax or bazin cloth, sometimes paired with headwraps. These choices reflect pride and seriousness, and turning up looking scruffy or thrown-together can read as a lack of respect for the occasion. If you are meeting someone senior or attending a formal event, matching the level of care your counterpart brings to their appearance will help set the right tone.
-
-Modesty is expected across religious traditions. Covered shoulders, knee-length or longer skirts, and clothes that are not too tight are the baseline. This does not mean dressing plainly. Senegalese notice fabric, clean shoes, and whether you have made an effort. Style and aesthetics count, but within a framework of restraint. For men, an ironed shirt and trousers or a suit work well; for women, a business dress or loose trousers with covered shoulders will fit most professional contexts. Avoid extremely casual looks like shorts, flip flops or gym wear, even if the atmosphere feels relaxed.
-
-If you have been given local attire or choose to wear it, do so respectfully rather than as costume. Following your host's lead on formal days can build rapport, but wearing it badly or inappropriately can have the opposite effect. Pay attention to how others in the room are dressed, and let that guide your own choices.

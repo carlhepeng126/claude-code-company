@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiations in Bolivia are shaped by the importance of personal relationships and a cultural preference for building trust before settling terms. Bolivian counterparts often want to understand who they are working with, not just what is being proposed. This means early meetings may focus more on establishing rapport than on reviewing contract details. Moving too quickly to commercial terms can feel transactional and may slow the process down rather than speed it up. Taking time to build a genuine connection shows that you are interested in a partnership that will last beyond a single transaction.
-
-The negotiation itself may not follow a linear path. Points that seemed settled can be revisited, and new concerns may surface late in the discussion. This back-and-forth allows both sides to test flexibility and ensure nothing has been overlooked. A colleague from a culture where agreements are locked in quickly may read this as indecisiveness, while a Bolivian counterpart may view a rigid, front-loaded approach as a sign that the other party is not truly open to dialogue. Allowing room for this iterative process can reveal important nuances and strengthen the final agreement.
-
-Bargaining is expected, and presenting your best offer at the outset leaves little space for the give-and-take that many Bolivian negotiators see as part of reaching a fair outcome. Pacing also reflects consultation. Decisions may need to be discussed with others inside or outside the organization, and this takes time. Pushing for closure before those conversations have happened can weaken trust rather than secure commitment.

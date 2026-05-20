@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Forty years of Soviet-influenced communist rule in Czechoslovakia embedded a hierarchical, compliance-oriented workplace culture that still shapes Slovak attitudes to delegation and supervision. Unlike systems that encouraged worker participation, Czechoslovak communism was centralised and bureaucratic, rewarding adherence to procedure and penalizing mistakes. The result is a professional environment where many employees expect to receive tasks, complete them, and move to the next one without necessarily understanding the broader context or having input into decisions. This is especially true in older organizations or among employees shaped by the pre-1989 era. Work may stall rather than be completed on assumptions if instructions are incomplete, so it helps to be specific about both the task and its purpose.
-
-A pronounced generational divide runs through Slovak workplaces. Older colleagues tend toward deference and may tell foreign managers what they think is wanted rather than the harder truth, a habit sometimes called the "yes problem." Regular check-ins that make it safe to raise concerns can help surface issues early. Younger professionals, particularly those with international experience or working in multinational firms, are more comfortable with flatter structures and taking initiative. The same delegation style can work well with one group and create confusion or resistance in the other.
-
-Even when managers are willing to delegate responsibility, not just tasks, employees may be reluctant to accept it. Fear of reprisal for mistakes or a preference for staying out of the spotlight can mean that problems are solved quietly or, in some cases, not reported at all. Building trust through consistency and showing that raising concerns does not lead to blame can shift this over time.

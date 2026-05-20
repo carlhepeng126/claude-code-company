@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Brazilian workplaces are hierarchical, and managers are expected to hold authority visibly. A boss who appears hesitant, consults too much before deciding, or defers excessively to the group risks losing the team's confidence. Direction needs to be clear and explicit. Because questioning upward is uncommon, vague instructions will be interpreted narrowly or left unactioned. If you delegate without spelling out the result you need, you are likely to find the work completed to the letter but not the intent. State what you want done, and check understanding early.
-
-At the same time, leadership here often takes a paternalistic tone. Managers who invest genuinely in their people as individuals, who show they care beyond the task itself, generate strong loyalty in return. Employees will go well beyond what is formally required for a manager they respect and feel supported by. This is not a transactional relationship. Celebrate contributions, acknowledge effort publicly, and handle criticism or correction privately. Shame and the fear of public embarrassment run deep. An employee criticised openly, or made to look foolish in front of colleagues, will disengage quietly rather than challenge the moment.
-
-Brazilian resourcefulness shows up in *jeitinho brasileiro*, the art of finding creative, flexible workarounds when formal routes are blocked. Employees may solve problems in ways you did not anticipate. This reflects adaptability, not defiance. If the outcome is sound, the path taken to reach it may matter less than it would elsewhere. Recognise this as initiative, and resist the urge to micromanage the method unless the standard genuinely requires it.

@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-In sectors like mining, energy, and infrastructure, Chilean audiences are full of engineers and accountants who expect presentations grounded in numbers, risk matrices, and operational detail. A deck built around purpose slogans and global buzzwords without a serious model underneath will be quietly dismissed as *vende humo* (smoke-selling). These professionals respect technical rigor and want to see how the logic holds up under scrutiny. If your proposal lacks concrete scenarios or fails to account for local variables, you may get polite nods but little follow-through.
-
-How you present also gets read through class and education codes. Language choice, accent, and whether you switch into English all signal where you sit socially. Over-using English buzzwords can come across as either aspirational or snobbish, depending on the room. In mixed audiences, plain, respectful Spanish with a few well-chosen terms works better than jargon-laden "Spanglish." A colleague from a context where English is the default business language may assume fluency signals professionalism, but in Chile, it can distance you from the people whose trust you need.
-
-Since the 2019 social uprising, there is little tolerance for narratives that gloss over inequality, territorial conflicts, pensions, or water access. Slides that talk about "transformación" and "sostenibilidad" without concrete commitments invite eye-rolling. Name the tensions your model depends on, even briefly, so people feel you understand their reality rather than a brochure version of the country. Chileans have lived through interruptions, from tremors to blackouts, and they value speakers who stay calm, adapt, and get to the point rather than pretending everything is under control when it clearly is not.

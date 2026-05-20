@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Many employees in the Dominican Republic support extended family, paying school fees and covering medical bills for parents, siblings, and children. Salary and stability are central concerns, but so are respect and status. People want to feel valued in front of their peers and to be seen as successful within their household and wider community. This dual pressure means that financial security alone is not enough. Recognition that raises someone's profile can have a stronger effect on engagement than an extra bonus paid quietly.
-
-Public acknowledgment at a company event, a photo displayed in the office, inclusion in a client meeting, or being asked to lead a training session can shift how committed someone feels. These gestures confirm that the person is seen, trusted, and moving forward. In an environment where unemployment is high and competition for formal roles is intense, being noticed by leadership reinforces personal pride and family honor. A manager from a culture where recognition is more private may wonder whether this kind of visibility is performative. From a Dominican perspective, a manager who never publicly acknowledges strong performance may seem indifferent or disconnected, regardless of what happens behind closed doors.
-
-Transparent pathways upward also drive motivation. Opportunities to learn English, move from informal to formal employment, earn a promotion, or access an international assignment are especially powerful. These are not just career steps. They represent a route out of economic precarity for entire families. When those pathways are made clear and accessible beyond the already-privileged, retention and discretionary effort rise noticeably.

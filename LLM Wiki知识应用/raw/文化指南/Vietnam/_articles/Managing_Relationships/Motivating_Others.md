@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Vietnam is often relational before it is transactional. People work hard because they belong to something, because their contribution makes a difference to the group, and because success reflects well on the family they support and the name they carry. A manager who asks about someone's aging parents, remembers a child's exam date, or marks a wedding with a thoughtful gesture is not just being polite. They are building loyalty through care and attention, making the workplace feel less like a transaction and more like a place where people are noticed and remembered. That sense of belonging can be as motivating as any bonus.
-
-The Đổi Mới reforms unlocked a hunger for progress, enterprise, and upward movement that reshaped what ambition looks like. Many people today, especially in cities, want to move quickly, build careers, and signal status through mobility and achievement. But that drive often sits alongside older values of steadiness, responsibility, and family honour. For someone supporting aging parents or younger siblings, career success is not a personal story. It is a shared one, rooted in repaying sacrifice and creating stability for the next generation. Link goals to what they enable for the team, for the family, for continuity. Frame achievement as contribution, not just individual gain.
-
-Recognition works best when it is socially safe. Public praise can create pride, but it can also create discomfort or pressure, depending on the person and the audience. Quiet respect, such as offering someone more responsibility, trusting them with a sensitive task, or acknowledging their contribution privately, can be far more powerful than a performance award announced to the whole office. Reliability and steady competence should be rewarded visibly, not just standout wins. People who deliver quietly, who show up consistently, who hold the team together, deserve to be seen.

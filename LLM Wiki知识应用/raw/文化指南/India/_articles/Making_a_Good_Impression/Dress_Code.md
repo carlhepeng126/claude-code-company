@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional dress in India reflects both climate realities and respect for social norms. In metros and multinational companies, Western business wear coexists with formal Indian attire such as the sari, salwar kameez for women, and the kurta with formal trousers for men. These are not casual options. They hold the same professional standing as a suit and can be the preferred choice in many sectors. Treating Indian business dress as equivalent, rather than less formal, keeps you aligned with local norms.
-
-Modesty in cut, length and fit remains central to how professionalism is read, especially for women. This expectation varies by city and industry, but across much of India's corporate landscape, covered shoulders, skirts or trousers that reach the knee, and modest necklines still signal seriousness and respectability. Climate also shapes what people wear. Heat, humidity and monsoon rains make lightweight, breathable fabrics and practical footwear essential. Choosing a dark suit for a midday meeting in May in Delhi can suggest you are out of touch with the environment you are working in.
-
-Regional and sector differences are pronounced. A starched cotton sari in Chennai IT corridors, a Nehru jacket at a Delhi government meeting, or polo shirts and jeans in a Bangalore start-up can all be correct within their contexts. For first meetings, choose neat, modest business attire, then adjust once you see what colleagues in that sector and city actually wear. In smaller cities or traditional industries, dress slightly more conservatively than you might in Mumbai or Bangalore corporate hubs.

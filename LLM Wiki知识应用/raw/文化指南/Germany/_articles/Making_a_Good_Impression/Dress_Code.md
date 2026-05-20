@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-German business dress reflects the same principle that shapes German design and engineering: Sachlichkeit, a focus on clarity, quality and function. Clothes should support what you have to say, not compete with it. In traditional sectors like automotive manufacturing, banking, or the engineering plants of Munich and Stuttgart, dark suits, plain shirts and polished leather shoes remain the norm. The look is understated and built to last, chosen to direct attention to the content of the conversation rather than the person delivering it.
-
-Sector and geography produce real variation. In Berlin's tech and creative economy, hoodies, sneakers and visible tattoos sit comfortably alongside serious technical expertise. Frankfurt's financial district maintains a more formal standard, while Hamburg's maritime climate shapes what people consider practical. Across all settings, though, maintenance and neatness remain consistent expectations. Well-kept shoes, intact hems, weather-appropriate coats and functional outerwear communicate self-discipline and reliability. Arriving in rumpled or carelessly chosen clothing can quietly undermine credibility before the meeting begins, especially in industries where precision and process are taken seriously.
-
-For first meetings in traditional sectors, conservative business attire gives you room to adjust once you understand the environment. Pay attention to grooming and the small details—bag, shoes, outerwear—as closely as the suit or dress itself. In more casual workplaces, you can dress down, but "smart casual" will always serve you better than "thrown together." If in doubt, being slightly overdressed rarely costs you anything, but underdressing can cost credibility you will not easily recover.

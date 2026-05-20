@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Delegation in Tanzania works best when trust has already been established. The philosophy of Ubuntu, the understanding that "I am because we are," means employees engage more fully when they feel part of something larger than a task list. A manager arriving with immediate demands but no relationship will find that instructions are followed to the letter, but rarely extended beyond. Building connection first is the precondition for real engagement, rooted in a culture where relationships come before transactions. This reflects Tanzania's Swahili coastal trade tradition, where trust was the foundation of every exchange, and the post-independence socialist era under Julius Nyerere, which prioritized community over individual achievement.
-
-Be explicit when assigning work. Tanzanian employees will generally follow their brief as given and hesitate to act beyond it without clear instruction or genuine buy-in. This reflects the country's socialist legacy, which created institutional caution and a preference for clear mandates over individual interpretation. A colleague from a culture where employees are expected to improvise or fill gaps may read this as lack of initiative. From a Tanzanian perspective, staying within the brief shows respect for authority and avoids overstepping. Explaining the context behind a task and inviting questions helps people understand where flexibility is welcome.
-
-Feedback must be given privately and framed with care. Public criticism, however mild, damages heshima (honor and reputation) and fractures the trust the relationship depends on. Employees who lose face once will disengage quietly and may withdraw from group participation entirely. Reassurance and acknowledgment are valued, and older supervisors are treated with particular respect. Their judgment is rarely questioned openly, reflecting a broader cultural reverence for age and experience.

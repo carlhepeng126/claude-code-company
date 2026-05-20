@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Abidjan's restaurant scene reflects the country's French colonial history, with a wide choice of high-end dining venues where business entertaining often takes place. French, Italian, Vietnamese, and Thai cuisines are popular, and there's no expectation to choose an African restaurant when hosting. Because trends shift, it's worth asking a trusted local contact for current recommendations. Smart cocktail bars or French-style patisseries in business districts and expat areas also work well for daytime or less formal gatherings.
-
-Hospitality runs deep in Ivoirian professional culture. The belief that those fortunate enough to have food should share it, combined with the view that communal dining feeds relationships as much as it does appetite, means business meals are generous, lively occasions. Inviting a colleague or client to a meal is a natural extension of building connection, and accepting warmly is expected. The gathering itself strengthens the relationship. Declining repeatedly or treating the invitation as optional can be read as a lack of interest in the partnership.
-
-Conversation over meals tends to be relaxed and wide-ranging. Business may come up lightly, or not at all, and it's usually the host who decides when or whether to raise it. A colleague from a culture where meetings have clear agendas and outcomes may find this open-ended approach unclear, wondering when the real conversation will begin. From an Ivoirian perspective, the real conversation is already happening. The meal is where trust develops and character is observed, both of which shape whether and how business will move forward.

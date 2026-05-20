@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Arabic names follow a distinct structure that can include personal name, father's name, grandfather's name, and family or tribal name. Using the correct given name and title shows you have taken the time to understand how the person should be addressed. Shortening arbitrarily or mis-cutting a name reads as careless and can undermine the opening tone of a relationship, especially where hierarchy and family lineage hold social weight.
-
-Titles and honorifics serve a specific function in a culture where hierarchy is both respected and openly displayed. Addressing sheikhs, government officials, and senior figures in family businesses with the appropriate title—His Excellency, Sheikh, Dr, Eng.—acknowledges their position and signals awareness of social structure. Dropping titles too early can feel overly casual, even in environments where access to senior people is relatively straightforward. In written communication, use formal titles with the family name until invited otherwise: "Your Excellency," "Dear Sheikh Khalid," "Dear Dr Al Suwaidi." Maintain this formality in mixed Emirati and expat settings, even if first names appear quickly among international colleagues in free zones.
-
-Physical greetings vary by individual preference, particularly between men and women. Some Emirati women and men prefer not to shake hands with the opposite sex, while others are comfortable doing so. Watch for body language cues: a hand placed over the heart, a slight bow, or an extended hand will usually signal the preferred greeting. Wait for your counterpart to initiate, and mirror their choice. If unsure about a name's pronunciation or structure, ask a local colleague discreetly beforehand rather than guessing in the moment.

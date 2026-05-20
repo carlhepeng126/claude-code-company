@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Agreement in Oman unfolds through quiet consultations with multiple stakeholders, tribal checks, and review by higher authority before a commitment becomes real. A quick "yes" from one person rarely closes a deal. The process extends beyond the table into majlis conversations, phone calls, and networks that trace back through families and regions. Expecting a linear path from proposal to signature can leave you unprepared for the consultations happening offstage. Ask regularly who else needs to be comfortable for your counterpart to say yes, and build time into your timeline for those conversations to take place.
-
-The Ibadi tradition, which values moderation and fairness, shapes how people judge the terms you propose. Trying to squeeze every concession or arriving with an extreme opening position can damage your standing, not just for this deal but for future ones. Omanis respect partners who show restraint, accept reasonable margins, and behave predictably. Open with a structure that already reflects fairness, leaving room for adjustments without appearing to have overreached. Bargaining is expected, rooted in a merchant culture that values shrewdness, but the goal is a fair outcome, not a win at any cost.
-
-Symbolism matters as much as the numbers. Who owns the land, whose name appears on signage, which local firms get subcontracts, and whose youth are hired all communicate respect and long-term intent. A deal that looks like foreigners taking resources while locals watch from the sidelines becomes politically fragile. Put local land, jobs, and supplier opportunities at the center of the proposal, not at the margins, and make sure the structure itself shows that you understand what a partnership in Oman requires.

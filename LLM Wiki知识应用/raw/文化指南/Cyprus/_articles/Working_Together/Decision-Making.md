@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-In Cyprus, decisions emerge gradually through informal consultation that respects personal relationships and established hierarchy. Formally, a senior manager or business owner may hold ultimate authority. In practice, that authority is rarely exercised in isolation. Instead, decisions are shaped through quiet conversations with trusted colleagues, family members, and advisors before they are finalized. This reflects a broader cultural logic: that good decisions require more than functional analysis. They require relational legitimacy and social alignment.
-
-This approach is grounded in a society where professional and personal networks overlap heavily. A senior leader may consult a sibling who works in another sector, a long-standing colleague, or an older business partner whose judgment is valued. The goal is not only to gather information but to build agreement and reduce the risk of discord. Decisions that bypass this process, even when technically sound, can meet quiet resistance or fail to gain the commitment needed for implementation. A manager from a culture where decisions are made quickly and individually may find this slower, networked approach unclear or overly cautious. From a Cypriot perspective, that same manager's direct style may appear socially unaware and vulnerable to unforeseen complications.
-
-When working across cultures, allow time for consultation even when the formal decision-maker has been identified. Ask who else should be informed, and recognize that the person who speaks most directly in meetings may not be the one whose view determines the outcome. Flexibility is expected as circumstances evolve, and a decision announced one week may be adjusted the next based on relational or contextual factors that were not initially apparent.

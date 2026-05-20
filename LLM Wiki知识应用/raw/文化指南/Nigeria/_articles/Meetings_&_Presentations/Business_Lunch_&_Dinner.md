@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Nigeria blend warmth with respect lines that run quietly beneath the conversation. Elders and senior figures are often served first and deferred to when topics shift or decisions surface. This reflects the broader expectation that hierarchy be acknowledged even in relaxed settings. Humour flows easily, but dignity boundaries remain. Pressing someone publicly on a commitment or surfacing a disagreement at the table can undermine the trust the meal is meant to build. A colleague from a culture where meals are used to resolve sticking points may read this restraint as avoidance, while a Nigerian counterpart may see direct challenge over food as socially clumsy. The meal deepens the relationship; harder conversations belong elsewhere.
-
-Religious norms shape venue choice and what appears on the menu. In Muslim-majority and northern settings, halal food is assumed and alcohol is absent. Christian-majority circles may be more varied, but faith still shapes timing, especially during fasting periods like Ramadan or Lent. Checking dietary expectations in advance avoids quiet discomfort. Food also communicates regional identity. The dishes people order, how they handle spice, and which meals carry emotional weight can all be read as identity cues. Curiosity about food can open doors, but treating someone's preferences as exotic or turning them into a talking point risks flattening what is personal into performance.
-
-If you are hosting, follow the lead of your senior guest on serving order and when to begin. If you are attending, watch how the host structures the meal and mirror that rhythm. Keep the conversation relationship-focused and save high-stakes commitments for a follow-up meeting.

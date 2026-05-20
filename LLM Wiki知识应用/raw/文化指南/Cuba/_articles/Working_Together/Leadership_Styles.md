@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Cuba is shaped by decades of centralized, state-directed organization and by revolutionary ideals that emphasize collective welfare over individual advancement. Formal authority is concentrated at senior levels, especially in state institutions, and decisions typically flow from the top. Leaders are expected to embody revolutionary values such as dedication to the collective good, personal discipline, and a commitment to egalitarian principles. In practice, this means managers may be evaluated not only on outcomes but on how visibly they align with these ideals. The result is a leadership culture that values loyalty, political alignment, and social responsibility alongside professional competence.
-
-At the same time, Cuban leaders often adopt consultative styles in day-to-day work. Managers commonly invite input from their teams, hold group discussions, and seek consensus before finalizing decisions. This is rooted in the cultural importance of collectivism and solidarity, where decisions are expected to reflect group harmony rather than individual assertion. However, consultation does not always mean influence. A manager may listen carefully, acknowledge contributions, and still make the final call independently. For a colleague from a culture where consultation implies shared decision-making, this can feel confusing or tokenistic. From a Cuban perspective, the act of consultation itself fulfills a social function: it demonstrates respect, maintains cohesion, and allows authority to be exercised without alienating others.
-
-In private enterprises and joint ventures, leadership styles can be more flexible and delegative, particularly among younger managers or those with international experience. Even so, the expectation remains that leaders will balance efficiency with social responsibility and avoid actions that appear self-serving or dismissive of the group.

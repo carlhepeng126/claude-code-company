@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Fiji runs through the strength of your relationships. When people feel genuinely valued and personally known, they give more. Recognition works best when it comes through conversation, not announcement. A quiet thank you after a task is completed, or acknowledgment in front of others who matter to the person, means more than a generic email. Public praise can build standing within the group, but it needs to feel earned and sincere. Fijian colleagues are quick to sense when recognition is procedural rather than felt.
-
-Loyalty to the team and the leader drives sustained effort. People work hardest for managers they trust and who have invested time in the relationship. That trust grows through consistency, fairness, and showing care for the whole person, including their family and community responsibilities. A manager who understands when someone needs to attend a funeral or contribute to a village obligation earns commitment that formal incentives alone will not produce. Material rewards have their place, but they follow connection, not replace it.
-
-Strict targets or impersonal systems can feel disconnected from how work actually happens. Fijians value harmony and group cohesion, so pushing individuals to stand out or compete against each other often backfires. Motivation comes from being part of something shared, where effort benefits the group and strengthens collective standing. A colleague from a culture where individual performance metrics drive results may find this frustrating, while a Fijian manager working abroad may struggle when personal relationships are kept separate from performance expectations. Framing goals as team achievements, and linking them to outcomes that support the wider group, tends to unlock more energy than isolating performance by name.

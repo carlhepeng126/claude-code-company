@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Vietnam often follow a quiet protocol shaped by seniority and relational care. The most senior person on the Vietnamese side typically speaks first or designates who will respond, and others may hold back until invited. Listening carefully can signal competence and respect, so silence in the room doesn't mean disengagement. This deference reflects a broader cultural pattern in which hierarchy brings stability and harmony matters as much as task completion. If you direct your opening remarks to the senior figure and allow them to guide the flow, the meeting will feel more aligned with local practice.
-
-Public consensus often emerges after private alignment has already taken place. Debate may happen in smaller follow-up conversations or one-to-one exchanges rather than in front of the full group, especially when face or group cohesion is at stake. This comes from a long-standing cultural sensitivity to dignity and a desire to keep relationships intact, both of which have roots in Vietnam's history of collective resilience. If you press for a definitive yes or no in the main meeting, you may get polite agreement without the real decision. Instead, suggest a follow-up checkpoint and invite private input after the session.
-
-Regional differences also shape meeting rhythm. What feels efficient in Ho Chi Minh City may come across as abrupt in Hanoi or Hue, where communication can be more indirect and pacing more measured. This variation is cultural and geographic, not a sign of inconsistency. Matching your tone and tempo to the room, and allowing space for people to contribute without public risk, will make collaboration more effective across the country.

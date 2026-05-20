@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Taiwanese professional culture values neatness and modesty, shaped by both Confucian ideals of self-discipline and the emphasis on orderliness that came with Japanese colonial-era modernity. How you present yourself conveys respect for the context and for the people you're meeting. In most corporate settings, smart business attire works well: shirts or blouses, tailored trousers or skirts, and closed shoes. The goal is to look tidy and appropriate, not to stand out. Very revealing clothing, overstyle, or overly casual dress can quietly undermine credibility, not because it offends, but because it reads as a lack of awareness or seriousness.
-
-Formality varies by sector and setting. In government offices, finance, and established industries, dark suits and conservative tailoring remain the standard. In tech companies and start-ups, smart casual is common, but even here the expectation is clean and neat, not sloppy. What reads as relaxed in one context can still look careless if not well put together. If you're visiting a temple or attending a culturally significant event, modesty becomes more pronounced. Covered shoulders and conservative hemlines show respect, particularly in settings where tradition still shapes the tone.
-
-Taiwan blends global, East Asian, and local aesthetics, especially in Taipei and business hubs. People notice whether your appearance fits the occasion. Someone used to dressing for individual expression or convenience may read the emphasis on context-appropriate dress as overly cautious. From a Taiwanese perspective, a colleague who dresses too casually for a formal meeting may seem uninterested in the relationship or unaware of the setting's seriousness. Matching your formality to the context demonstrates cultural fluency and shows that you've taken the time to understand what the situation asks for.

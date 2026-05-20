@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Peruvian professional culture blends warmth with formality, especially when people meet for the first time or when age and status differences are visible. This combination reflects a history of social stratification and rural-urban inequality, where how someone is addressed can signal respect or distance. Titles matter. Use professional or academic titles when available (Doctor, Ingeniero, Licenciado) paired with the surname, or default to Señor or Señora followed by the last name. Wait to be invited to use first names, though the invitation often comes quickly once rapport is established. In meetings, greet the most senior person first; this acknowledgment of hierarchy shows you understand the room.
-
-Language choice can also convey inclusion or exclusion. Spanish dominates, but Quechua and Aymara remain present in regions where they hold official status, and some professionals carry memories of accent- or mother-tongue-related stigma. If you notice a colleague is less comfortable in Spanish or English, simplify your sentences and recap key points. This is inclusion, not condescension. Keep your tone warm but avoid humor that touches on class or regional differences until you understand the relationship better.
-
-In writing, maintain formality even in digital communication. Standard openings like "Estimado Señor [Surname]" and closings such as "Atentamente" or "Cordialmente" are expected. A colleague from a culture where first-name email is the norm may read this as stiff; a Peruvian colleague may read immediate first-name informality as presumptive or dismissive. Starting formal and adjusting at the other person's pace protects dignity while building trust.

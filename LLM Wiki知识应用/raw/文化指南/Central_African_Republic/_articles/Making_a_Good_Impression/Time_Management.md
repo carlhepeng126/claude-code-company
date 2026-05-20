@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in the Central African Republic moves according to relational and situational priorities rather than the clock alone. This rhythm has deep roots in communities where survival has long depended on social cohesion and mutual support more than rigid scheduling. In a country marked by limited infrastructure, unreliable electricity, and decades of instability, time bends around what people can control: relationships, presence, and the quality of exchange. A meeting that starts late or stretches longer than planned reflects a commitment to getting the interaction right, not a disregard for the schedule.
-
-Punctuality is valued differently depending on context. In international organizations, mining firms, or NGOs working with external donors, meeting times are usually respected and deadlines treated seriously. In smaller local businesses, government offices, or community settings, flexibility is more common. Delays may be caused by practical realities such as transport challenges or power cuts, but they also reflect a belief that people and circumstances come before the clock. If a colleague needs to attend to family or community obligations, that takes precedence, and the expectation is that others will understand.
-
-A colleague from a culture where meetings begin exactly on time may read a delayed start as unprofessional or disorganized. Someone from the Central African Republic may in turn view a rigid insistence on punctuality, especially when it overrides immediate human needs, as cold or disconnected from reality. Building shared expectations early, confirming arrangements closer to the time, and allowing room for adjustment will help prevent frustration on both sides.

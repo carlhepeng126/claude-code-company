@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional dress in Eswatini reflects a post-independence business culture shaped by both South African corporate influence and the country's own ceremonial traditions. Most formal workplaces follow conservative standards. Men wear suits with ties, and women choose tailored suits, dresses, or coordinated separates. The expectation is not flashiness but careful presentation. Dressing well shows that you take the meeting and the relationship seriously, especially if you are meeting government officials or senior figures in established industries like banking or telecommunications.
-
-Some variation exists by sector and generation. Younger professionals, particularly in urban centres like Mbabane and Manzini, may adopt smart casual styles in sectors like NGOs or media. Even so, the baseline is still intentional. Arriving at a formal meeting in casual clothing, even neat casual clothing, can undercut your credibility before you speak. If you are unsure, lean formal. A colleague from a culture where informality signals approachability may assume that dressing casually builds rapport, but in Eswatini the reverse often holds. Formality conveys respect, and respect builds trust.
-
-During major cultural events or national celebrations, you may see traditional attire such as the emahiya (a brightly patterned wraparound cloth worn by women) or the ligcebesha and lidziya (traditional coverings for men). These are worn with pride, especially at occasions like Umhlanga or Incwala, and acknowledging them respectfully can open conversation. Business meetings do not typically include traditional dress, but asking about it when it appears shows genuine interest.

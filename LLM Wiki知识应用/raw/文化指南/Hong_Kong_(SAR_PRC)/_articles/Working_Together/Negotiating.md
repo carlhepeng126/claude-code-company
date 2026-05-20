@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Hong Kong negotiators move fast but rarely go it alone. Commercial speed is paired with quiet backstage checks through legal, compliance, and mainland-facing teams. Though Hong Kong operates on common law and values tight contracts, implementation often depends on PRC regulators, state-owned enterprises, or mainland partners, which means deals need to hold up under both legal scrutiny and political change. A colleague arriving ready to sign may find that what looks settled still needs internal clearance. This tension between "get this done before the window closes" and "we haven't cleared this with China yet" shapes the rhythm of most negotiations.
-
-Price is negotiated hard, but the real constraint is often precedent. Hong Kong's professional networks are dense, and people know a special deal granted today may need defending tomorrow. Negotiators care less about rejecting a number than about avoiding terms that will box them in or damage their standing when word travels. Structure offers so your counterpart can explain them internally and won't feel cornered if the deal becomes public knowledge later.
-
-Good negotiations make room for concessions. Opening with your best terms leaves no space for the give-and-take Hong Kong counterparts expect. If you propose a number and hold it firm, the assumption may be that you're either inexperienced or haven't taken the relationship seriously. Build in flexibility. Your counterpart is doing the same, and they're waiting to see how far the margin moves before judging whether the deal is worth the reputational cost.

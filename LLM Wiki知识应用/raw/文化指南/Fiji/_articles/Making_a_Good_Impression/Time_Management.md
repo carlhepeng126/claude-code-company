@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-In Fiji, time bends around relationships and social obligations. Decisions and meetings often unfold according to relational readiness rather than scheduled precision. This reflects the deep cultural priority placed on collective harmony and respect for hierarchy. Rushing a conversation or cutting short a greeting to stay on schedule can be read as disregard for the person, not just the clock. In settings where trust and group cohesion are being built, Fijians may allow time for informal exchange, consensus-building, or waiting until the right people are present before proceeding. This is especially true in village settings, government offices, and family-run businesses, where community ties and seniority shape the rhythm of work.
-
-Urban environments and sectors tied to international commerce, such as tourism or finance, tend to observe stricter punctuality. In these contexts, deadlines and meeting start times are taken more seriously, particularly when working with foreign clients or partners. But even here, the social dimension remains visible. A meeting may begin on time but still include extended pleasantries, or a deadline may be met after behind-the-scenes effort that prioritized maintaining goodwill over linear efficiency.
-
-A colleague from a culture where schedules drive structure may interpret delays as lack of commitment. From the Fijian side, the same colleague's insistence on time over people may come across as transactional or impersonal. Understanding that time in Fiji is often used to strengthen relationships, not avoid them, helps both sides recalibrate expectations and find a shared tempo that serves the work and the relationship.

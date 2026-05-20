@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in French Polynesia is handled with care for relational harmony and personal dignity. Direct criticism, especially in front of others, can cause embarrassment and damage trust. Managers and colleagues tend to raise concerns indirectly, often in private conversations where the tone remains warm and the message is softened through suggestion rather than evaluation. A manager might frame a point as a shared reflection or offer guidance without naming the fault outright. This approach protects the person's standing within the group while still opening the door to improvement.
-
-Praise is more openly given, but even here the style leans toward the personal and the spontaneous. Public recognition is appreciated when it feels genuine and includes the team, but singling someone out in a formal or performative way can feel uncomfortable. Polynesian workplace culture values collective achievement and mutual support, so feedback that strengthens the group rather than isolating the individual tends to resonate more deeply.
-
-Formal performance review systems may feel out of step with local expectations. Written assessments or numbered ratings can come across as impersonal and overly transactional, especially when they replace face-to-face conversation. For colleagues used to cultures where feedback is documented and delivered in structured sessions, this may seem vague or incomplete. From a French Polynesian perspective, the same structured approach may feel cold and disconnected from the relational foundation that gives feedback meaning. Building trust through informal check-ins and investing time in the relationship makes coaching more effective than relying on process alone.

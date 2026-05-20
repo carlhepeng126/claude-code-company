@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Colombian teams often subdivide into parches, informal groups formed along regional, class or educational lines. The costeños band together, the paisas look out for each other, the Bogotanos form their own circle, and graduates of the same university or those from the same estrato find each other quickly. Within the parche, people share information, warn about restructurings, and protect each other when resources are tight. Outside it, colleagues stay polite but hold back. This reflects a country where trust has historically been built within close networks, and where in-group loyalty has been a survival strategy in uncertain environments.
-
-A good teammate is someone who saca el trabajo, who gets it done when information is missing, systems fail, or obstacles appear without warning. Strict process adherence can be viewed as poor collaboration if it means letting work stall. People value rebusque, the ability to improvise ethically and keep things moving, over rigid rule-following. A colleague from a setting where process compliance defines professionalism may see this flexibility as cutting corners, while Colombians may view insistence on procedure in the face of real-world blockers as unhelpful or impractical.
-
-Teams avoid open conflict. People cover for each other, redo work quietly, and adjust behind the scenes rather than escalate disagreements. Calling out a colleague publicly causes embarrassment and breaks trust. Underperformance or mistakes need private, respectful conversation, never public correction. In regions shaped by violence, some team members bring direct experience of displacement, kidnapping, or armed actors, and they can be both deeply resilient and sensitive to being instructed by those who have never left urban safety.

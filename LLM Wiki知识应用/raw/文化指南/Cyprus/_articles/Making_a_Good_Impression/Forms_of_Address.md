@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Cyprus combines a preference for warmth with a clear sense of professional hierarchy, and this shows in how people address one another at work. Formal titles are used more consistently than in many Northern European or North American settings, especially in early interactions or with senior figures. You will hear "Mr" and "Mrs" paired with the family name, and professional titles such as "Doctor" or "Engineer" are common and expected. These are not simply courtesies—they reflect the value placed on education, professional standing, and respect for seniority. Dropping them too quickly, particularly with someone older or more senior, can come across as presumptuous or overly casual.
-
-At the same time, Cypriots move toward first names more readily than in some other Southern European cultures once a relationship has been established. The shift usually comes with an invitation, either explicit or implied through tone and repetition. In smaller organizations or among peers, informality may emerge after just a few meetings. In larger corporations, government settings, or with older colleagues, expect formality to last longer. A colleague from a culture where first names are used immediately might read this as distant, while a Cypriot may interpret an early switch to first names as a sign that trust has not yet been earned.
-
-In written communication, formality tends to hold longer than in speech. Emails to senior colleagues or external partners often open with titles and surnames, even after face-to-face meetings have become more relaxed. Matching the level of formality you receive is a reliable guide.

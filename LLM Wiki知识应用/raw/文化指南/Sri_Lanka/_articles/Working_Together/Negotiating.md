@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in Sri Lanka moves through people as much as it moves through terms. Introductions and intermediaries reduce uncertainty and create the social proof that allows both sides to move forward with confidence. A trusted connector can open conversations that would otherwise stall, and their presence signals that the relationship has backing beyond the room. When possible, ask who should be involved rather than assuming a direct path will work best.
-
-Preserving respect on both sides shapes how bargaining unfolds. Soft language and respectful pacing allow counterparts to consult family, senior figures, or trusted advisors without feeling rushed or exposed. A colleague from a culture where deals are closed quickly in the room may read this as evasion or disinterest, while the Sri Lankan counterpart may see the pressure to commit on the spot as disregarding the need for proper consultation and collective alignment. Building in time for this process, and phrasing difficult points as options or shared constraints rather than blunt demands, keeps the door open and the dignity intact.
-
-The same request can land very differently depending on whether it threatens someone's standing. Concessions are easier when framed as mutual fairness rather than as a win for one side. Explain the reasoning behind your terms and make it clear where you are balancing interests, which makes fairness visible rather than assumed. What feels honest, modest, or respectful can also vary across communities and regions, shaped by different religious and ethical frameworks, so expect some variation in what people consider appropriate or comfortable in the exchange.

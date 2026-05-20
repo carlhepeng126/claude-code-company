@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In Italy, how you dress communicates how seriously you take your work and the people you work with. Fashion and tailoring are deeply embedded in Italian culture, and professional appearance is read as a sign of both competence and respect. This expectation cuts across age groups and industries. Even in sectors that have moved toward business casual, the emphasis remains on good fit, quality fabric, and coordination. Detail is noticed, from the cut of a jacket to the condition of shoes, and these small choices quietly influence credibility.
-
-The cultural logic behind this goes beyond style for its own sake. Italy's Catholic heritage continues to shape norms around modesty and taste, particularly in more traditional sectors. Polished presentation is expected, but ostentation or anything overly provocative tends to undermine rather than enhance your professional standing. In government, law, and banking, classic business attire is the baseline. In fashion, design, or technology, there is more room for individual expression, but the standard is still smart-elegant rather than casual. Attention to grooming and accessories matters in all of these contexts.
-
-For colleagues from cultures where business casual has become the default, this level of formality can feel unexpectedly high. From an Italian perspective, however, arriving underdressed can suggest a lack of preparation or seriousness. If you're not certain where the line falls, choose something slightly more formal and well-tailored. Clean, quality shoes are especially important and are often the first detail people notice. When in doubt, ask a local counterpart rather than assume that informal means relaxed.

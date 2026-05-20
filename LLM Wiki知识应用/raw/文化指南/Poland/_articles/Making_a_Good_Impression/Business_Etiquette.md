@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Polish business etiquette starts with substance over surface. Decades of state-controlled language during the communist period trained Poles to detect inflated claims, vague promises, and scripted friendliness. What matters now is whether you say what you mean and follow through. Come prepared with accurate facts and a clear purpose. This is read as the most authentic form of respect, far more than elaborate courtesies or fast familiarity. Let trust build from reliability, and expect the same in return.
-
-Hospitality in Poland has a moral dimension rooted in the idea that care is demonstrated through food, insistence, and making the guest feel properly received. If a colleague offers coffee or invites you to eat, the gesture is more than politeness. It reflects an old cultural script in which hosting well is a form of honor. Accept with visible gratitude. If you must decline, do so briefly and warmly so the offer is not read as socially rejected. A hand-written note after being hosted at someone's home is still appreciated and remembered.
-
-Gift-giving is more about timing and tone than expense. Give at the start of a relationship or when visiting someone's home. A bottle of wine, flowers for a host, or something representative of your own culture works well. Avoid anything overly expensive or showy. The goal is to show thoughtfulness without raising questions about motive. Exchange business cards early in a meeting and carry plenty, as Poles often expect to swap them. English on the card is fine, though titles on the card should be acknowledged when you address someone.

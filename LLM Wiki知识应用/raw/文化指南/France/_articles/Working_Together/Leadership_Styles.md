@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-French leaders are expected to set strong strategic direction and explain the intellectual justification behind it. This reflects a broader tradition of *dirigisme*, the idea that leadership involves guiding the system, whether that system is a company, a ministry, or a national project. A leader who offers only an action plan without explaining why this path makes sense, or how it fits within the wider institutional or political context, risks appearing superficial. When working with French leaders, prepare to discuss principles and rationale, not just timelines and deliverables. They will test the logic of what you propose.
-
-Many senior leaders in large firms and public bodies come from elite schools such as ENA, Polytechnique, Mines, or Ponts. These institutions create tight networks of shared training and language, a kind of administrative nobility that shapes how decisions are framed and legitimated. Influence often flows through informal channels: former classmates, trusted advisers, special counsellors. A short meeting may sit on top of long-standing internal networks. When proposing a collaboration, ask who else needs to be convinced, and understand that the formal structure may not reflect the full map of influence.
-
-French leaders are demanding on quality and argument, but they are also expected to defend their teams against unreasonable pressure from above, from clients, or from the state. This protective role earns deep loyalty. If you lead French teams, pair clear direction with visible defence of your people in external negotiations. Followers will notice whether you shield them as well as challenge them.

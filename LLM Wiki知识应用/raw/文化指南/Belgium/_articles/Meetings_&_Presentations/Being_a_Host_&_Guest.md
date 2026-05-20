@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Belgium is about substance, not spectacle. Quality is expected, but overt displays of wealth or generosity can feel misplaced. A well-chosen café with good coffee, a neighbourhood restaurant known for its regional cooking, or a simple arrangement of bread, cheese and wine convey respect without staging an event. This reflects a broader cultural preference for modesty over show. Trying too hard to impress can create awkwardness rather than warmth. If you are hosting, choose somewhere that reflects genuine care rather than status, and let the conversation fill the space. Belgians take food and drink seriously, so knowing something about local specialties or regional ingredients shows attentiveness in a way that grandstanding does not.
-
-An invitation to someone's home, particularly outside Brussels, represents a step into personal territory. It indicates the relationship has deepened beyond workplace courtesy. Expect good food, longer conversations, and opinions expressed more freely than at the office. As a guest, arriving on time shows respect, and bringing a modest gift is standard practice. Chocolates are less distinctive here than elsewhere, so a book, a bottle from your own region or something thoughtfully chosen from your home country tends to work better. Gifts should feel thoughtful rather than expensive, especially in public sector or EU contexts where ethical lines around hospitality are closely observed.
-
-Belgians often prefer evenings that are warm but not open-ended. Reading cues that it's time to leave is part of being a considerate guest. A short, sincere thank-you note or message afterward turns a pleasant evening into lasting goodwill and acknowledges the effort your host made in opening their home.

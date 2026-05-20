@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Costa Rica often move through formal structures designed to build consensus and protect reputation. Many organizations, particularly in the public sector and cooperatives, route decisions through boards, committees, and defined procedures. Individual leaders are expected to consult before committing. This reflects a deeply rooted preference for collective input and institutional legitimacy over individual authority, even where hierarchy exists. If you push for a quick decision from a single contact, you may misread both the process and the person's scope to act independently.
-
-Legal compliance and public perception shape what gets approved. Decision-makers are alert to how a choice will be seen by regulators, the media, and the public, especially if it touches on environmental or social values. Costa Rica's national identity is closely tied to sustainability and peace, and decisions that risk scandal or contradict that image are approached with caution. When presenting a proposal, frame how it aligns with these priorities and provide clear documentation on compliance and reputational risk. Vague assurances will not move a decision forward.
-
-In indigenous territories, coastal zones, and conservation areas, decisions often involve local assemblies, elders, or parallel governance structures that operate alongside national systems. These consultations are legally and socially necessary, and they take time. If your project touches these communities, build their decision processes into your timeline from the start. Treating them as a final formality or attempting to bypass them will stall approval and damage trust.

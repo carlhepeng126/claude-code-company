@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Costa Rica runs on two tracks. Emails, memos and formal meetings are part of everyday work life, especially in larger organizations and public institutions, but the real exchange often happens in what people call the *pasillo* (hallway) — coffee breaks, quick chats between meetings, co-op assemblies. People tend to save their most candid views for these informal moments, where hierarchy softens and honesty flows more easily. If you rely only on official channels, you will miss context, hesitation and the unspoken reservations that matter when things need to move forward. Building time for casual conversation into your routine gives colleagues the space to share what they might not write down.
-
-There is a strong respect for institutional process — forms, sign-offs, documented procedures — particularly in public entities and cooperatives. People generally expect steps to be followed and appreciate having things properly recorded. Yet this same respect coexists with real frustration when bureaucracy blocks practical solutions or slows work that everyone agrees needs doing. Acknowledging the value of formal procedures while looking for ways to simplify them, and involving frontline staff in any redesign, shows that you take process seriously without letting it become an end in itself.
-
-Information strategies designed in San José often overlook colleagues working in indigenous territories, coastal regions or rural cantons, where connectivity may be weaker and priorities different. Tailoring how you share — lighter documents, in-person visits, bilingual materials where relevant — signals that the conversation includes everyone, not just those nearest the capital.

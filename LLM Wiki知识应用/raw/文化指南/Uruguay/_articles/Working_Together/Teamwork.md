@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Uruguayans bring a strong cultural comfort with collaborative work, rooted in a tradition of institutions and civic formation. The country's long-standing view of itself as a place where schooling and the state shape fairness has built a preference for coordination that feels legitimate and explained, not driven by personality or charisma. This means teams function best when roles are clear, processes are transparent, and decisions can be traced to a rationale that respects proportional authority. A colleague used to rapid pivots or single-person decision-making may read this as slow or overly procedural, while a Uruguayan counterpart may experience that fast-moving style as abrupt or uncomfortably top-down.
-
-Uruguay's small size shapes how people collaborate. Professional circles overlap with neighborhoods, cultural groups, and extended family networks, creating a social environment where the same people meet again in different contexts. This recurrence means how you work with someone becomes part of your reputation, not just what you delivered. Collaboration that protects dignity, avoids public criticism, and keeps friction proportionate helps preserve long-term relationships. If a team member is quiet during a discussion, gentle direct invitation works better than expecting everyone to assert themselves equally.
-
-Memory of dictatorship has left a sensitivity to coercion and forced compliance. Teamwork that preserves voice and avoids heavy-handed authority resonates more deeply than models built on volume or dominance. When alignment is needed, use clear reasoning and fairness over persuasive performance. Consistency in rhythm matters too: setting regular update points and honoring them builds trust and shows respect for the group's shared practice.

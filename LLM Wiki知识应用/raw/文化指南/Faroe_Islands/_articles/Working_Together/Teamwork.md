@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Collaboration in the Faroe Islands grows from a foundation of long-standing relationships and a small-scale society where most people are connected through family, school, or shared participation in local life. This closeness means teams often rely on established networks and mutual obligation rather than formal team-building exercises. People assume a baseline of trust because they have known one another personally for years, and tasks are distributed through conversation and shared understanding more than through explicit role definitions or process documentation. When an outsider joins a team, expect introductions to come with personal background and context, which helps integrate new members into the relational web that underpins how work gets done.
-
-Hierarchy exists but operates quietly. Senior members guide through suggestion and example rather than directive instruction, and disagreement is often expressed through careful qualification or silence rather than open debate. This reflects a cultural preference for avoiding direct confrontation and preserving group cohesion in a setting where people will continue to work and live alongside one another long after a project ends. For a colleague from a culture where challenge and directness signal engagement, this style may seem passive or unclear. For Faroese team members working in more openly combative settings, the directness can feel destabilizing or disrespectful, especially when voiced in front of the group.
-
-In practice, this means decisions may appear to emerge gradually rather than through a single meeting or vote. Informal soundings happen beforehand, and consensus builds in smaller conversations before the group convenes. If you propose a shift in direction or process, allow time for that informal consultation to take place rather than expecting immediate agreement in the moment.

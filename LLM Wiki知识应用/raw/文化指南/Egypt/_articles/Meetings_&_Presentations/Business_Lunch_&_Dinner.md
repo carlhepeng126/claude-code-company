@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Egyptian business meals follow a rhythm set by the food itself. Shared dishes like mezze platters, grilled meats, rice, and molokhiya (a spinach-like soup often served with chicken or rabbit) create natural pauses. Conversation tends to shift away from serious topics while plates are being filled, then return to business between courses or over tea. Rushing through the meal or pushing for decisions while people are still eating can feel transactional and work against the relationship you are trying to build. Let the structure of the meal guide the flow of discussion.
-
-The choice of restaurant reveals as much as the conversation. A family restaurant in Nasr City, a fashionable venue in Zamalek, or a sha'bi (popular, working-class) grill near Sayyida Zeinab each reflect different social contexts and expectations around dress, language, and behavior. If you are hosting, ask colleagues which venues feel comfortable for all invitees. A setting that embarrasses more conservative or lower-income participants can undermine the trust the meal is meant to foster. Pay attention to who is invited, who orders, who pays, and which neighborhoods or hometowns are mentioned. These details offer quiet signals about internal hierarchies and how you are being positioned.
-
-Being invited to iftar during Ramadan, whether in a hotel or a family home, goes beyond networking. You are being invited into a deeply emotional and spiritual moment. The same holds for suhoor, the late-night pre-dawn meal, which is often even more intimate. Stay long enough to honor the occasion, and show that you understand what is being shared with you.

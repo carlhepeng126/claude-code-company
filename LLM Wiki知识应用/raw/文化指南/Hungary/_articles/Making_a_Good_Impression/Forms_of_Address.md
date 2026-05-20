@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Hungary, professional titles and formal address remain deeply embedded in workplace culture, reflecting a society that ties respect to qualifications and experience. Titles like "Dr.," "Professor," or "Mérnök" (Engineer) are used alongside surnames, especially with senior colleagues and in sectors where hierarchy runs deep. This convention holds across generations in government, academic, and corporate settings, though younger professionals and those in tech or creative industries may move to given names more readily. The practice reflects both pride in hard-won credentials and a social structure that values visible markers of achievement.
-
-Switching to first names happens when trust has been built, and the timeline depends on context. In some professional relationships, colleagues may work together for years and still default to title and surname, while in startups or multinational offices, informality can arrive within weeks. The shift usually comes from the senior person or is mutually felt rather than assumed. If you push toward first names before the ground is laid, you risk appearing either naïve or disrespectful of the formality that many Hungarians still associate with professional competence.
-
-Hungarian name order places the family name first, so Kovács Péter becomes Peter Kovács in international settings. Most Hungarians code-switch easily and understand the confusion, but repeated mispronunciation or dismissive jokes about diacritics register as more than carelessness. For a small nation whose language and identity stand apart from its neighbors, names are a touchstone. Making the effort to say them correctly, even imperfectly, signals recognition of that distinctiveness and opens the door to genuine rapport.

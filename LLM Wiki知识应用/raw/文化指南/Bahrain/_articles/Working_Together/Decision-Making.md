@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-When someone says "we'll check with upstairs," the approving body might sit in a ministry, a family council, a board in Saudi Arabia, or the royal court. In Bahrain, the formal org chart rarely tells the full story. Authority can rest outside the company itself, and understanding where approval actually lives is part of working effectively here.
-
-Managers often seek quiet input from a wide circle before taking a decision that could draw objection. A choice that touches on religion, sectarian identity, national image, or status will move through diwaniya contacts, family advisors, and government connections before it becomes final. This consultation spreads risk and ensures decisions land without creating friction across sensitive lines. Routine operational calls can move quickly, but anything symbolic slows down. A colleague from a culture where decisions follow a linear approval path may read this as delay or indecision, while a Bahraini counterpart may see unilateral speed as reckless and socially uninformed.
-
-Language around approval stays deliberately open. Phrases like "we are comfortable, inshallah" can mean genuine agreement or a softer holding position that leaves room for later objection. People resist closing doors too firmly, especially when external stakeholders have yet to weigh in. Before moving ahead, clarify what approval means in practice: a verbal comfort, a signed document, or a budget release. A soft yes is not always a green light. When planning timelines, ask which parts of your proposal touch sensitive symbols or involve stakeholders beyond your immediate counterpart, and build in runway accordingly.

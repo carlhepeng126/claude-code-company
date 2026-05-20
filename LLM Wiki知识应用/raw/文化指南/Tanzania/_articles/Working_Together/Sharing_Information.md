@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Tanzania travels through relationships, not just systems. Knowledge has traditionally been passed on through oral exchange and trusted networks, and this continues to shape workplace communication. Who knows something, who should know it, and when to share it all come with social weight. This means that formal channels exist alongside informal ones, and often it is the personal connection that moves information most reliably.
-
-Trust tends to unlock openness. Colleagues may be careful about what they share early on, particularly when the stakes feel high or relationships are new. This caution reflects reputational awareness and a concern for how information might be received or used. As trust builds, people are more likely to speak candidly and offer fuller context. That progression can feel slow to a colleague from a culture where transparency is expected from the start, while a Tanzanian colleague may read that immediate openness as risky or socially unaware. Building rapport through consistent, respectful interaction makes a tangible difference in what gets shared and how quickly.
-
-Information may also be framed indirectly when someone wants to avoid embarrassment, conflict, or putting another person in an uncomfortable position. Silence or vagueness often reflects caution rather than evasion. Clarifying how information will be used, and offering reassurance where needed, can help others feel more comfortable speaking plainly. Similarly, informal networks often prove just as useful as formal reporting lines, particularly outside large institutions. Staying connected to those channels, through regular conversations and social engagement, helps ensure you are not left out of key updates that never reach email.

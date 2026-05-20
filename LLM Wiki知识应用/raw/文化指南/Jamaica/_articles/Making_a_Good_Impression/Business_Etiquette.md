@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Jamaican business etiquette rests on a distinctive combination of warmth, directness, and verbal skill. Storytelling, proverbs, and humour are competencies used to build rapport, test character, and sometimes deliver uncomfortable truths without heavy confrontation. This expressive style is a social skill shaped by a culture where relationships matter, reputation travels quickly, and how you say something can matter as much as what you say. A colleague from a culture where communication tends to be more reserved or factual might read this approach as evasive or overly casual, while a Jamaican counterpart might find a terse, matter-of-fact style cold or disengaged. Both readings miss the underlying logic. If a colleague speaks slowly, uses metaphor, or frames a point through an analogy, listen for the message underneath the style. The 'yes' or 'no' will come, but the context around it is just as deliberate.
-
-Directness is valued, but it's rarely blunt. Candor is blended with warmth, often softened by humour or relational awareness to keep the exchange workable. Tone and manner shape how feedback or disagreement is received, especially in group settings where calling someone out publicly can undermine trust. Show respect explicitly, particularly around seniority or age, and handle differences without belittling others. Follow through on what you commit to; what happens after the meeting is often what people remember, and consistency builds credibility in a trust environment.
-
-Gift-giving during an initial business meeting is well received, but keep it modest. A token from your company or country is appropriate. Anything too expensive can be misread as condescending. Avoid religious items. There is no particular ritual around business cards; just make sure yours clearly state your title and carry enough to share.

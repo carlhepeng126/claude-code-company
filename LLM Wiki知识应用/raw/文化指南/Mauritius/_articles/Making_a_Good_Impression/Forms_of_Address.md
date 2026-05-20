@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Mauritius, the way you address someone draws from three parallel codes of respect, each tied to a different layer of social life. Mauritian Creole often conveys warmth and everyday closeness, English signals official or institutional seriousness, and French can add a layer of refinement, particularly in media, education, and some business circles. People shift between these registers depending on setting and audience, which means the right form of address is rarely fixed. A colleague might introduce you to her manager in English with full title and surname, then switch to Creole among peers minutes later. This fluidity reflects a multilingual society where respect is situational, not standardized.
-
-Because identity is often quietly read through surname, accent, and language choice, early interactions tend toward careful neutrality. A Western man working with a Muslim colleague should not assume a handshake will be offered or welcomed. Letting the other person lead the greeting avoids placing someone in an awkward position. Similarly, Indo-Mauritians may greet one another with palms together and "Namaste," while Muslims might say "Salaam-Alaykum." If you are unsure, a simple "Bonjour" and a formal title such as Mr, Mrs, Monsieur, or Madame with the surname works across contexts. This restraint shows social awareness, not coldness.
-
-In workplaces and community settings, titles and relational terms soften hierarchy without flattening it. Religious leaders, elders, and figures with community standing are often addressed with visible acknowledgment of their role, because religious institutions function as social infrastructure. Recognizing these roles through appropriate address reduces friction and builds legitimacy, especially in mixed-community environments where sensitivity to belonging and status cues helps relationships move forward without missteps.

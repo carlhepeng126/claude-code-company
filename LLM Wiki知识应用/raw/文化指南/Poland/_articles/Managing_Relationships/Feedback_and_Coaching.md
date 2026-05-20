@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In Poland, feedback is expected to be serious, specific, and grounded in facts. Dignity is protected through professionalism rather than softness. Polish colleagues often prefer feedback that is direct but calm, focused on standards and improvement rather than emotional display. Understatement is a common emotional style, so praise may be measured and critique contained. The cultural instinct is to be precise, to avoid drama, and to address issues clearly once trust is established. Overpraise can feel inauthentic. Measured acknowledgment of effort often lands more credibly than effusive compliments.
-
-Public correction, however, can be experienced as reputational damage in a culture where credibility and professional standing are closely watched. Being criticized in front of others is rarely read as efficiency or transparency. It can feel like a direct challenge to someone's status and competence. Feedback should be given privately by default, with clear reference to what good performance looks like and what should change next. Pairing critique with a practical path forward shows respect for the person's ability to improve and signals fairness.
-
-Once trust is in place, many Polish professionals prefer very straightforward coaching. It saves time and feels honest. The relationship unlocks candor. A manager from a culture where feedback is heavily cushioned in positive language may worry they are being too blunt, while a Polish colleague may read the same cushioning as vague or evasive. From the other side, a Polish manager's directness may be heard as harsh by someone expecting more framing, when the intent is simply to be clear and useful. The key is respectful directness that preserves dignity, without artificial softening that undermines the message.

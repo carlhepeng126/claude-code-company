@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-In Chile, financial security and professional respect remain strong motivators, but what fuels each varies by generation. Older colleagues often prioritize stability, benefits, and the reputation of the employer. This reflects ongoing anxiety around the private pension system (AFP) and healthcare costs. For these professionals, demonstrating that your organization offers predictable schedules, solid health coverage, and fair pay sends a clearer message than abstract perks. Younger Chileans, especially those entering the workforce since the social movements of 2019, increasingly look for purpose, environmental responsibility, and gender equity. They will disengage or leave if they feel their work worsens the country's problems. Making your organization's social and environmental commitments concrete, and involving staff in shaping them, addresses this motivation directly.
-
-Recognition also works best when it acknowledges professional competence. Being called a *buen profesional* (a good professional), someone respected for the quality and seriousness of their work, matters more than a fancy title. When you publicly acknowledge someone's delivery using this phrase, you are affirming their standing among peers, not just their output. That recognition resonates deeply in a workplace culture where belonging and reputation within the team function almost as an extension of family.
-
-Loyalty runs both ways. Chileans expect their employer to show loyalty in return for their own. A manager from a culture where mobility and individual career moves are celebrated might read this as lack of ambition. A Chilean colleague, in turn, might interpret constant job-hopping as disloyalty or superficiality. Job security remains a motivator across generations, and a stable, fair employer who invests in people over time will see stronger commitment than one offering short-term incentives alone.

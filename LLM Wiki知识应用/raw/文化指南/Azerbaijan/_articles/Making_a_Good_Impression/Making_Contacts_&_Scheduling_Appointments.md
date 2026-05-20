@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Trust in Azerbaijan flows through people, not platforms. Family ties, regional networks, hometown circles in Baku, and diaspora connections in Russia or Turkey open doors that branding or formal credentials often cannot. Being introduced as "someone's person" makes more difference than arriving with an impressive LinkedIn profile. This reflects both long-standing community bonds and a Soviet legacy of navigating institutions through personal channels rather than formal process. The habit of working through known intermediaries to approach ministries, state companies, or universities remains strong. Formal emails may go unanswered for weeks, yet the same request routed through a trusted contact can bring a response within hours.
-
-Start with warm introductions whenever possible. Ask local partners or diaspora contacts who the real gatekeepers are in a given sector or region; they may not be the people listed on an organizational chart. In Baku, digital channels like WhatsApp, LinkedIn, and email work well for initial contact, especially with younger professionals or global companies. In smaller towns and rural areas, face-to-face courtesy calls to local notables, school directors, or community figures are often more effective than corporate-style outreach. Business waits until the relationship feels ready.
-
-Appointments can be scheduled, but expect fluidity. Many Azerbaijanis prefer not to commit to meetings more than a day or two in advance, and priorities can shift on short notice. Government holidays are occasionally extended or moved with little warning, so allow buffer time in your travel plans. The conflict over Karabakh has displaced many families and remains emotionally present; showing informed awareness of these sensitivities, especially when traveling to or through affected regions, builds credibility quietly but clearly.

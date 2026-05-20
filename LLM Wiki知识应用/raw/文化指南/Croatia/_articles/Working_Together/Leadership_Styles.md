@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-After decades of war, economic turbulence and crisis, Croatian employees have little appetite for flashy, charismatic leaders. Respect is given to those described as *pošten* (fair), *normalan* (normal), and *stabilan* (stable), not to those who promise dramatic transformation or sudden wins. This wariness reflects lived experience: many people have watched leaders accumulate unexplained wealth or advance through connections rather than competence. A leader who is steady, predictable and transparent in decision-making earns credibility. One who promotes based on opaque criteria or appears too ambitious too quickly invites suspicion.
-
-A good leader in Croatia is expected to protect the team. This means shielding people from unnecessary pressure, fighting upward when needed, and never throwing someone under scrutiny in front of clients or headquarters. Employees notice who defends them when budgets are cut or when senior figures demand explanations. Leaders who absorb pressure rather than pass it down build loyalty. Those who deflect blame onto their team lose it quickly. Correction or discipline should be handled privately and respectfully, not as public spectacle.
-
-The tension between merit and *veze* (connections) runs through many workplaces. Employees often assume that promotions depend more on who you know than what you deliver, and when leaders confirm this through unclear or inconsistent decisions, cynicism deepens. Making criteria for advancement transparent and backing every promotion with clear, evidence-based reasoning helps shift that assumption. A manager from a culture where quick, individual recognition is standard may find this level of explanation unnecessary. Croatian colleagues, in turn, may read the absence of that transparency as proof that favouritism still decides outcomes.

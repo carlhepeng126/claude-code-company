@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-First names are used with almost everyone in Israeli professional life. Bosses, clients, senior figures — all are likely to be addressed by their given name from the first meeting. Titles are rarely used in day-to-day interaction, and the shift to informality happens quickly, often within moments of introduction. This reflects the sabra cultural ideal — direct, unsentimental, and egalitarian — which actively resists the kind of status signaling that formal address represents elsewhere. In a startup culture where a junior engineer is expected to challenge a CEO's thinking, titles would feel like a contradiction.
-
-For international colleagues from cultures where formality marks respect and hierarchy is expressed through language, this can feel jarring. A colleague used to addressing senior figures by title and surname may read the immediate use of first names as overfamiliarity or even disrespect. From the Israeli side, insisting on titles or formal address can come across as stiff or unnecessarily distant, creating a barrier where none was intended. The informality is an invitation to engage as equals in the work itself.
-
-That said, rank and experience are still respected in Israel — they are simply not performed through language. Seniority shows up in decision-making weight, in who speaks first in high-stakes moments, and in the deference given to depth of knowledge. If you are meeting someone for the first time and are uncertain, you can open with a title and surname, but expect to be invited to first names almost immediately. Follow that lead without hesitation.

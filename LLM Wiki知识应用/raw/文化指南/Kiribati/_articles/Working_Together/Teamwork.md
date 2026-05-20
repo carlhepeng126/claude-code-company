@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Kiribati flows through relationships and shared responsibility, shaped by the cultural concept of *te katei ni bwai* (working together as one canoe). On the outer islands especially, collaboration follows patterns established through fishing crews and community obligations, where seniority and experience guide more than formal roles. Decision-making is often collective and slow, with elders and more experienced members consulted before action is taken. This reflects the cultural importance of consensus and avoiding individual risk or exposure. Rushing a decision or pushing for speed can unsettle the group and suggest disrespect for the process.
-
-In urban settings like South Tarawa, where government offices and regional organizations operate, teamwork blends traditional norms with more structured practices. Even here, relationships anchor the work. Team members expect leaders to show care and attention to personal circumstances, and they respond best when contributions are acknowledged quietly rather than through public praise. Singling someone out, even positively, can cause discomfort, as it disrupts the sense of collective effort.
-
-A colleague from a culture where tasks are divided clearly and outcomes drive the rhythm may find the pace in Kiribati unclear and the process indirect. From a Kiribati perspective, that colleague's directness might seem transactional and dismissive of the relational foundation that makes teamwork reliable. What reads as indirection is actually relationship maintenance, ensuring that no one is left behind and the group moves forward intact.

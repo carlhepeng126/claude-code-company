@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Uruguayan professionals approach meetings with a distinct settling-in phase. The opening conversation often feels like mutual calibration: tone, seriousness, modesty and respect are all being read before deeper engagement begins. This comes from a broader cultural instinct to establish safety and legitimacy before moving into detail. Pushing for quick decisions or launching straight into asks before this social grounding happens can register as pushy or tone-deaf. A colleague from a culture where meetings begin with the agenda may interpret this as slow or indirect. In return, someone from Uruguay may read that kind of directness as impatient or transactional, signaling a lack of investment in the relationship itself.
-
-Once the conversation moves forward, expect questions. Uruguay's institutional pride and long welfare-state tradition have left a cultural reflex: does this make sense, is it fair, does it hold up under scrutiny? Logic and rationale are expected, and persuasion built on charisma or certainty alone tends to fall flat. When Uruguayans challenge an idea, it reflects engagement rather than hostility. The critique-with-restraint tradition, visible in Uruguay's murga commentary culture, shapes professional debate too. Ideas can be tested sharply while the social tone stays contained and dignified. Responding calmly and proportionately to questions will strengthen credibility, not weaken it.
-
-Regional context also shapes how meetings unfold. Montevideo's institutional environment often calls for more structured interaction, while interior settings may expect more continuity and relationship anchoring. Recognizing which setting you are in will help you pace your tone and adjust your approach accordingly.

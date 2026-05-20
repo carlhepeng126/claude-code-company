@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Ireland's workplace culture is shaped by a deep-rooted skepticism of formal authority, born of over eight centuries of resistance to British rule. This history has left a lasting cultural preference for flat structures and an instinct to challenge power when it appears disconnected from merit. The Irish political tradition values the individual's right to question those in charge, and this extends directly into how teams operate. Ireland scores among the lowest in Europe on power distance (28 on Hofstede's index), meaning hierarchy exists for practical coordination, not as a statement of personal worth. Managers are accessible, first names are used quickly, and consultation across levels is genuinely expected.
-
-Credibility in Ireland comes from competence, consistency, and personal rapport, not from title. A manager who leads with formal authority or takes themselves too seriously will struggle to earn real commitment. Wit and self-deprecating humor build trust here, signaling social ease and an absence of pretense. Irish employees are highly educated and self-motivated, and they expect autonomy to get on with their work. Micromanagement or rigid supervision will be met with quiet frustration, and possibly humor that surfaces the problem indirectly.
-
-Consultation before decisions is not optional. Irish team members will tell you when something is unworkable, often with enough humor to soften the edge, but the input is serious and should be treated as such. Going through the motions of asking without genuinely incorporating feedback is noticed quickly and will damage trust. A colleague from a culture where decisions are made quickly at senior levels may find this slower or more indirect than expected, while an Irish team member working in a more hierarchical environment may read top-down decision-making as dismissive or out of touch.

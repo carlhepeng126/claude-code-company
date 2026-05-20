@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information sharing in Portugal unfolds gradually and depends on trust built through repeated contact rather than formal transparency. Personal information, in particular, remains guarded until someone has earned the right to it through time and demonstrated reliability. This isn't coldness but privacy as a culturally meaningful boundary. Warmth and friendliness do not automatically grant access to personal life or sensitive business detail. Once trust is established, sharing becomes more open, but expect the pace to be set by the relationship rather than the project deadline.
-
-Communication tends to be polite and tactful, even when the content is direct. Harmony often takes precedence over bluntness, which means indirect cues may surface when correcting, refusing, or delivering unwelcome news. This style reflects a preference for preserving dignity on both sides. A colleague from a culture where feedback is given quickly and explicitly may read this as evasion or reluctance to engage with problems. In return, a Portuguese colleague may read that same directness as unnecessarily harsh or dismissive of the human dimension at work. If you need clarity, ask follow-up questions gently rather than pushing for a firmer commitment in the moment.
-
-People may share meaning through narrative rather than bullet points. The concept of *saudade*, a complex form of longing or nostalgia used widely in everyday emotional vocabulary, reflects a cultural comfort with layered, reflective expression. Allow time for context and story when colleagues explain a situation. Cutting to the bottom line too quickly can feel transactional. Portugal's large diaspora also shapes how information flows: cross-border family and professional ties are normal infrastructure, and availability or priorities may reflect relationships and responsibilities that stretch beyond the office or the country.

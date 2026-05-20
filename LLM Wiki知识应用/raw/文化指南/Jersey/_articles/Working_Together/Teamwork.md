@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Jersey runs on long-standing relationships and unwritten rules that reflect the island's small size and tight-knit structure. Most professionals have overlapping networks that extend beyond the workplace into family, school ties, and social circles. This means that collaboration often relies on trust built over time rather than formal team processes. If someone proposes a new way of working that disrupts established norms or sidesteps these relational foundations, they may find progress slower than expected. Teams function more smoothly when they allow informal consultation and relationship maintenance to run alongside formal structures.
-
-Roles within teams tend to be clearly defined, and people generally expect to work within their areas rather than step into others' territory without invitation. A colleague from a culture where boundaries are more fluid and input is encouraged across functions may interpret this as inflexibility, while a Jersey team member may view unsolicited contributions as overstepping or lacking awareness of how the group is organized. Making space for informal conversation before raising cross-functional ideas helps bridge this difference.
-
-Decision-making in teams is typically consultative but still defers to hierarchy. Senior figures are expected to guide outcomes, and while input is welcomed, it is usually offered in ways that respect seniority and avoid direct challenge. Public disagreement is uncommon. When tensions arise, they are more likely to be addressed quietly or through intermediaries than in open team discussion. For managers working with Jersey teams, this means creating one-on-one opportunities for feedback and recognizing that silence in meetings does not always signal agreement.

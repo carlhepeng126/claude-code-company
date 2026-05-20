@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Reputation is nourishment in many Nigerian settings. Being recognized confirms competence, standing, and belonging across the networks that count — family, church or mosque circles, neighbourhood ties, and school cohorts. Recognition tends to motivate when it feels socially meaningful and dignified, delivered in ways that acknowledge the person's stature rather than treating praise as a routine management gesture. Publicly acknowledging a contribution in front of peers or senior leadership can strengthen commitment more reliably than a private compliment or a standardized award.
-
-Generosity reads as strength, not softness. The admired person is often the one who can "carry others" through help, support, or opening doors. This makes acts of visible care — covering someone's costs in a difficult moment, sponsoring a team gathering, facilitating access to opportunity — powerful motivators. They demonstrate capacity and moral seriousness, qualities that deepen loyalty and effort. Linking someone's work to their ability to provide for extended family, fund school fees, or uplift their community can also tap into a cultural current that runs deep. Success is expected to circulate outward, and the duty to provide is often experienced as identity, not simply obligation.
-
-Faith language shapes what feels worthwhile. In many circles, motivation rises when effort is framed through moral purpose — service, calling, gratitude, accountability before God. Used authentically, this language adds meaning. Used cynically, it alienates. In urban hubs like Lagos, aspiration and visible achievement fuel another kind of motivation. The cultural idea of hustle is performance as much as survival, and recognizing someone's ingenuity, sharpness, and resilience can inspire continued effort in high-ambition teams.

@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Slovak workplaces tends to be shared carefully rather than broadcast widely. People often prefer to anchor what they say in concrete facts, recognised standards, or shared reference points rather than rely on personal assertion alone. This habit reflects a cultural respect for things built with integrity and precision, whether that's a well-crafted technical explanation or a proposal grounded in legal frameworks and public commitments. A colleague from a culture where persuasive energy or bold claims drive decisions may find Slovak communication cautious or slow to engage. From the Slovak side, that same assertiveness can feel untethered or rhetorical, raising questions about whether the speaker has done the groundwork.
-
-Trust shapes what gets shared and with whom. In settings where institutional credibility feels uneven or where people have experienced exclusion, official messaging alone may not convince. Follow-through and consistency often build credibility more reliably than the initial announcement. Within teams, information may stay close to those directly involved rather than circulating freely across departments, especially where relationships have not yet been established.
-
-Language variation adds a layer of complexity. What sounds plain and clear in Bratislava may not travel unchanged to southern districts where Hungarian is widely spoken, or to communities where dialect or minority-language contexts shift the feel of certain terms. Checking for shared understanding without singling anyone out helps avoid misreading, particularly in diverse groups or cross-regional projects. Structure your communication with clear definitions and concrete examples rather than idiom-heavy phrasing, and confirm meaning gently as you go.

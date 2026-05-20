@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-In Togo, decisions are grounded in consultation, respect for hierarchy, and the relationships that make organizational life workable. Senior leaders hold formal authority, and their approval is typically needed before significant actions proceed. Yet that authority functions best when it has been informed by trusted voices. Managers do not simply instruct from the top. They seek input from people they trust, often through informal channels, before finalizing a decision. This builds alignment without public confrontation and ensures that decisions fit the social fabric of the team, not just the operational logic of the task.
-
-This blending of hierarchy and consultation reflects deeper values around relational harmony and the long-term costs of hasty or divisive action. A decision made too quickly, without gathering views or reading the group's readiness, risks damaging trust or creating quiet resistance. For colleagues from cultures where speed and individual accountability shape how decisions are made, this process can feel slow or opaque. From a Togolese perspective, rushing a decision without gathering input can seem reckless, a sign that relationships are being undervalued.
-
-Timelines and priorities may shift in response to family obligations, regional considerations, or changes in key relationships. Flexibility in execution is common, and a deadline agreed upon formally may be renegotiated informally if circumstances warrant it. Understanding this adaptability as relational, rather than procedural, helps avoid frustration and supports more grounded collaboration.

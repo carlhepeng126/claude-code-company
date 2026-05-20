@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Business meetings in French Polynesia often begin with genuine personal exchange before any formal agenda takes hold. This opening time allows participants to establish a sense of comfort and mutual regard, rooted in the Polynesian value of relationship over transaction. Conversations may touch on family, health, or recent events, and these moments are more than courtesy. They offer a quiet assessment of character and build the relational foundation that underpins any productive collaboration. Skipping this phase or pushing too quickly toward outcomes can feel abrupt and may undermine trust before the meeting has truly begun.
-
-The pace of discussion tends to be unhurried, reflecting a broader cultural preference for consensus and collective consideration. Decisions are rarely made on the spot, especially when senior figures are involved or when the matter affects multiple stakeholders. Silence during a meeting should be respected, as it often signals reflection rather than disengagement. Colleagues from cultures where decisions are made quickly may read this deliberation as delay, while someone from French Polynesia may view a rushed conclusion as dismissive of the group's input and the gravity of the decision itself.
-
-Hierarchy remains present but is expressed gently. Senior figures are expected to attend, and their presence lends weight to the discussion, but the tone is generally warm rather than formal. Authority is exercised with care, and direct confrontation is uncommon. If concerns arise, they are more likely to be raised indirectly or after the meeting in a one-on-one setting, preserving group harmony and individual dignity.

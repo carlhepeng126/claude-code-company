@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in American Samoa is deeply relational. People give their best when they feel connected to a team, respected by those they work with, and confident that their efforts support both their family and their broader community standing. Achievement here is never just individual. It reflects on the *aiga* (extended family) and the person's place within it, so motivation often comes from a desire to honor those relationships rather than purely personal ambition.
-
-Recognition works best when it acknowledges contribution in ways that strengthen connection. A manager who thanks someone in front of the team, or who highlights how their work helped the group succeed, taps into something powerful. Public acknowledgment reinforces belonging and status, both of which matter. Money and formal incentives have a role, but they rarely inspire on their own. What energizes people is the sense that their work is valued by others, especially by those they respect.
-
-Tight deadlines and rigid targets can feel disconnected from how life actually moves in American Samoa. Time is flexible, and family obligations take priority. Managers who push for strict schedules without room for adjustment may find engagement drops. Those who can adapt timelines while still keeping the team focused tend to see stronger commitment. Younger professionals, especially those with exposure to global firms or education abroad, may respond more readily to career development or skills training, while others may be more motivated by stability and the respect that comes with a steady, visible role.

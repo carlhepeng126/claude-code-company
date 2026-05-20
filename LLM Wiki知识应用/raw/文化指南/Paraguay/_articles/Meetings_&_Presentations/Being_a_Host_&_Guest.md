@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-In Paraguay, hospitality reflects a care ethic rooted in Guaraní-inflected practice and Catholic moral inheritance. Offering food, drink, or tereré is not simply politeness but a way of including people and maintaining relational warmth. The ritual of refilling the guampa and passing it in a circle demonstrates attention and respect, grounded in pohã ñana knowledge that links sharing to healing and community. Colleagues from cultures where hosting focuses on efficiency or minimal interruption may read this as overly attentive or time-consuming, while Paraguayan hosts may interpret more hands-off hospitality as coldness or disinterest. When visiting, accept what is offered and participate in the rhythm of refills and conversation. When hosting, take time to include everyone and explain what is being served.
-
-In towns and extended family networks, homes sit inside reputational systems where behavior is observed and retold. What happens privately can become visible socially, raising the value of gestures that protect dignity and show seriousness. Bringing a small gift such as sweets, wine, or something from your own country is expected, and presenting it with both hands acknowledges the weight of the gesture. Items like ñandutí displayed in homes are not decoration alone but markers of heritage and pride, often tied to specific localities such as Itauguá. Recognizing these signals shows attention to Paraguayan identity.
-
-Paraguay contains distinct hosting worlds. In the Chaco, Mennonite communities maintain their own social codes, while Indigenous nations follow different hospitality logics shaped by displacement and survival. Frontier areas in the east reflect more mobile, mixed contact patterns. What reads as respectful in Asunción may not translate directly to these contexts, so be prepared to observe and adapt rather than apply a single template across regions.

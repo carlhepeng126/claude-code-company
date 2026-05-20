@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Malawi moves through relational channels, and what gets shared depends on who is asking and where the conversation happens. The concept of permissioned knowledge runs deep, rooted in practices like Nyau, the initiation-based society where certain knowledge belongs only to those who have been brought inside. This shapes a workplace instinct that not all information is meant for the open circle. Broadcasting sensitive details widely can feel inappropriate or even unwise. When working across teams or with external partners, take time to understand which information is meant for the broader group and which is better shared in smaller, trusted settings.
-
-Narrative carries credibility in ways that abstract data alone often does not. Storytelling has long shaped moral and social understanding, particularly through oral traditions like nthanu, where lessons are conveyed through example and context. A colleague may respond more readily to a case study or concrete illustration than to a summary of principles. When presenting findings or proposals, frame them with real examples, situational context, and relatable scenarios. This approach does not replace facts; it makes them more persuasive and easier to engage with.
-
-Churches, mosques, and community leaders remain trusted channels through which information gains legitimacy. Mission schooling historically shaped literacy and public voice, and these networks still function as key sources of credibility today. In informal urban settings like much of Lilongwe, information moves quickly through dense proximity networks where trust is built through consistent presence and daily reliability. If you need to build understanding across groups, work with established social networks rather than relying solely on formal announcements or digital channels.

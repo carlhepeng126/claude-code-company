@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time on Christmas Island moves to the rhythm of a small, multicultural community where relationships take precedence over rigid schedules. The island's population of around 1,500 people is largely Chinese Australian and Malay Australian, with strong Buddhist, Taoist, and Muslim cultural traditions. In this context, punctuality is less about clock-watching and more about respecting the relational moment. A meeting might begin ten or fifteen minutes after the agreed time because someone stopped to greet a family member, or because a conversation that needed to happen took longer than planned. This flexibility reflects a deeply communal approach to time, where honoring a person in front of you can outweigh the claims of the next appointment.
-
-Workplace expectations vary by sector. In the immigration detention center, the phosphate mine, or roles tied to Australian mainland operations, deadlines and schedules are enforced more strictly, mirroring the systems of larger organizations. In locally run businesses, community organizations, or informal trade, time is more fluid. A shopkeeper might close early for a temple festival, or a tradesperson might reschedule to help a neighbor. These shifts are rarely seen as unprofessional locally, but as part of the give-and-take that sustains a small island where everyone depends on everyone else.
-
-A colleague from a culture where schedules are binding might read this flexibility as disorganization or lack of commitment. From the island perspective, someone who insists on starting a meeting at the exact minute while a respected elder is still speaking may seem disconnected from the social fabric that makes collaboration possible. Building in buffer time and confirming arrangements closer to the day will help navigate this difference without friction.

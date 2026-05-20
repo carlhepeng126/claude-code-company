@@ -77,7 +77,7 @@
         "hooks": [
           {
             "type": "command",
-            "command": "cd \"c:/Users/Admin/Documents/LLM Wiki\" && git add -A && git diff --cached --quiet || (git commit -m \"$(date '+auto backup %Y-%m-%d %H:%M')\" && git push origin main)"
+            "command": "cd \"c:/Users/Admin/Documents/LLM Wiki\" && git add .claude/ .obsidian/ .agents/skills/ _临时文件/ skills-lock.json CLAUDE.md .gitignore && git diff --cached --quiet || (git commit -m \"$(date '+auto backup %Y-%m-%d %H:%M')\" && git push origin main)"
           }
         ]
       }

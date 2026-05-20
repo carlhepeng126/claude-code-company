@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-The leaders who earn loyalty in Argentina often echo a distinctive political archetype rooted in Peronism: emotionally expressive, present among their people, and protective. Even in private firms, the admired leader walks the shop floor, knows names and family stories, and makes visible gestures that signal commitment to the team. This style draws on decades of macro instability and perceived elite betrayal, where employees look to leaders who will *poner el pecho* (put their chest in front) — defending them against unreasonable demands from headquarters, abusive clients, or arbitrary government shifts. Employees want someone who will advocate upwards and absorb some of the chaos on their behalf.
-
-At the same time, Argentines remain deeply wary of authoritarianism. Leaders perceived as bullying, opaque, or contemptuous of worker rights trigger powerful resistance, shaped in part by the country's experience of dictatorship. The balance is delicate: employees expect authority, but they will challenge leaders who mistake hierarchy for immunity from accountability. Public shaming, unilateral decrees, or disdain for unions can activate trauma and collective pushback.
-
-Leaders who succeed tell compelling stories. Argentines listen closely to how a leader frames crisis, who gets blamed, who gets honored, and who remains invisible. A narrative that weaves difficulty, dignity, humor, and hope without erasing the team's intelligence can build deep followership. If you lead in Argentina, share some of your own vulnerability while holding authority, stay visible during stressful periods, and make your advocacy concrete. Explain what you are pushing back on and why. The role is less about directive control and more about standing between your team and unfairness in a way people can see.

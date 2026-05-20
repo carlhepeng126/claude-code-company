@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Eswatini is deeply relational. People give their best when they feel valued within a team and when their contribution is seen to strengthen the wider group. Individual achievement alone seldom sustains effort. What matters more is how success reflects on family, community, and the dignity of the collective. A manager who acknowledges someone's role in front of colleagues, or who frames a task as part of something the team will be proud of, taps into this sense of shared purpose. Public recognition, delivered warmly and sincerely, reinforces belonging and honor.
-
-Financial incentives are expected and necessary, but they rarely drive sustained engagement on their own. What fuels long-term commitment is the quality of the working relationship. A manager who shows personal interest, who checks in without formality, and who creates room for input sends a clear message: you are respected here, and your voice counts. Younger professionals, particularly those in urban centers or multinational firms, may also respond to development opportunities and the chance to build skills that enhance their standing and future prospects.
-
-Rigid deadlines and purely task-focused targets tend to fall flat. Time in Eswatini is shaped by relationships and responsibilities outside work, and family commitments take precedence. People are unlikely to sacrifice personal time for a schedule that feels arbitrary or disconnected from their reality. Managers who frame expectations around shared outcomes, who adjust timelines when circumstances shift, and who recognize effort in the moment will see far greater motivation than those who rely solely on pressure or structure.

@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Cameroon are often arranged with some flexibility, though in larger cities and formal sectors, scheduling in advance is becoming more common. Confirming details ahead of time shows respect for the relationship and gives your counterparts the chance to prepare properly. Be clear about the purpose of the meeting from the outset, especially if it's a first encounter. This allows people to assess who should attend and whether decisions can be made or simply discussed.
-
-Seniority shapes the room. Decision-making authority typically rests with senior figures, so invitations should be extended at the appropriate level. A meeting without the right people present may be courteous but unproductive. Younger or more junior staff may attend to observe or provide information, but they are unlikely to commit without input from above. This reflects a broader respect for hierarchy that runs through Cameroonian professional life, rooted in both traditional social structures and colonial-era administrative habits that placed authority firmly at the top.
-
-Expect the meeting to open with greetings and some social exchange. This is not filler. It establishes goodwill and gives participants a sense of who you are before business begins. Once the agenda starts, the tone may remain polite and measured rather than blunt. Pushing for immediate answers or treating silence as agreement can lead to misunderstanding. A colleague from a culture where decisions are made quickly may read this as avoidance, while a Cameroonian counterpart may view directness without rapport as impolite or premature.

@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Presentations in Benin succeed when they build personal connection alongside delivering content. Your audience will be evaluating you as much as your material, looking for signs of respect, trustworthiness, and willingness to engage relationally. A formal but warm tone works best. Open with courteous acknowledgment of those present, especially senior figures, and take time to establish rapport before moving into technical detail. Rushing straight into data can feel transactional and may undermine credibility before you begin.
-
-Hierarchy shapes how questions and feedback emerge. Junior colleagues may hesitate to speak up in front of their superiors, even if they have relevant expertise. Senior attendees may ask broad questions or offer general observations rather than drilling into specifics during the presentation itself. Follow-up conversations often happen one-on-one, where people feel freer to ask clarifying questions or voice concerns without risking face. Treat these informal exchanges as core to the decision-making process, not afterthoughts.
-
-Prepare materials in French, which remains the language of formal business and government. Slides should be clear and uncluttered, as dense text can create confusion or slow the flow if interpretation is needed. If your presentation involves technical terms or sector-specific language, brief interpreters in advance to ensure accuracy. Allow extra time for each point to be conveyed and understood, and don't mistake silence for disengagement. Pauses often reflect consideration or respect, and filling every gap can feel rushed or dismissive of the audience's need to process what you've shared.

@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information moves carefully in Iraq, shaped by decades of surveillance under the Ba'athist regime, the occupation years, and militia intelligence networks. Many people remain cautious about what they commit to writing or say openly, especially on channels that could be monitored. What looks like reluctance to share is often a habit formed by real risk. This means formal documentation or official statements may tell only part of the story. Expect colleagues to hold back until they are confident that what they tell you will not expose or endanger them.
-
-Verification happens through parallel channels. WhatsApp groups, tribal networks, and conversations at mosques or churches often provide the reality check behind official announcements. It is common to hear "the state says X, but my cousin in the ministry says Y." People trust information that comes through personal ties, and informal sources routinely compete with formal ones. If you rely solely on written reports or public data, you may miss what people actually believe or know. Work through trusted Iraqi colleagues who can triangulate community perceptions with what appears on paper.
-
-Different communities often hold different versions of events. Shia, Sunni, Kurdish, Yazidi, and Christian networks may circulate distinct narratives shaped by their own experiences and media ecosystems. This is not misinformation in the simple sense. It reflects lived realities that do not always align. In collaborative settings, especially on sensitive topics, avoid assuming a single shared narrative exists. Design information-sharing processes that can acknowledge plural memories without forcing consensus where none is realistic. Written communications that name parties, militias, or security actors should be neutral and carefully worded to avoid dragging local colleagues into language that could create risk.

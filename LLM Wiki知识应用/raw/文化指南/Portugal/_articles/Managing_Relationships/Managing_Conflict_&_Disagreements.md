@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-In Portugal, conflict is managed by protecting the social surface. Tact shapes how disagreement is expressed, keeping language measured so working relationships remain intact. This doesn't mean issues go unaddressed. It means the manner of confrontation is carefully controlled. Raising a concern in a way that feels blunt or public can damage the relationship itself, which then makes resolution harder. If you need to challenge a decision or flag a problem, frame it as a question or a clarification first. Acknowledge what's working before you name what isn't. This allows the other person to stay engaged rather than retreat.
-
-The cultural narrative around *brandos costumes* (mild customs), even when contested, still shapes expectations that disagreement should stay civil and contained. Open confrontation, especially in front of others, can feel socially heavy. In more formal or hierarchical settings, contradicting a senior colleague directly can come across as status harm rather than constructive debate, because respect codes are tied to social order. A colleague from a culture where debate is expected to be direct and fast-moving might read this restraint as evasiveness. From the Portuguese side, the directness can feel unnecessarily aggressive, as though the relationship is being treated as disposable.
-
-Repair often happens through quiet, practical resets. The *desenrascanço* ethic, a cultural comfort with fixing what's fixable, supports compromise without prolonged drama. If tension has surfaced, a calm one-to-one conversation, or a small gesture that restores balance, can be more effective than a formal debrief.

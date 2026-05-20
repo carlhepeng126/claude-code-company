@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Going out for rumba—music, drinks, and dancing—is a social ritual that reveals more than most formal meetings. Colleagues watch how you handle shared bottles of aguardiente, rounds of beer, and late nights. The person who dances a little, stays lively without losing control, and makes sure others get home safely earns lasting trust. The one who drinks too much, flirts inappropriately, or becomes aggressive will be remembered for years, often with the phrase "es muy buena gente, pero se le va la mano"—good people, but they go too far.
-
-The choice of venue also communicates where you stand. Entertaining only in high-end zones like Zona T in Bogotá or El Poblado in Medellín can signal you live in an estrato bubble. Suggesting a classic salsa bar in Cali or a vallenato joint in Valledupar shows cultural curiosity and respect, though taking colleagues to unfamiliar neighbourhoods without understanding safety risks looks careless rather than open-minded. Security is always present in planning: people scan for safe parking, reliable taxis, and routes home. A great bar in the wrong location may get a polite "maybe next time" from those who don't want to explain they feel unsafe.
-
-Let Colombian colleagues choose most venues at first, then propose places that blend safety, live music, and local character rather than defaulting to international hotel bars. Ask directly about transport and neighbourhood safety so guests from different backgrounds and genders feel comfortable accepting. Join the evening, but monitor your own consumption. Being the steady one who helps coordinate rides home builds more confianza than matching every toast.

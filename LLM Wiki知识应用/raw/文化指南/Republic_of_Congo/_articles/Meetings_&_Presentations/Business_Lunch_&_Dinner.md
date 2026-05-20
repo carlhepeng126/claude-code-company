@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in the Republic of Congo are social occasions first, not working sessions with food. In Bantu culture, sharing a table is a statement of relationship, tied to trust and belonging. The expectation is unhurried conversation and personal exchange, not a pitch or a debrief. Treating a lunch or dinner as a venue to present, persuade, or close a deal misreads the setting entirely. The meal is the relationship work, and relationship is the foundation for everything that follows.
-
-Congolese cuisine blends Central African staples with French culinary influence, a direct legacy of colonial and post-colonial cultural exchange. Dishes are often based around cassava, plantain, fish, and meat, with regional variation across the country. Near the Atlantic coast, seafood is plentiful. Inland, poultry and meat appear more frequently. Food is an identity marker and a source of genuine pride. Showing genuine interest in what's served, asking about dishes, and trying what's offered is a form of cultural respect that registers clearly. Declining without reason, or eating mechanically while discussing timelines, suggests the relationship itself holds little value.
-
-Meals tend to be communal in feel even when plated individually. Expect several courses and a slower rhythm overall. Restaurants in Brazzaville and Pointe Noire often serve French wine, beer, and cocktails. Palm wine may also be offered. For a colleague used to working lunches where agendas are tabled early, this pace may feel unstructured. From a Congolese perspective, the colleague hurrying through courses or steering talk toward deliverables may seem transactional and disconnected from the relational foundation the meal is meant to build.

@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Greek leadership rests on a careful balancing act. A leader is expected to be *protos metaxy ison* (first among equals), visible and articulate in public, yet approachable and generous in private. This means speaking well in meetings, defending the team in negotiations, and standing out when representation is needed. But the same leader is also expected to sit at the café or taverna afterwards, pick up the bill, listen to stories, and show vulnerability. Someone who maintains distance or formality in all settings will struggle to earn trust, no matter how capable they are.
-
-What ultimately defines a good leader in Greece is *philotimo*, a concept tied to honor, dignity, and moral reciprocity. A leader is judged by how they use power when nobody is watching. Do they protect a junior colleague in trouble? Share opportunities fairly? Remember who supported them during lean times? These small, costly acts count more than any public statement of values. A leader with *philotimo* will bend rules to help someone without trampling on others, and the team will remember that loyalty long after the immediate crisis has passed.
-
-Part of effective leadership in Greece involves knowing which rules are rigid and which are negotiable. Greek administrative and legal systems can be complex and opaque, and leaders are expected to navigate grey zones without crossing into unethical territory. This means knowing who to call in a municipality, how to interpret a regulation flexibly, and when to push back. A leader who refuses to engage with this reality may be respected in principle but seen as ineffective in practice. A colleague from a culture where rules are applied uniformly may read this flexibility as inconsistency or favoritism, while a Greek team may see strict rule-following as naïve or unhelpful, particularly when the system itself is understood to require interpretation.

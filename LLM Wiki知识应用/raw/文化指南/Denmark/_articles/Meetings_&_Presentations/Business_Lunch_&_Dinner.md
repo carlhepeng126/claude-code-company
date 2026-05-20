@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Denmark follow a relaxed script rooted in equality and restraint. There's no need for elaborate hospitality gestures or formal hosting rituals. The expectation is shared ease rather than one person orchestrating the experience. If smørrebrød (open sandwiches) appear at lunch, Danes often enjoy guiding foreign colleagues through the informal conventions: eating with a knife and fork, respecting certain topping combinations, and following a rough order from fish to meat. Showing curiosity about these details is welcomed and gives your Danish colleagues a chance to be generous without stepping into a host-guest hierarchy.
-
-Alcohol is present but measured. A beer or glass of wine with lunch, maybe a second at dinner, reflects the cultural preference for moderation over indulgence. A meal that shifts into heavy drinking will stand out negatively. Danes tend to match the most restrained person at the table rather than the most enthusiastic, and visitors who do the same will stay in step with the room. For a colleague from a culture where business dinners involve multiple rounds and late-night continuation, this can feel abrupt. From a Danish perspective, the colleague who keeps ordering may seem to be turning a work meal into something else entirely.
-
-Payment is typically split or alternated, often settled via MobilePay or card. The assumption is that everyone is an equal adult capable of paying their own way. Insisting on covering every bill or handling cash awkwardly can feel out of sync with this baseline equality. If you're visiting, be relaxed about sharing costs. It reflects the same principle that shapes much of Danish professional life: no one needs to be looked after.

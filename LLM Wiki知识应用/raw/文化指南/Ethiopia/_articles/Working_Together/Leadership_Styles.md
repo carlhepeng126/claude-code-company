@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Ethiopia's long history of centralized authority—from emperors through military rule to today's party structures—has shaped expectations around leadership. People expect strong, decisive leaders who can maintain order and provide protection. The challenge now is to lead with firmness while avoiding the authoritarian habits many have experienced: public shaming, unpredictable punishment, or rule by fear. A leader who can make clear decisions and shield their team from external pressure, but does so without intimidation, earns deep respect.
-
-The most admired leaders combine the qualities of a *shimagille* (wise elder) with the practical ability to navigate bureaucracy. In a system where official processes often jam, staff watch whether their leader can call the right ministry contact, unblock a stalled permit, or intervene with tax offices when needed. This isn't seen as corrupt favoritism but as a core leadership skill. If you hold positional power but fail to use it to solve real obstacles for your team, you may be respected in title but not trusted as someone who genuinely leads on their behalf.
-
-Ethnic and regional sensitivity runs through every staffing decision. Under ethnic federalism and after recent conflicts, teams are alert to whether a leader favors their own ethnic group in hiring, training opportunities, or travel assignments. Even unintentional patterns can be read as bias. Building deliberately mixed teams, applying transparent criteria for advancement, and distributing opportunities visibly across groups helps avoid being labeled as "the Tigray manager" or "the Amhara boss." Fair treatment across ethnic lines is not a soft skill—it directly affects your legitimacy and the team's cohesion.

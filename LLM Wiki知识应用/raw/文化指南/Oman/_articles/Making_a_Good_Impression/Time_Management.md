@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Punctuality in Oman depends on both the setting and the person involved. Ministries, banks and larger companies generally work to formal schedules, and many senior Omanis expect people to turn up when they say they will. At the same time, if an elder or key contact arrives late, the room adjusts. Relationship obligations take precedence over the clock, and the person who waits without complaint signals that they understand what the relationship is worth. This duality means you should take agreed times seriously and arrive prepared, but also build contingency into your own schedule, especially when meetings involve senior figures or family-owned businesses.
-
-Prayer times, especially Dhuhur and Maghrib, naturally break the day and can stretch meetings or create soft start and end times. In the hotter months, some work shifts earlier or later to avoid the midday sun. During Ramadan, official hours shorten, mornings can be slower, and real work may shift to after iftar. People's energy and mood change across the fasting month, especially in the late afternoon. Avoid scheduling critical sessions during the last hour of fasting or at prayer times if you have flexibility. Similarly, Thursday afternoons can be mentally downhill for serious decisions, as the weekend begins and family visits or long drives to the interior or Dhofar are already on people's minds.
-
-When meetings run over because of hospitality or an elder's story, recognize that you are being given attention and trust, which in Oman counts for more than finishing on time. If you absolutely need punctuality for a global call or fixed deadline, explain why the specific time matters and confirm several times that it works. The flexibility you encounter reflects a culture where people come before process, and where timing is judged by mood and appropriateness, not just the hour on the clock.

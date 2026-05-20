@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Slovakia, politeness is woven into the structure of language itself. Slovak distinguishes between formal and informal address through the pronouns *Vy* (formal "you") and *ty* (informal "you"), and this choice is socially legible and consequential. Begin with *Vy* and use formal titles such as *Pán* (Mr.) or *Pani* (Mrs.) followed by the surname when meeting someone for the first time, especially in professional settings or with anyone older. Wait to be invited before switching to first names or the informal *ty*. The Slovak phrase *Mohli by sme si potykat* signals permission to shift to informal address, and this invitation marks a step toward genuine rapport, not just efficiency. Skipping this step can feel presumptuous, while respecting it shows you understand the social order.
-
-Names deserve careful attention. Pronounce them accurately and avoid shortening them without permission. Beyond this, Slovaks observe *meniny*, or name days, rooted in the saints' calendar. These often hold the same social weight as birthdays, and acknowledging them with a simple greeting or small gesture is read as socially attentive, a sign that you notice people beyond the immediate work context. Colleagues from cultures where name days are unfamiliar may miss these moments entirely, while Slovak colleagues may note their absence as a lack of warmth or engagement.
-
-Regional and linguistic variation shapes how people sound and what they expect. Slovakia has distinct dialect groups, with eastern dialects influenced by proximity to Polish and Rusyn linguistic worlds. In some areas, Hungarian is the local default, shaping greetings, names, and forms of address in ways that differ from standard Slovak norms. If you encounter strong dialect or a minority-language context, adapt quietly. Ask for preferences, mirror the tone, and let the other person set the register rather than commenting as an outsider.

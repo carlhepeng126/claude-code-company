@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Trinidad and Tobago travels through overlapping social worlds, not clean organizational channels. People belong to multiple circles at once: family lines, school networks, church or temple groups, panyard communities, and neighbourhood ties. Because these worlds interconnect, news often moves sideways rather than staying contained. A conversation shared in confidence at work can reach someone's cousin at church by the weekend. If you need something to stay private, be explicit about that early, and recognize that the tighter the social overlap in your team, the faster informal knowledge will circulate.
-
-This open flow exists alongside what locals call "bacchanal," a culturally familiar state where talk, conflict, and moral judgement mix. Bacchanal is not always condemned. Sometimes it functions as public storytelling that keeps social life lively and legible. But it can also amplify small issues into narratable events. If you are navigating a sensitive situation, consider how it might be retold, because the story can take on a life beyond the original facts. The related practice of "maco," watching other people's business, can feel intrusive to outsiders. But in dense communities, attention also functions as informal monitoring: keeping tabs on who is trustworthy, who is behaving, who needs support.
-
-Discretion norms vary sharply by setting. In circles shaped by religious life, elder authority, or family reputation concerns, discretion reads as good upbringing. In other settings, especially where lime culture and verbal play are strong, open talk signals honesty and confidence. The same sharing style can be admired in one context and judged in another. Register-switching, the deliberate shift between more standard English and deeply Creole speech, also shapes how information lands, signaling intimacy, seriousness, humour, or warning without stating it directly.

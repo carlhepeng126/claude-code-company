@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Preserving face and maintaining relational dignity sit at the center of how negotiations unfold in Qatar. Public embarrassment or overt pressure can end a discussion before it reaches the terms themselves. This concern for harmony reflects both the Qatari value placed on hospitality and the principle of *shura* (consultation), which frames legitimacy around gathering input and building alignment rather than imposing closure. Coffee ceremonies and receiving rituals often precede substantive talks, creating a relational frame that reduces friction and affirms respect before sensitive issues are raised. Skipping this step or pushing too quickly into demands can read as disrespectful, not efficient.
-
-Decisions take time because they involve consultation. Offering clear options and then stepping back to allow internal discussion is more productive than seeking an immediate yes or no. "Yes" often means the proposal is being considered rather than accepted. Colleagues from cultures where decisions are made quickly in the room may interpret this pause as evasion, while Qatari counterparts may view a rushed close as a sign that the relationship has been sidelined in favor of the transaction. Building space for this back-and-forth acknowledges the value of collective input and increases the chance of genuine commitment.
-
-Bargaining is expected, rooted in Qatar's history as a trading and pearling center. Starting with your best offer leaves no room for the give-and-take that signals flexibility and seriousness. Keep room for concessions without weakening your position. Price remains central, even when the conversation emphasizes partnership and long-term collaboration.

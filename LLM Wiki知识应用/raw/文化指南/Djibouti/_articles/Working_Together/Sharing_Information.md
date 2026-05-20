@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Djibouti often moves through personal channels rather than formal systems. This reflects a society where trust is built face-to-face and where clan and family networks have historically provided both security and access. People prefer to share what they know with those they have a relationship with, especially when the information holds value or could affect someone's standing. In practice, this means that getting straight answers in early meetings can be difficult. A colleague may withhold detail until they have spent time with you, seen how you handle sensitive matters, and confirmed that you will not misuse what they share.
-
-Within organizations, information can stay within tight circles. Departments or teams may not automatically pass updates to one another, particularly if doing so risks exposing a mistake or creating tension. This tendency is linked to the importance of dignity and the desire to avoid public criticism. A question asked too directly in a group setting might receive a vague response, while the same question posed privately to someone you have built rapport with could bring a full and candid answer.
-
-Foreign professionals from cultures where information is routinely documented and shared across teams may find this frustrating, interpreting it as inefficiency or lack of transparency. From a Djiboutian perspective, however, a colleague who distributes information widely without first establishing personal trust may seem careless or naive, someone who does not understand the social cost of openness. Building that trust takes time. Showing discretion, honoring confidences, and investing in one-on-one conversations will open doors that formal requests alone cannot.

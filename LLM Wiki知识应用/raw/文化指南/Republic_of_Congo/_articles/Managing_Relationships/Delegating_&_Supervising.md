@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Delegation in Republic of Congo functions as a personal act of trust, and that shapes how it should be approached. The Marxist-Leninist state historically relied on centralized control with little authority passed down, and this pattern persists in many formal institutions today. When you do delegate, you are doing more than assigning a task. You are signaling belief in someone, and that creates a reciprocal obligation to deliver. The more clearly you frame the assignment as an expression of confidence, the more seriously it will be received.
-
-Frequent check-ins are understood as engaged leadership, not micromanagement. A communal worldview means people often prefer to confirm direction and stay aligned with the person holding authority before moving forward on their own. This reflects relational responsibility, a desire to remain connected to the person who gave the task. A manager from a culture where autonomy is valued might read this as hesitation or lack of initiative. From the Congolese side, stepping back without ongoing contact can feel like withdrawal, leaving the person unsure whether the relationship still holds.
-
-Supervisors should set clear targets and review schedules together so both parties are certain what is expected and by when. Following up regularly produces better outcomes than assuming progress will happen independently. Independence is not the default measure of competence here. Staying present through the course of the work signals that the relationship behind the delegation remains active, and that the task still has your attention.

@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Canadian punctuality is rooted in British colonial administration, which established formal timekeeping and scheduled appointments as professional standards. This expectation became embedded across sectors and remains central today, particularly in urban centers with global business ties. Arriving late to a meeting without explanation is read as discourteous, even if the delay is brief. Meetings typically start on time and end as planned, and overruns are renegotiated rather than assumed.
-
-This approach reflects a broader cultural emphasis on work-life boundaries. Canadians value personal time, family commitments, and predictable schedules. Expecting colleagues to be available early in the morning, late in the evening, or on weekends requires explicit agreement, and frequent intrusions into personal time can strain working relationships. This differs from cultures where professional availability is more continuous. A colleague from a context where responsiveness outside office hours is the norm may read this boundary-setting as disengagement, while a Canadian working in a more fluid time environment may feel pressure to over-commit.
-
-Decision-making may take time, especially where consensus or thorough review is involved, but once a decision is made, implementation usually follows quickly. Deadlines are treated as commitments, and missing them without advance notice can erode trust. Clear timelines, early communication about delays, and structured follow-ups help maintain alignment, particularly in teams where time norms vary. Providing this clarity is a practical way to respect both the expectation of punctuality and the boundaries that protect personal time.

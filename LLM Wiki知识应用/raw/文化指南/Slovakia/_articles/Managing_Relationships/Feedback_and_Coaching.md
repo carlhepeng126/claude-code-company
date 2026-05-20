@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In Slovakia, feedback works best when it feels sincere, specific, and free of performance. A culture of modest warmth means that people respond well to coaching that stays calm and factual rather than emotionally charged or overly effusive. Public praise can feel uncomfortable or insincere if it seems exaggerated. Private recognition, delivered simply and tied to real examples, tends to land more convincingly. Colleagues will notice whether your feedback feels genuine or whether it sounds like it came from a script.
-
-Critical feedback should be given privately and framed around improvement, not blame. Slovakia's attentiveness to fairness and integrity, reinforced through civic memory and shared ideas about dignity, means that harshness or humiliation can register as unjust rather than direct. Colleagues may not push back in the moment, but trust can erode quickly if tone feels disrespectful or standards seem to shift unpredictably. For a colleague from a culture where feedback is delivered more bluntly and in real time, this caution can feel slow or over-cautious. From a Slovak perspective, the same directness may come across as dismissive or careless with someone's standing in the group.
-
-Relationship care supports feedback in quiet, repeated ways. The cultural habit of marking name days and maintaining small acknowledgements shapes how people read your overall approach to them. Coaching feels more credible when it sits within a pattern of steady respect. If you offer critique without that relational groundwork, it can feel disconnected or arbitrary. Be consistent, be fair, and remember that dignity, especially in contexts shaped by exclusion or inequality, is not a formality. It is the foundation on which feedback is heard.

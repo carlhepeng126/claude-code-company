@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Saudi Arabia reflects a hospitality tradition rooted in Bedouin culture, where welcoming guests is a deeply held value. Sharing food or drink is woven into professional life. Coffee and dates will often appear in meetings, and invitations to meals, particularly lunch after the noon prayer, are common ways to strengthen relationships. The act of hosting itself expresses generosity and respect. If you are invited, accept. If you extend an invitation, offer more than once to show you genuinely mean it.
-
-Entertaining typically takes place in restaurants rather than private homes, especially in cities like Riyadh and Jeddah. You are more likely to be taken to Italian, Chinese, Indian, or fusion restaurants than traditional Saudi venues. The range of international cuisine is wide, and the setting is often formal or upscale. The meal provides space for connection. Business may not be discussed at all, or only briefly. The host will usually decide when, and pressing the topic too early can feel transactional. For colleagues accustomed to using meals to advance a specific agenda, this can seem inefficient. From a Saudi perspective, the relationship being built through the meal is the work itself.
-
-During Ramadan, the rhythm shifts. Social and professional gatherings move to the evening, after iftar (the meal that breaks the fast). Expect later starts and a more communal, slower-paced atmosphere. Alcohol is not available in public settings, and the subject should not be raised. Reciprocating an invitation when the opportunity arises is appreciated and reinforces mutual regard.

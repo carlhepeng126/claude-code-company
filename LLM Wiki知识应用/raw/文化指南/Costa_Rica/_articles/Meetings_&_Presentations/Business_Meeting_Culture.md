@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Costa Rica usually follow an agenda, but the atmosphere is designed to stay calm and free of confrontation. Discussions open with a few minutes of small talk before moving into the scheduled points, and the tone favours consensus over debate. In a small, highly networked society where people expect to meet again, preserving harmony means avoiding open fights or outright opposition. Disagreements are more likely to be voiced as *preocupaciones* (concerns) than as direct challenges, allowing participants to raise issues without forcing a public standoff. A colleague from a culture where vigorous debate signals engagement may find this approach hard to read, uncertain whether concerns are being taken seriously. From a Costa Rican perspective, the same colleague's directness can feel unnecessarily combative, as if the relationship is being put at risk for the sake of a point.
-
-Framing matters. Instead of asking "Who is against this?" or pushing for yes-or-no positions, invite concerns by asking "*¿Qué dudas ven? ¿Qué riesgos deberíamos cuidar?*" (What doubts do you see? What risks should we watch for?). This invites input without requiring anyone to become the opposition, and it gives space for issues to surface without blame.
-
-Regional context also shapes how meetings unfold. In San José and the Central Valley, expect more procedure and documentation. In regional offices, municipalities or cooperatives, discussions may be more conversational and tied to local history, environment or community relationships. Acknowledging these connections when relevant, especially outside the capital, shows you understand the broader context decisions are made in.

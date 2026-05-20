@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Colombians approach business with a sharp eye for value and a long memory for how they were treated. In a commercial environment shaped by bureaucratic slowness, unfulfilled promises, and uneven service, the supplier or partner who responds promptly, solves problems after the sale, and doesn't vanish once payment clears becomes the exception. That reliability earns loyalty and word-of-mouth reputation in a way that competitive pricing alone never will. If you want repeat business, invest visibly in after-sales support and make yourself reachable when things go wrong.
-
-Customer realities vary sharply by socioeconomic level, or estrato. A client in an estrato 2 neighborhood and one in estrato 6 use different payment methods, communication channels, and levels of documentation. Both are alert to being misled or treated with condescension. Service models need to reflect these differences genuinely, not cosmetically. That means adapting language, payment options, and how trust is earned, not just translating the same process into Spanish.
-
-In sectors like transport, agriculture, and logistics, access often depends on local cooperatives, guilds, or informal leaders who control routes, markets, or municipal relationships. These groups are legitimate stakeholders. If they feel bypassed or disrespected, operations can stall quietly and without obvious confrontation. Engage them early, acknowledge their role, and treat them as partners rather than obstacles to be worked around. In Colombia, the formal contract and the informal network both need attention.

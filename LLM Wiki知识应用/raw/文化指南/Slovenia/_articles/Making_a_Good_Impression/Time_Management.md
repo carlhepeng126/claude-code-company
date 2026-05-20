@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Slovenian time management reflects a culture that values precision and reliability, shaped by a strong professional ethic and a respect for boundaries between work and personal life. Deadlines are taken seriously. Missing one is seen as a professional failure, and teams will work late or through weekends if needed to deliver on time. This approach is rooted in a broader cultural preference for structure and accountability. Managers should set clear milestones and communicate deadlines early, as ambiguity creates discomfort rather than flexibility.
-
-At the same time, schedules are shaped by practical realities. Slovenia's location means many working lives involve cross-border collaboration or regional commuting between Ljubljana and smaller towns. Plans need to account for real logistics, not just ideal timelines. Meetings should be scheduled with enough buffer to accommodate travel, and agendas should feel workable rather than artificially packed. The cultural preference for human-scale living, visible in Ljubljana's walkable design and the importance of place-based rhythms, means that overloaded schedules can feel disrespectful of the balance people protect between professional commitments and personal time.
-
-Punctuality is expected, and you are unlikely to be kept waiting. Meetings may still run longer than planned, not because time is undervalued, but because relationship-building and thorough discussion are part of delivering work well. Shorter, well-structured sessions with clear follow-ups are often more effective than long, dense meetings. If you are scheduling around national commemorations or holiday periods, acknowledge these moments simply and plan accordingly. They are part of the civic identity, and timing around them should feel considered, not accidental.

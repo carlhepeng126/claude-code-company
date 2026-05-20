@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-In Eritrea, professional relationships usually begin through someone already known and trusted. Decades of self-reliance and restricted external contact have shaped a culture where networks are built carefully and introductions are nearly always mediated. Cold outreach rarely goes far. Instead, a colleague, family member, or mutual contact will typically make the introduction, often through a phone call or in person, and that connection provides a foundation of credibility. Without it, even a well-written email may sit unanswered. If you're establishing contact from outside Eritrea, ask a local partner or colleague to facilitate the introduction rather than trying to connect directly.
-
-Once contact is made, expect the early conversations to focus more on rapport than business. Questions about your background, your organization, and how you came to work in the region are standard. This exchange builds familiarity and reassures your counterpart that the relationship can develop on solid ground. Moving too quickly to transactional topics can make you seem impatient or unreliable. Allow time for this phase, even if it feels unhurried to someone from a culture where appointments are brief and agenda-driven.
-
-Scheduling works best when done well in advance and confirmed closer to the date. A week or two of lead time is typical, with a follow-up call or message the day before. Meetings may start later than scheduled, and it's common for the agenda to shift once the conversation begins. Building in buffer time between appointments means you won't be caught short if a discussion runs long or a colleague from Eritrea brings in someone else to join.

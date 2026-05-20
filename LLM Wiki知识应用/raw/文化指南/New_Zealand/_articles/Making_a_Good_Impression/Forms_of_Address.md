@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-New Zealanders move to first names fast. Honorifics and titles drop away within moments of introduction, and managers, officials, and senior colleagues are typically addressed by their given names from the outset. This applies across most sectors and settings, and the shift happens quickly enough that waiting to be invited can feel overly cautious. A handshake and a first name are the standard opening.
-
-This informality reflects the country's egalitarian instincts, but it does not erase respect for expertise, contribution, or seniority. Mana (authority, prestige, standing) still matters, and people whose knowledge or role holds weight are treated accordingly. The casualness sits at surface level. Underneath, New Zealanders pay attention to who has earned credibility and who has not. A colleague from a culture where titles and formal address signal respect may read the immediate use of first names as overly familiar or insufficiently serious. From a New Zealand perspective, the reverse can also be true: holding to formal titles past the first exchange may come across as stiff or distancing, even when the intention is to show deference.
-
-Pronouncing Māori names correctly is expected, not optional. This includes people's names, place names, and key terms like iwi (tribe), hapū (subtribe), and kupu (words). Mispronunciation is noticed and reflects poorly, particularly in contexts where Te Ao Māori (the Māori world) is present or acknowledged. In marae (Māori meeting grounds) or iwi settings, certain leaders may be addressed with Māori titles such as kaumātua (elder) or rangatira (chief). Follow local guidance on protocols, including who speaks when and how elders are addressed.

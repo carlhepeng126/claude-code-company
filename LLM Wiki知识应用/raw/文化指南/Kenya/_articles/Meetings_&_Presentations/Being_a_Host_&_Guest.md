@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Kenya grows from moral and often spiritual roots. Across many communities, welcoming a guest has long been understood as a duty, reinforced by indigenous traditions and shaped by Christian, Muslim and indigenous practices that continue to blend in everyday life. Prayers, blessings or symbolic gestures of welcome may accompany a visit, and generosity in offering food and drink reflects values that stretch well beyond politeness. When hosting a business contact or international colleague, this warmth is often brought into professional settings. Expect tea, snacks and a level of attentiveness that builds the foundation for trust.
-
-As a guest, show appreciation clearly and in more than one form. Verbal thanks are expected, but small gestures add meaning: bringing something sweet like chocolate or cakes when visiting a home, or following up with a message of gratitude after a meeting. Respecting house norms also matters. If shoes are left outside the door, remove yours. If a short prayer is offered before a meal, join quietly even if it is unfamiliar. Declining refreshments repeatedly can feel like a rejection of the host's effort. Accepting what is offered, even if only a little, acknowledges the relationship being built.
-
-Elders and senior figures are often acknowledged first, both when arriving and when thanking. In a business context, this might mean greeting the most senior person at the table before others, or waiting for them to begin a meal. Rushing through an interaction or treating hospitality as purely functional undercuts its purpose. A colleague from a culture where meetings are kept short and task-focused may find the time spent over tea or food slower than expected. From a Kenyan perspective, that same colleague's efficiency can read as transactional or dismissive of the relationship itself.

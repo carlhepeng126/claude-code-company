@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Morocco's commercial landscape runs on two tracks. In state-linked sectors and modern logistics corridors built around infrastructure like Tanger Med, credibility often flows through institutional proximity and delivery speed. In settings shaped by the country's large informal economy, trust is earned through reputation, repeated contact, and visible personal accountability. Understanding which system you are working within will determine how you build and keep commercial relationships.
-
-Reliability shows up differently depending on the context. In informal-heavy settings, where many people navigate mixed formality daily, paperwork alone does not create confidence. Trust comes from demonstrated follow-through over time, so a supplier who delivers on smaller commitments first, or a customer who shows up consistently, builds credibility faster than one who leads with contracts. In logistics and manufacturing hubs influenced by Morocco's trade ambitions, expectations tilt toward throughput and timeliness as proof of seriousness. A partner from a culture where contracts alone establish commitment may find the relational path slow, while a Moroccan counterpart may read a purely transactional approach as shallow or unreliable.
-
-Maintaining a visible presence in Morocco strengthens supplier and customer relationships. Communicate by phone or in person where possible, and visit regularly if working remotely. Many business relationships are built through frequent, low-key contact rather than formal check-ins. Diaspora-linked households and businesses often bring transnational experience to the table, so cross-border credibility and responsiveness to commitments made abroad can register more strongly in these settings.

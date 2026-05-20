@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Armenia are built around relationship first, transaction second. Lunch or dinner with a colleague or client offers time to understand the person, not just the project. Conversations may begin with family, mutual acquaintances, or observations about daily life before turning to work. This sequencing reflects a relational culture where trust grows through personal connection, and where knowing someone's character precedes knowing their terms. Diving straight into business talk can feel abrupt and may be read as indifference to the person across the table.
-
-Armenian hospitality shows up in the quantity and variety of food offered. Expect multiple dishes, often more than the group can finish. Hosts take pride in abundance, and declining food too quickly may suggest the offering was insufficient. It's acceptable to sample modestly and express appreciation, but leaving the table hungry is unlikely. Meals are social events, and the pace reflects that. Courses arrive slowly, and conversation flows between them. A colleague from a culture where efficiency drives the meeting structure may find the rhythm unhurried, while an Armenian counterpart may view a tightly timed meal as a missed opportunity to deepen rapport.
-
-Toasting is common, particularly at dinners. The host usually initiates, often honouring the guest or celebrating a shared occasion. Reciprocating with a toast of your own is appreciated. While wine and brandy are widely available, it's also fine to toast with a soft drink if you prefer. What matters is participating in the gesture, not the substance in the glass.

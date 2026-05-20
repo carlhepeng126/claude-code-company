@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leaders in Indonesia are often expected to be more than managers. The ideal of the *Bapak* or *Ibu* (literally "father" or "mother") figure extends into the workplace, where staff may turn to senior people for help with hospital admissions, school placements, or smoothing a problem with an outside authority. A leader who keeps strictly to contract boundaries can be seen as cold, someone who doesn't understand what real protection looks like. Trust comes from showing you'll use your position to look after your people in practical, personal ways.
-
-Many Indonesian leaders, especially those with Javanese backgrounds, practice *halus* (refined, indirect) authority. They give hints rather than orders, use proverbs to soften criticism, and express disagreement through a smile and carefully chosen silence. Anger appears in tone and timing more than volume, and sometimes the sharpest reprimand comes as icy politeness. A colleague from a culture where leaders state their views directly may miss the decision that was just delivered in a story or a pause. From the other direction, an Indonesian team member may read blunt instruction as a failure of self-control, a loss of the composure expected from someone senior.
-
-Leaders typically have an inner circle of *dekat* (close) people who can speak frankly and get quick decisions. Others communicate through layers, partly from respect, partly from caution. Where leaders don't actively invite bad news, teams fall into presenting only success. Problems get managed quietly or delayed to avoid bringing shame into the room. If you want the full picture, say so clearly and often, and prove it by thanking those who surface issues early rather than penalizing them.

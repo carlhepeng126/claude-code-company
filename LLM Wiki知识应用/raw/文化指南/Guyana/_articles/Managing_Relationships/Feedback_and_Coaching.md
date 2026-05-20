@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Guyana is shaped by the country's small size and densely connected social fabric. People often grow up in overlapping circles of family, school, church, and work, and these ties continue into professional life. This means that giving criticism can quickly become personal, and public correction risks damaging relationships that extend far beyond the workplace. Managers tend to offer developmental input privately and indirectly, framing suggestions as guidance rather than fault-finding. A supervisor might say, "I wonder if we could look at this part again," or share their own experience as a way to open reflection without confrontation. This approach protects dignity and keeps the working relationship intact.
-
-The relational nature of feedback also means it rarely stays within the bounds of a single conversation. People often process advice through trusted family members, friends, or mentors before acting on it. What looks like delay or hesitance to a colleague from a more individualistic culture may simply be someone consulting their broader network before committing to change. For Guyanese professionals working with managers who expect immediate response to feedback, this can feel pressured. From the other side, managers may misread consultation as avoidance when it is actually a sign of care and thoroughness.
-
-Public praise is welcome and helps reinforce team cohesion, but it should be sincere and not overdone. Formal rating systems or blunt written assessments can feel impersonal in a context where trust and warmth are central to how people relate. Coaching works best when it feels human, relational, and rooted in genuine respect for the person being supported.

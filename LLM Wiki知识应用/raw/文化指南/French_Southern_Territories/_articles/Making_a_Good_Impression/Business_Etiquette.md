@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-The French Southern Territories are not home to conventional business culture. These islands serve as scientific research stations and conservation zones administered by France, with no permanent civilian population and no local commercial sector. The people who work there are researchers, technical staff, and administrative personnel on rotation, almost all sent from metropolitan France or other French-administered territories. What you encounter is French institutional protocol adapted to isolated field conditions, shaped by the priorities of research, environmental protection, and the practicalities of living in small teams far from mainland oversight.
-
-Interactions follow French professional norms but stripped of the formality that urban offices sustain. Titles and hierarchy exist, but daily life in cramped stations fosters a more direct, collegial tone. Address senior researchers or station directors formally at first, using their title and surname, then follow their lead. The isolation means relationships develop quickly and informally, but deference to expertise and role remains. If you are visiting as a researcher or contractor, your professional reputation precedes you. Credentials and institutional affiliation establish standing more than a polished introduction or networking ritual ever could.
-
-Practical arrangements matter. Meetings are few and functional, shaped by logistics, weather, and the rhythm of scientific work. Email correspondence sent well in advance is essential. Expect replies to be factual and brief. Gift-giving has no place in this context, and business cards are rarely exchanged. If you need to leave contact details, write them down or share digitally when asked.

@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Being invited to a Spanish colleague's home is meaningful and usually follows an established professional relationship. Much business hospitality takes place in restaurants or cafés, so a home invitation reflects genuine trust and a move beyond the transactional. Hosts take pride in creating a welcoming atmosphere and offering abundant food and good company, and the gesture is intended to deepen the relationship, not simply fulfil a social obligation.
-
-Courtesy and conversational engagement are central to being a good guest. Bringing a small gift such as chocolates, pastries, or flowers (avoiding white lilies, red roses, or chrysanthemums, which carry unlucky associations) shows appreciation for the effort involved. Expect the meal to be social rather than efficient. Silence can be read as disinterest, so even light participation in the conversation helps signal respect for the host's hospitality. A colleague from a culture where meals are brief and task-focused may see this as slow or overly social; a Spanish host may read a quick exit or minimal conversation as lack of warmth or gratitude.
-
-Regional expression varies. In Andalusia, warmth and expressiveness are immediate; in the Basque Country, hosts may begin more reserved but are equally sincere once rapport is established. When hosting in return, choose a restaurant known for quality rather than convenience, and reciprocate the gesture when you can. The act of offering to pay or returning the invitation holds more weight than strict etiquette around who technically settles the bill. In a relationship-centered culture, the gesture speaks louder than the transaction.

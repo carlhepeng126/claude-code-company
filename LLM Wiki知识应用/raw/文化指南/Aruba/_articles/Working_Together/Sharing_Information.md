@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information sharing in Aruba tends to be open and direct once basic rapport is established. The island's small size and interconnected social fabric mean that relationships often predate the workplace, and people are comfortable exchanging information both formally and informally. There is little of the guardedness found in larger or more hierarchical societies. If you need clarity on a project or decision, asking directly is usually well received, and colleagues will typically share what they know without requiring lengthy trust-building beforehand.
-
-That openness does not mean everything is immediately visible. Sensitive topics, particularly those involving internal disagreements or organizational tensions, may be handled more discreetly. Arubans place high value on group harmony and avoiding public conflict, so information that could cause friction or embarrassment is sometimes shared selectively or through trusted intermediaries rather than broadcast widely. A colleague from a culture where transparency extends to airing problems in meetings may find this selective approach indirect, while an Aruban working abroad might see unrestricted openness as unnecessarily confrontational or disruptive to team cohesion.
-
-Within teams, informal channels often move information faster than formal ones. Conversations over coffee or after work are where updates, concerns, and context are genuinely exchanged. If you rely solely on scheduled meetings or written reports, you risk missing the fuller picture. Building informal connections and showing genuine interest in your colleagues' perspectives will improve access to the information that shapes day-to-day decisions.

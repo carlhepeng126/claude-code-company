@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-What drives people in Kuwait differs sharply across citizenship, contract status, and generation. Many Kuwaiti citizens are insulated from material pressure by the welfare state. For them, motivation comes from meaning, influence, and recognition: being seen as someone who served Kuwait well, innovated, or protected fairness. Connect work to the country's long-term story, to intergenerational responsibility, or to how a person's contribution will be remembered in diwaniyas and public memory. Prestige and legacy matter more than performance bonuses tied to quarterly targets.
-
-Expatriate workers, by contrast, are driven by security and dignity. Visa renewal, fair treatment, and manageable workloads carry more weight than mission statements or public praise that doesn't translate into renewed contracts or better conditions. If you want sustained commitment from expat staff, demonstrate care through actions: clear contract terms, respectful tone, and conditions that acknowledge their material and legal vulnerability. For Bidoon colleagues, motivation is often tied to being treated as full contributors rather than invisible labor. Opportunities to learn, to be named in success, or to gain references that may help with documentation struggles can make a tangible difference.
-
-Younger Kuwaitis are often restless. Exposed to global ideals online but blocked by bureaucracy and nepotism at work, they respond to assignments that feel real and unscripted. Design roles that involve actual decision-making or creation, not just executing pre-decided tasks, and avoid token "youth engagement" that feels performative rather than substantive.

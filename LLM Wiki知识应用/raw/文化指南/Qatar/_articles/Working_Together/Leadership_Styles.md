@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Authority in Qatar is expected to be steady and dignified, grounded in composure and care for group harmony rather than charismatic performance. Leaders are seen as stewards, responsible not only for outcomes but for the moral and social wellbeing of those they lead. This expectation is especially visible in citizen-facing organizations and government contexts, where leadership legitimacy is read through social standing, lineage, and community respect as much as through institutional role. In settings where tribal and family identity remain salient, belonging and reputation shape how authority is received. Expatriate contexts tend to emphasize credentials and organizational title, but these alone may not be enough if relationship signals are missing.
-
-Consultation is a leadership virtue, reflecting the cultural and constitutional principle of *Shura* (consultation). Good leadership means seeking advice and making room for input, even when the final decision remains with the leader. This is not symbolic. It protects dignity, maintains cohesion, and allows authority to be exercised without alienating others. A leader who decides alone without consulting may be seen as disconnected or dismissive. When working with Qatari colleagues, expect decisions to be referred upward and discussed with trusted advisors, and understand that this process is not delay but part of how credibility and accountability are built.
-
-Correction and accountability are managed carefully. Public criticism risks damaging dignity, which can undermine trust and team unity. Frame standards as shared responsibility rather than individual fault, and offer feedback privately where possible. For colleagues from cultures where direct, immediate feedback is common, this approach may read as slow or indirect. From a Qatari perspective, public directness without regard for relationship can appear disrespectful and counterproductive.

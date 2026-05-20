@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Presentation in professional Brazil reflects cosmopolitan identity and social awareness. Cities like São Paulo and Rio are fashion-conscious, shaped by European, African and global influences, and people notice grooming, fit and overall polish. This attention to appearance extends across sectors, though with meaningful variation. Financial firms and government offices tend toward more formal tailoring, while tech and creative industries allow business casual with a modern edge. Even in relaxed settings, though, the effort shows. Dressing deliberately rather than carelessly communicates respect for the occasion and the people you're meeting. If you arrive underdressed or looking rushed, colleagues may read that as undervaluing the relationship.
-
-Climate shapes what works day to day. Lighter fabrics, natural fibers like cotton and linen, and breathable cuts are common in Brazil's tropical and subtropical heat, but people still find ways to look sharp. Coastal cities may feel slightly more informal, but polish remains the baseline. For men, quality suits in dark, plain colors with well-made leather shoes and belts are standard in formal contexts. Tailoring and fabric quality can be read as markers of seriousness and status. Women typically wear dresses, suits or blouses with tailored skirts or trousers, often in clean cuts and hemlines above the knee. Bright colors and prints are common among Brazilian professionals, but visitors generally do better aiming for modest elegance rather than trying to match that local flair.
-
-After-hours occasions often call for more formality than the office itself. A dinner meeting or evening event may expect a well-fitted jacket or a stylish dress, and showing up in something considered will land better than defaulting to casual comfort. Matching the effort your host puts in helps establish mutual regard from the start.

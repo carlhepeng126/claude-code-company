@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Access in Angola often depends less on cold outreach than on who can open a door for you. People talk about needing a *porta* (a trusted person who can open doors), especially in Luanda, where family, church, party and neighbourhood networks mediate entry to ministries, state-owned enterprises and large firms. Decades of MPLA dominance and an oil-centred economy mean that ruling-party connections and oil-linked elites sit at many junctions of opportunity. A warm introduction from someone already known and trusted will move you forward faster than weeks of emails. If you're starting from outside these networks, invest early in finding a respected local intermediary, a Lusophone contact, or an existing Angolan partner who can make that first connection credible.
-
-Once a contact is made, confirm meetings by phone or WhatsApp closer to the time, not just through calendar invites. Traffic jams, fuel shortages, power cuts and last-minute official obligations mean schedules shift more than formal plans suggest. Build flexibility into your diary and avoid back-to-back appointments. A meeting set for the morning may be postponed to the afternoon, or moved entirely to another day, with little advance notice.
-
-Geography shapes how access works. In Luanda, the pace is fast and the environment highly networked, sometimes opaque. In provincial cities and rural areas, traditional authorities (known as *sobas*, local chiefs) and church structures play a bigger role in mediating trust and opening conversations. If your work touches land, communities or agriculture, a provincial connector may unlock more than any Luanda-only network can offer. Knowing which ministry, state-owned company or individual actually controls the file you're working on will save time and confusion later.

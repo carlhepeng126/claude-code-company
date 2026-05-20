@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-People in Ghana use professional and honorific titles frequently, and taking the time to do so shows respect for both the person and the social order they represent. Titles like Doctor, Engineer, Lawyer, Chief, Reverend, or Prophet appear in everyday conversation, not just formal settings. Traditional titles vary by ethnic group: Nana among the Akan, Togbe among the Ewe, and Naa in northern communities. Ghanaian society is highly hierarchical, and a person's title reflects their standing in ways that go beyond the credential itself.
-
-In the workplace, juniors routinely address seniors as Sir, Madam, Boss, or Chairman, even in relatively informal offices. Auntie and Uncle are also common, used not only for family but as terms of respect toward any older or senior colleague. Standard openings like "Good morning, Doctor Mensah" or "Honourable" set the right tone until the person indicates otherwise. Starting formally and then following the other person's lead allows the relationship to develop at the right pace.
-
-Many Ghanaians have both an English or Christian name and a local name, often including a day name that reflects the day of the week they were born, such as Kofi for a Friday-born boy or Abena for a Tuesday-born girl. Using a day name can feel warm and relational once rapport is established, but doing so too early may come across as presumptuous. Listen to how colleagues refer to each other, and mirror that form of address, especially in front of others. The way you address someone in public reinforces the respect you show them within their own professional or community circle.

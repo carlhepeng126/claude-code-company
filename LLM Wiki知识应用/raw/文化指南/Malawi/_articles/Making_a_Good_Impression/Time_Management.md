@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Malawi is shaped by what anchors daily life: rainfall and planting seasons in farming areas, fishing rhythms and weather along the lakeshore, transport realities and infrastructure gaps in cities like Lilongwe. Where agriculture underpins livelihood, schedules follow ecological cycles rather than fixed calendars. Harvest periods or sudden rain can redefine what is urgent. Lakeshore communities work to boat movement and catch patterns, creating a tempo distinct from inland zones. In urban settings, punctuality often depends on whether a minibus arrives or a road is passable that day. Time becomes what is feasible now, not necessarily what was agreed last week. When planning meetings or deadlines, account for these realities and avoid reading delays as disinterest.
-
-Community obligations and religious commitments also shape availability in ways that are immediate and non-negotiable. Funerals, extended family responsibilities, and local events are core social duties, often requiring people to rearrange schedules at short notice. Christian services, Friday prayers, and fasting periods create anchors that vary by district and faith community. These are not optional extras. A colleague may miss a meeting or shift a deadline because of a family duty or religious observance that takes precedence. Flexibility here improves reliability, not the reverse.
-
-A colleague from a culture where deadlines are fixed and meetings start on time may read this fluidity as lack of commitment. From a Malawian perspective, the reverse can seem rigid: prioritizing a calendar entry over a funeral or ignoring seasonal constraints feels detached from lived reality. Building buffers, confirming availability closer to the date, and treating time as plural across contexts will make collaboration more effective.

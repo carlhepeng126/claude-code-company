@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Building professional contacts in Chad begins with understanding that relationships develop through presence, not messaging. The country's long history of clan-based social organization means trust is earned through direct interaction and visible commitment. Initial outreach by email or phone may receive a polite response, but real progress happens when you meet in person. That first conversation is rarely about the contract or project. It's about understanding who you are, who connected you, and whether you share values or common ground. Asking after family, acknowledging mutual acquaintances, or showing interest in local concerns all help establish your credibility before business is discussed.
-
-A warm introduction from someone already trusted makes a measurable difference. In practice, this might mean a colleague inviting you to an informal gathering, or a business partner arranging a joint meeting where they vouch for you directly. Networking in Chad unfolds through repeated contact and shared experience, not a single handshake. If you're working with colleagues from cultures where business discussions begin immediately after introductions, they may interpret this slower rhythm as reluctance or inefficiency. From a Chadian perspective, launching into proposals without first building rapport can seem transactional and disrespectful.
-
-When scheduling meetings, confirm appointments a few days ahead and reconfirm the day before. Expect flexibility. Meetings may start later than planned, run longer than scheduled, or include people you weren't expecting. Schedules shift to accommodate pressing family matters, senior visitors, or community obligations. Leaving buffer time between appointments and staying open to adjustments shows that you understand how priorities are managed here.

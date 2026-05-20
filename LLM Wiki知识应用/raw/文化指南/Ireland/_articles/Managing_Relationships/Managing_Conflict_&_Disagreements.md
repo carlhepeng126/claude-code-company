@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Long histories of political conflict have left many Irish people wary of open confrontation in the workplace. Colonial rule, civil war, and the Troubles in Northern Ireland have shaped a preference for approaches that preserve relationships and avoid entrenched positions. This does not mean disagreements are ignored. People are often conflict-aware but conflict-averse, choosing subtle methods to surface dissatisfaction or resolve tension without escalating to direct accusation.
-
-Humor, understatement, and storytelling often serve as indirect ways to flag a problem or cool down a heated moment. A phrase like "it's grand" or a joke about how things could have been worse may be a way of signaling concern without forcing a confrontation. Direct criticism, especially in front of others, can damage face and strain working relationships. Colleagues from cultures where disagreements are addressed quickly and explicitly may misread this indirectness as evasiveness or lack of urgency, while Irish colleagues may view rapid escalation as unnecessarily confrontational or relationally damaging.
-
-When conflict does arise, addressing it early in a calm, non-accusatory manner fits local norms better than waiting for a public showdown. Private conversations allow room to explore the issue without putting anyone on the defensive. In smaller communities and workplaces, people must continue working together after the disagreement, so repairing the relationship is as important as resolving the issue itself. Third-party mediation is often preferred over litigation, reflecting a broader cultural emphasis on mutual understanding over victory.

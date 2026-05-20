@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-The ability to log off and disappear to the cottage at the weekend defines quality of life for many Czechs in a way that goes deeper than work-life balance. After decades of economic upheaval, scandals, and bad managers, the aspiration for many people is a normal job with a normal boss: one where you get paid on time, aren't lied to, aren't overworked every week, and the manager is competent. That bar is basic, but it has not always been met. Jobs that constantly invade personal time take something culturally central away, and people will walk rather than sacrifice it, regardless of the pay increase. Before rolling out any engagement program, get the fundamentals right. Fair pay, reasonable workload, decent tools, and honest leadership motivate more than awards or slogans.
-
-Recognition works best when it is quiet and specific. Big, noisy ceremonies can feel fake. A short, genuine "Tys to udělal fakt dobře" (you really did this well) from someone respected often means more than a certificate on stage. What lands is noticing the ingenuity in the work: the smarter solution someone built, the elegant workaround they found, the cheaper method they designed. Craft and cleverness are identity points. Recognition that shows you actually understand what the person did, not just that a metric turned green, speaks to that pride.
-
-When extraordinary effort is needed, frame it as the exception and pay it back with time or flexibility. Protect evenings and weekends when you can. Give people autonomy, a say in decisions, and trust. These small, authentic signs of respect motivate more than posters about passion and excellence.

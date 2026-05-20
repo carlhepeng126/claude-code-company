@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information sharing in Ukraine often draws on a deep oral tradition. Folk songs and epics historically transmitted cultural wisdom through storytelling, and that narrative approach still shapes how many professionals explain ideas or provide context today. Some colleagues offer thorough background and framing, building the full picture before getting to the core point. Others are more direct, particularly in the IT sector and international companies where efficiency and transparency have become the norm. The variation reflects both personal style and sector culture, so recognizing which mode your counterpart uses will help you adjust how you ask questions and how much detail you provide in return.
-
-Periods of censorship and suppression, when speaking openly brought real risk, created cautiousness that persists in how people handle sensitive topics. Colleagues may hesitate to share bad news or admit mistakes in group settings where dignity could be affected. Moving the conversation to a private channel often reveals more candid information. Creating psychologically safe environments where errors are treated as learning opportunities rather than failures makes honest exchange more likely, especially when leaders show genuine care and keep confidences.
-
-Clear, structured requests help prevent overexplanation while respecting the cultural value of context. If you need a quick update, say so. If you need the reasoning behind a decision, make that explicit too. Written follow-ups after meetings reinforce clarity and give colleagues a reference point, particularly useful when narrative-style communication has covered a lot of ground. Over time, as reliability and discretion are demonstrated, information flows more freely and collaboration deepens.

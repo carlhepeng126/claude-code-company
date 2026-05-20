@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Botswana is shaped by the value placed on harmony and collective responsibility. The concept of *botho* (ubuntu in other parts of southern Africa), which emphasizes humanity, respect, and interdependence, runs through how people work together. This means that team cohesion and maintaining good relationships often take precedence over speed or individual accountability. When a colleague hesitates to challenge a decision in a meeting or prefers to discuss concerns privately afterward, they are protecting group harmony and showing respect for the collective. For a manager from a culture where open debate is expected, this can read as disengagement, while from a Botswana perspective, confrontational disagreement in public can seem disrespectful and damaging to trust.
-
-Authority within teams is generally respected, and senior members are expected to guide rather than simply delegate. Leadership is seen as a responsibility that includes looking after the well-being of the team, not just managing output. A team leader who checks in on personal circumstances or offers support beyond the task at hand is fulfilling a social expectation, not overstepping. When feedback is needed, it is given privately and framed carefully to avoid causing embarrassment. Public criticism can fracture relationships in ways that are difficult to repair.
-
-Decision-making tends to be consultative, with input sought from those involved before moving forward. This process can feel slow to colleagues used to faster turnarounds, but it reflects a commitment to inclusion and buy-in. Skipping this step to save time may leave team members feeling sidelined or unclear about their role, which can quietly undermine follow-through.

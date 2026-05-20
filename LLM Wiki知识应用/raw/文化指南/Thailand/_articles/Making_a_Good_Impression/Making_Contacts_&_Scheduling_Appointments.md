@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Thai professional life runs on relationships shaped by *kreng jai*, the instinct to avoid imposing or creating discomfort. This means first approaches tend to be careful and indirect, especially when the relationship is new or the other person's status is unclear. A warm introduction from someone already known and trusted can open doors faster than repeated cold outreach, because it gives the contact context and social proof. It answers the quiet question of how you're connected and why they should make time. When someone introduces you, they're quietly vouching for you, which reduces ambiguity and makes it easier for the other person to respond without awkwardness. In practice, this means asking a colleague, mutual contact, or local partner to facilitate the connection rather than pushing through on your own.
-
-Scheduling also reflects hierarchy, even when the tone feels light and friendly. People read roles and seniority quickly, and the way you approach someone matters. Going directly to a senior figure without the right introduction or context can feel socially off, while approaching through a trusted intermediary shows you understand the social map. Book appointments a few weeks ahead and reconfirm closer to the time. Flexibility helps, meetings may shift or run longer than planned, and adapting to those changes without visible frustration shows respect for how things actually work.
-
-Bangkok moves fast, with high connectivity and operational flexibility, while regional settings may follow a slower, more relationship-driven rhythm. The same request can land differently depending on whether you're in a cosmopolitan office or a context shaped by local ties and reputation. Adjusting your pace and approach to the setting makes the difference.

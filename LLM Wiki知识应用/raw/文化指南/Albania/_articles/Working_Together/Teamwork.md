@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Albania tends to be personal, relational, and shaped by long memories of insecurity and distrust. Collaboration is built first through connection, not structure. Teams function best when there is genuine rapport among members, often established through informal conversation, shared meals, or social time outside formal meetings. This reflects a cultural preference for knowing who you are working with before committing to how the work will be done. In environments where team members have been thrown together without time to build that foundation, you may notice guarded participation or hesitation to speak openly in group settings.
-
-Leadership plays a defining role. Albanian team members generally expect clear direction from a senior figure who takes responsibility for decisions and outcomes. This does not mean micromanagement, but it does mean visible involvement and willingness to step in when things stall. A manager who delegates without follow-up or remains distant may be read as disengaged or unsure, which can undermine confidence in the team's direction. At the same time, there is real appreciation for leaders who show personal interest in team members and treat them with respect, rather than formality alone.
-
-Feedback in team settings requires care. Public praise directed at individuals can create discomfort or resentment among others, particularly in smaller or longer-standing teams where harmony and equality among peers are valued. Recognition is better handled privately or framed in terms of collective success. Criticism, even when constructive, should never be delivered in front of the group. Doing so risks damaging trust and may prompt withdrawal rather than improvement.

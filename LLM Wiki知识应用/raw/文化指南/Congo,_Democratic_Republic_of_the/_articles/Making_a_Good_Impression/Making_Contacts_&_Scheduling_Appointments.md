@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Building professional contacts in the Democratic Republic of Congo starts with personal connection and finding the right intermediary. In a country where formal institutions have often been unreliable and national coherence is fragmented across regions and language groups, people depend on known relationships to assess credibility. Before committing to a meeting or partnership, your Congolese counterpart will want to understand who you are, who you know, and whether your intentions align. That's why cold outreach rarely succeeds. A warm introduction from someone already trusted, whether a colleague, supplier, or mutual friend, lends you immediate credibility and can open doors that direct emails or calls will not.
-
-Once contact is made, expect scheduling to be flexible rather than fixed. Appointments are typically agreed in advance, but confirmation closer to the date is common, and changes can happen with little notice. Priorities shift based on evolving circumstances, family obligations, or senior figures needing attention. If you've scheduled back-to-back meetings in Kinshasa or Lubumbashi, leave room for delays or extensions. A meeting that runs longer than planned often reflects genuine engagement, and showing irritation or impatience can damage trust more than being late ever would.
-
-Regional and generational differences also matter. In the capital and larger cities, younger professionals in multinational firms may be more comfortable with formal scheduling and email exchanges. In provincial towns or rural areas, face-to-face introductions and phone calls still dominate, and business progresses at a pace shaped by local networks rather than calendar software. Adapt your approach to where you are and who you're working with.

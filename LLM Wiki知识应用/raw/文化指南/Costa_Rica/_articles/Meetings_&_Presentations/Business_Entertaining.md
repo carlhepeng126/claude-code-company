@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Costa Rica reflects the Pura Vida ethos: warm, inclusive, and free of excess. Dinners, cafés, small bars or hotel lounges are typical settings, chosen for good conversation and conviviality rather than spectacle. Getting very drunk or loud contradicts the cultural preference for relaxed connection. When choosing a venue, think about who will be at the table. Given income differences and the presence of Nicaraguan or indigenous colleagues in many workplaces, very expensive restaurants or places with strict dress codes can make some people feel out of place. Ticos often prefer spaces where everyone can relax without worrying about the bill, which makes mid-range or neighbourhood spots a safer and more thoughtful choice.
-
-Regional context shapes the style. In Guanacaste, entertaining might revolve around beachfront restaurants and sunset drinks in a surf-town setting. In the Central Valley, it's more likely to involve neighbourhood sodas (small family-run eateries), coffee houses or mid-range restaurants. In Limón, food and music carry Afro-Caribbean flair, where reggae and calypso are woven into the social fabric. Letting local colleagues steer you toward venues that reflect the region's character, while still being safe and accessible, shows respect for the setting and the people in it.
-
-Meals are a way to strengthen relationships, but breakfast meetings are uncommon and often undermined by unpredictable timing. Business lunches are quick, usually an hour, as the Spanish siesta tradition has little traction in Costa Rica, especially in San José. Business dinners are more common, and it's usual to include a colleague's spouse if you extend an evening invitation. Golf also plays a role, either through private games or informal tournaments organized by chambers of commerce, offering another relaxed route to building trust outside the office.

@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in the Democratic Republic of Congo is shaped by a deep respect for hierarchy and positional authority. Titles and formal structures are taken seriously, and managers are expected to provide clear direction rather than invite debate. This reflects both the legacy of centralized governance and the social order in which seniority and formal roles bring responsibilities that others rely on. A leader who consults too openly or defers decisions may be seen as weak or unsure, which can unsettle a team that expects confidence and clarity from the top.
-
-That said, personal connection also plays a significant role. Effective Congolese leaders often build loyalty through direct relationships, patronage, and attention to individual circumstances. Authority is not exercised from a distance. A manager who knows their team members personally, who supports them in times of need, and who shows care beyond the purely professional will command more genuine respect than one who relies on title alone. This blend of formal control and informal care is not a contradiction but a workable system in which hierarchy and personal bonds reinforce one another.
-
-For colleagues from cultures where delegation and participative decision-making are the norm, this style can feel slow or overly centralized. Conversely, Congolese professionals working in highly devolved environments may find it difficult to act without explicit approval, interpreting open-ended empowerment as a lack of direction rather than a sign of trust. Recognizing that leadership here balances visible authority with relational responsibility helps make sense of both the formality and the personal investment involved.

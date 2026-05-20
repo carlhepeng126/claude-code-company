@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Lithuania tends to be private, calm, and minimalist. Public criticism, even if constructive, can feel like a breach of dignity. The restraint that shapes everyday interaction has deeper roots in 20th-century experience, when discretion and careful speech could be protective. Today, that same reserve functions as an interpersonal ethic: don't make a spectacle of someone, don't force emotion into public view, don't impose advice before trust exists. For colleagues from cultures where open, immediate feedback shows engagement, this Lithuanian quietness can feel like avoidance. From the Lithuanian side, high-energy public correction can feel like loss of control rather than honesty.
-
-Disapproval is often communicated through subtle cooling rather than confrontation. A brief pause, a slight shift in tone, or a polite pivot can all function as signals that something has landed badly. This indirect regulation through awkwardness, sometimes described as the *nepatogu* (uncomfortable) zone, means that managers may express concern by withdrawing warmth rather than escalating the conversation. If you miss these cues, the relationship may quietly stiffen without a clear moment of rupture.
-
-When feedback is direct, it often arrives without emotional packaging. Corrections tend to be short, specific, and matter-of-fact, framed around doing things *tvarkingai* (properly or neatly). There's a strong cultural respect for correctness and craft, so critique anchored in standards rather than personal judgment will usually be received more readily. Coaching carries more weight once you've demonstrated steadiness and competence over time. Advice offered too early, before relational legitimacy exists, can feel intrusive. Build consistency first, then guide.

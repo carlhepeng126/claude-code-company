@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Czech Republic happens most often in pubs and cafés, settings that double as informal character assessments. Over a couple of beers in a neighbourhood hospoda (pub), colleagues watch how you treat serving staff, whether you listen more than you talk, and whether you overshare or brag. Those impressions stick longer than the content of the conversation. The venue choice also sends a message. Picking a well-known local spot shows you asked for advice; choosing a tourist trap suggests you didn't bother.
-
-Czech beer culture is slow and conversational, built around weaker beers consumed steadily over a few hours rather than heavy drinking or shots. The latter approach reads as immature or foreign. Matching the rhythm without overdoing it builds rapport; becoming the loudest or most intoxicated person at the table does the opposite. In Prague and Brno especially, cafés serve as extended workspaces where people conduct interviews and sensitive discussions. Suggesting a calm café rather than a noisy bar can show respect for both the topic and the other person's time.
-
-Entertaining is rarely lavish, and invitations into private homes remain uncommon. Lunch, dinner, or after-work drinks are standard formats, but trust builds slowly. Even in relaxed settings, formality around address and familiarity persists until the relationship warrants otherwise. Use these occasions to listen for what people complain about, who they praise, and what they joke about. That subtext offers more practical guidance for collaboration than any agenda discussed in the office.

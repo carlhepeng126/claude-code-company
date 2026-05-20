@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Efficiency shapes how Americans approach initial contact. The assumption is that everyone's time is limited and should be used productively. That means appointments are made well in advance, confirmed the day before, and expected to start and finish on time. A late arrival or last-minute cancellation risks being read as disorganized or disinterested, even if the reason itself is valid. The standard working week runs Monday to Friday, typically nine to five, though many professionals work longer hours. Senior people may only have availability early in the morning or after the formal workday ends, and that early or late slot may be the only one on offer.
-
-Punctuality reflects respect for the other person's schedule. Turning up late, even by ten minutes, can undermine credibility before the conversation begins. For someone from a culture where relationships are built before appointments are locked in, this precision can feel transactional. An American colleague working in such a context may find the pace slow or the lack of fixed timing frustrating, while their counterpart may see American scheduling as rigid or impersonal.
-
-Meetings tend to have a clear purpose, stated upfront. Ambiguity about why you're meeting or what outcome you're aiming for can leave the other person unsure whether to invest time. Follow-up is expected. A brief email after the meeting, summarizing next steps or thanking the person for their time, reinforces professionalism and keeps momentum going. Business relationships can develop quickly once the initial meeting proves productive, but the first interaction is assessed on clarity, preparation, and respect for the clock.

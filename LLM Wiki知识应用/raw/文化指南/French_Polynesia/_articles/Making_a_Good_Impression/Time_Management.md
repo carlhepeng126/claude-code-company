@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in French Polynesia operates through a rhythm shaped by Polynesian island life, where relationships and natural cycles take precedence over the clock. This approach reflects a worldview in which human connection and the present moment hold more weight than rigid schedules. Punctuality exists, but it bends around people. A meeting that starts twenty minutes late is not a disruption; it allows space for the greetings, catching up, and social acknowledgment that make the work itself possible.
-
-The degree of flexibility depends on context. In tourism-facing businesses and larger private-sector organizations with international ties, schedules are more predictable and deadlines respected in line with client expectations. In smaller local businesses, public sector offices, and family-run enterprises, timing remains more fluid. A promised delivery date may shift without prior warning, not from carelessness but because another priority surfaced, often a relational one. Decisions and actions unfold when the conditions feel right, not simply because the calendar says so.
-
-For colleagues from cultures where time is tightly managed and delays are seen as unprofessional, this fluidity can read as disorganization or lack of commitment. From a French Polynesian perspective, the reverse can also be true: a colleague who refuses to adjust a timeline for a personal matter, or who interrupts conversation to return to an agenda, may come across as rigid or dismissive of people. The difference lies not in respect for work, but in what gets prioritized when timing must shift. Building in buffer time and confirming plans closer to the date will help manage expectations on both sides.

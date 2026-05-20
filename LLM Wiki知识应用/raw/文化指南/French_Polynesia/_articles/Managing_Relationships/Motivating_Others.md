@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-In French Polynesia, people invest themselves when they feel valued as whole people, with lives rooted in family, community, and the natural rhythms of island living. Work is important, but it does not define identity in the way it might elsewhere. A manager who recognizes this, who acknowledges someone's contribution while respecting their ties beyond the office, will see deeper commitment than one who focuses solely on targets or productivity. Recognition works best when it is personal and spoken directly, ideally in a one-on-one setting or within a small group where trust is already present.
-
-Financial incentives have their place, but they rarely drive sustained effort on their own. What tends to spark more lasting engagement is a sense of belonging and the opportunity to contribute in a way that feels meaningful within the team. Public praise, especially if it singles someone out in front of others who were not involved, can feel uncomfortable or even divisive. A quiet word of thanks, or an invitation to take on a visible responsibility, often resonates more deeply.
-
-Rigid deadlines and formal performance structures can feel disconnected from how time and relationships actually work here. Life moves at a different pace, shaped by family obligations, community events, and the understanding that not everything can or should be rushed. Managers who build flexibility into their expectations, and who check in on progress through conversation rather than tracking systems, are more likely to maintain momentum without creating friction. In sectors with strong ties to France or international operations, younger professionals may respond to opportunities for training or secondment, but even then, the pull of home and family remains strong.

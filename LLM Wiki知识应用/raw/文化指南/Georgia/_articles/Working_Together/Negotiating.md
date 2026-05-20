@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiations in Georgia often begin slowly, with time spent on personal connection before formal terms are discussed. This reflects a relational culture where trust is built through repeated interaction, not assumed at first contact. If you move too quickly to price or contract language, your counterpart may hold back, uncertain whether you are committed to more than a one-off transaction. Spending time over meals or in conversation before the substance of the deal is raised is not delay, it is the first stage of the negotiation itself.
-
-Once discussions begin, expect the process to be less linear than in cultures where each point is closed before moving to the next. A topic you thought was settled may resurface later, or the conversation may shift suddenly to a seemingly unrelated detail. This circular rhythm allows both sides to test ideas, check for alignment, and leave room for flexibility. It also means that early agreements should not be treated as final until everything has been signed. If you are working with a counterpart accustomed to sequential decision-making, this can feel like backtracking. From a Georgian perspective, locking down terms before the full picture is clear risks missing what could make the partnership work.
-
-Bargaining is expected and should not be interpreted as distrust. Leaving room for concessions is standard practice. Presenting your best offer at the outset can limit movement later and may even suggest inflexibility. The negotiation itself is part of building confidence that both sides are willing to adjust and invest in the relationship over time.

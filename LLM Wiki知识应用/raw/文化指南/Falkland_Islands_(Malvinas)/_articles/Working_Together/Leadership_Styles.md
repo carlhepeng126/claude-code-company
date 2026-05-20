@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in the Falkland Islands reflects the pragmatic informality of a small, close-knit community where most people know each other and hierarchies are flattened by necessity. Leaders tend to be approachable and grounded, often making decisions in consultation with those who will be affected, not out of formality but because local knowledge and buy-in matter in a place where isolation and interdependence shape daily life. Titles exist, but they rarely create distance. A manager in Stanley might be seen at the West Store or the Narrows Bar, and that everyday visibility discourages hierarchical posturing.
-
-Decision-making can appear slow or consensus-driven to newcomers, particularly those from cultures where leaders are expected to decide quickly and communicate top-down. What looks like hesitation is often careful coordination across a workforce that doubles as a neighbor, a fellow volunteer, or someone whose opinion will be needed again next week. Leaders who push through decisions without informal soundings risk friction that lingers in such a small social circle. In return, a colleague from the Falklands working in a more hierarchical environment may find centralized decision-making impersonal or alienating, especially if input is sought only symbolically.
-
-Authority is earned through competence and reliability, not asserted through rank. Leaders who roll up their sleeves and contribute visibly alongside their teams gain respect more readily than those who rely on formal position alone. This expectation is especially strong in sectors like farming, logistics, and public services, where practical skill and shared effort are prized.

@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Seating arrangements reveal who holds real influence in Cambodian meetings. The most senior person typically sits centrally, with others arranged by rank. Even when a younger colleague speaks better English or handles the technical detail, the elder in the central chair often makes the final call. Watch who stays quiet but is closely observed by others in the room — deference to rank runs deep, and authority flows from seniority and patronage networks, not necessarily from the person doing the talking.
-
-Staff are socialized from an early age to listen to their *bong* (older sibling or senior) and to their boss, not to challenge or debate openly. A participatory workshop style that invites input from all levels may be met with silence — not because people have no views, but because speaking up in front of seniors feels risky. In cultures where voicing disagreement in real time is expected, this quietness can be mistaken for disengagement. From a Cambodian perspective, a colleague who debates a senior openly in the meeting may seem disrespectful or unaware of the relational cost. Use smaller breakout groups or one-to-one conversations afterward to hear what people actually think.
-
-In government or larger companies, the meeting itself may be a formality. Decisions are sometimes shaped in advance through private conversations between senior figures or patrons, and the visible discussion is about announcing or ritualizing what has already been agreed. Ask diplomatically whether the day's session is about exploring options or confirming a direction that's largely set. That distinction will help you read the room and avoid pushing for debate where none is expected.

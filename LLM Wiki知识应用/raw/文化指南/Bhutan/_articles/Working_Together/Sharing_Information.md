@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information flows carefully in Bhutan, shaped by deep respect for hierarchy and the Buddhist principle of avoiding harm. People share selectively, especially upward. Junior colleagues rarely volunteer bad news or disagree openly with senior figures, not out of dishonesty but from a genuine wish to preserve harmony and avoid causing discomfort. This reflects the cultural emphasis on right speech, one of the cornerstones of Buddhist practice, which values words that are true, kind, and beneficial. If sharing a problem might embarrass a superior or create tension in the group, it may be softened or delayed until the right moment arises.
-
-Within teams, information often circulates informally rather than through formal channels. Trust develops through shared experience and relationship, not job title alone. A colleague from a culture where transparency is expected across all levels may find this frustrating, wondering why updates arrive late or indirectly. From a Bhutanese perspective, a colleague who pushes for immediate disclosure or escalates issues bluntly may seem insensitive to the relational fabric that holds the workplace together. Building trust first means sharing will follow more naturally.
-
-Patience and consistency matter more than pressing for openness. Regular, informal contact, checking in without demanding answers, and showing discretion when concerns are raised all encourage colleagues to share more freely over time. Creating space for quieter voices in meetings, asking open questions rather than yes-or-no ones, and following up privately afterward can also draw out information that might not surface in a group setting.

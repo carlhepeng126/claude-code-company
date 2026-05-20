@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-In Spanish workplaces, people are energized by the sense that their work contributes to something shared — a team, a project, a collective goal. Individual achievement means less if it comes at the expense of others or disrupts group harmony. Pride in creativity, resilience and community runs deep, and framing tasks around team success rather than solo accomplishment typically sparks stronger commitment. When a manager links someone's contribution to the broader purpose of the group, that recognition resonates far more than highlighting individual superiority.
-
-Public recognition carries real motivational power, especially when it is sincere and specific. Spaniards respond well to praise given openly in front of colleagues, and acknowledgment that takes the form of personal interest — asking about wellbeing, remembering family commitments, sharing lunch — builds the kind of trust that sustains effort over time. A good personal relationship with a direct manager is often more motivating than a formal bonus scheme. Meanwhile, differential treatment without transparent justification can create lasting resentment. Fairness and equality are deeply valued, so rewards that appear arbitrary or linked to privilege rather than merit can undermine morale across the team.
-
-Respect for personal and family life is central. Quality of life, time at home and the ability to maintain boundaries around work hours are strong motivators, particularly in a culture where job security remains a genuine concern and temporary contracts are common. Pushing for overtime or rigid adherence to deadlines that cut into personal time rarely increases engagement. Instead, offering career development opportunities, meaningful work and the autonomy to balance commitments will motivate more effectively than pressure.

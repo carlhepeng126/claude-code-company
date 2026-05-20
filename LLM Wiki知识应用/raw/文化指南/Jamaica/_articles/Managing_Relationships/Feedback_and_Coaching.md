@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In Jamaica, feedback is a dignity moment. Disrespect is a serious social charge, and corrective comments that embarrass or talk down to someone can damage trust quickly. This is especially true in workplaces where people's reputations extend beyond the office into community networks. Public correction turns feedback into a social performance, and being shown up in front of others can harden resistance even when the content is valid. A manager from a culture where directness is prized might deliver a critique efficiently in a team meeting, assuming transparency builds accountability. A Jamaican colleague may hear the same comment as an attack on their standing, and respond with withdrawal or defensiveness. From the Jamaican side, a manager who corrects privately and frames feedback as partnership rather than judgment may be seen by that same colleague as overly cautious or unwilling to address issues head-on.
-
-Directness can work in Jamaica if it feels fair, specific, and grounded in care rather than superiority. The line is often tone. Corrective feedback doesn't have to be softened into vagueness, but it does need to avoid sounding clipped, superior, or overly corporate. Warmth in delivery protects the relationship while the message lands. Give corrective feedback privately, and use future-focused framing rather than labels that imply judgment about character or capability.
-
-Coaching through story and example often resonates strongly. Jamaican communication values narrative, so feedback that draws on lived scenarios or demonstrates what good performance looks like can teach without creating shame. Praise publicly when appropriate. It builds trust and motivation, and reinforces the relational foundation that makes harder conversations possible later.

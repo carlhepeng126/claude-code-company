@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Czech colleagues follow a quiet rule: look neat, but don't look like you're trying too hard. Clean, practical clothing that draws no special attention makes the right impression. Loud logos, flashy watches, or big luxury signalling will be read as insecurity rather than success. What stands out here is the absence of show, not the presence of elegance. This preference reflects a broader cultural distrust of ostentation, rooted in decades of socialism when visible wealth was suspect, followed by a post-1989 period when sudden displays of prosperity often felt gauche. Today, the expectation is simple: dress as though you take the meeting seriously, but don't make your outfit the subject of it.
-
-The setting shapes what's appropriate. In Prague offices, ministries, or banks, men wear shirts and trousers, often with a blazer, and women choose tailored blouses, skirts, or pantsuits. Around automotive and engineering plants, you'll see PPE and practical wear on site, and tidy-but-simple clothes in offices. Nobody expects a three-piece suit on the shop floor, but they do expect you to respect safety rules and not turn up in designer sneakers. If your role includes plant visits, sensible shoes and a practical sense of dress will go further than polished leather.
-
-Many Czech colleagues maintain two wardrobes. In town, they dress neatly. At the cottage or tramping in the countryside on weekends, they wear old T-shirts and worn hiking trousers. If you're invited to a chata or a hike, bring real outdoor gear, not corporate-branded "team building" costumes. Fitting into that world builds a different kind of trust, one that matters as much as any boardroom impression.

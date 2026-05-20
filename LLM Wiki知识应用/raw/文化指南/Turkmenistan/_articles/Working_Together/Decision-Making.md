@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Turkmenistan are shaped by a political and social environment where centralized authority dominates public and professional life. The president holds near-absolute power, and this concentration at the top flows through institutions, state enterprises, and many private organizations. Managers in Turkmenistan often defer major decisions upward, waiting for direction or approval from those higher in the hierarchy. This reflects both formal structure and a protective instinct: making a decision independently can expose someone to risk if the outcome is questioned later. As a result, even relatively routine choices may require sign-off from senior figures, and timelines extend accordingly.
-
-In this context, consultation happens selectively and quietly. Managers may seek input from trusted colleagues or family members before finalizing a position, but this tends to occur informally and behind the scenes. Public disagreement with a senior leader or an established decision is rare. The goal is to align with authority while managing personal and relational risk. For a colleague used to distributed decision-making or transparent debate, this can feel opaque or slow. From a Turkmen perspective, the same colleague's willingness to decide quickly without clear higher-level endorsement may seem reckless or politically naïve.
-
-If you are working with a Turkmen counterpart, assume that timelines will reflect the need for internal clearance, often through channels you will not see. Press for a decision too early and you may receive silence or a polite deferral. Instead, clarify who holds final authority and build trust with the person navigating that approval process. Patience here is not a virtue but a practical necessity.

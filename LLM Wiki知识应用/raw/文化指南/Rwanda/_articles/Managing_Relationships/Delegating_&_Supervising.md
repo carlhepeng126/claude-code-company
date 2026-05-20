@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Delegation in Rwanda functions through structured, hands-on supervision rather than autonomy. Managers are expected to provide clear direction, follow up regularly, and stay involved in how tasks are progressing. This reflects both Rwanda's strong performance culture, shaped by the *Imihigo* system of public commitments and accountability introduced in 2006, and older values of communal responsibility embedded in concepts like *Umuganda* (communal work). A manager who sets clear goals, monitors progress, and ensures commitments are met is fulfilling the role well. What might read as micromanagement in a culture where independence is preferred is experienced here as responsible leadership.
-
-The relationship between manager and employee has a parental quality. A good manager is expected to guide, protect, and show genuine care for their team, not just assign tasks. This means asking about family, taking interest in people's lives, and creating stability within the team. Titles and formal address are used consistently, especially by those lower in the hierarchy, and this deference is not ceremonial but reflects real respect for seniority. Once a team is established and functioning well, keeping it stable allows the relational bonds that form to become a genuine organizational strength.
-
-Employees typically wait for direction and rarely act independently without approval. Communication is indirect, and silence often signals discomfort rather than agreement. A colleague from a culture where concerns are raised openly in meetings may interpret this as passive or disengaged, while Rwandan employees may view direct challenges to authority as disrespectful or unsafe. Managers need to create private, one-on-one structures to surface concerns, since problems will not be raised in group settings or openly to superiors.

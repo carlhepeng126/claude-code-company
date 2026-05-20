@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Anguilla tends to be personable and approachable rather than formally distant, reflecting the small scale of the island and the reality that professional relationships often overlap with family or social ones. Managers are expected to make decisions and set direction, but they rarely do so from behind a desk. A leader who stays visible, checks in regularly, and takes time to hear what's happening on the ground earns more trust than one who issues instructions remotely. This style reflects the broader cultural value placed on treating people as individuals, not just roles.
-
-That informality should not be mistaken for a lack of structure. Decision-making authority still rests with those in senior positions, and managers are expected to take responsibility for outcomes. What shifts is the manner in which authority is exercised. A manager from a culture where decisions are announced without prior discussion may be seen as out of touch or disconnected, while someone from Anguilla might read a more distant leadership style as impersonal or cold. The expectation is not that decisions will always be made collectively, but that leaders will stay connected to the people carrying out the work.
-
-Younger professionals and those in sectors with more international exposure may expect slightly more involvement in planning or problem-solving, particularly where they bring relevant expertise. Even so, consultation is more often about staying informed and building alignment than about sharing decision-making equally. Leaders who remain accessible and explain their reasoning tend to build loyalty more effectively than those who rely solely on position.

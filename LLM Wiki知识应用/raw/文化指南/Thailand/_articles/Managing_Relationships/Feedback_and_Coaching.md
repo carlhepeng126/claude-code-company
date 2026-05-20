@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Correction in Thailand is about dignity, not just accuracy. Because face and social standing are central to how people understand themselves in relation to others, pointing out a mistake can feel like exposing someone rather than helping them. The concern is less about being wrong and more about being seen to be wrong, especially in front of peers or juniors. This means feedback that feels blunt or public can land as social harm, even when the intent is supportive. A manager who corrects someone directly in a meeting, for instance, may believe they are being efficient, but the person receiving the feedback may experience it as a loss of standing that is difficult to recover from.
-
-Kreng jai, the concern about inconveniencing or disappointing others, also shapes what people feel able to admit. If someone is struggling but worries that saying so will burden a senior colleague or reveal a gap in their capability, they may soften the truth, delay disclosure, or frame the issue in a way that minimizes its weight. Coaching tends to be more effective when it creates explicit permission to be honest without fear of embarrassment. Asking "What would make this easier?" rather than "Why didn't you finish this?" shifts the tone from evaluation to problem-solving and makes it safer to surface real constraints.
-
-Mentoring that feels protective builds deeper loyalty than performance critique alone. When a senior figure advocates for someone, guides them through difficulty, or helps safeguard their reputation, it creates a relational debt known as bunkhun. This kind of support is remembered and reciprocated over time. Feedback framed as guidance rather than judgment, delivered privately and calmly, and focused on future improvement rather than past error, is more likely to be received as care than criticism.

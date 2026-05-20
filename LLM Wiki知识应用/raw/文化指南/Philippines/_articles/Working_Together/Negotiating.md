@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Reciprocity in Filipino negotiations runs deeper than deal-making logic. *Utang na loob* describes a moral obligation created by meaningful help, one that extends well beyond the table. When a counterpart offers a concession, it may be felt less as a tactical move and more as a gesture that creates relational debt. This means framing your proposal in mutuality language—what's fair for both sides, what builds trust over time—can feel more credible than focusing only on price or terms. A colleague from a culture where negotiations are framed as zero-sum contests may read this reciprocity as inefficiency or emotional entanglement, while a Filipino counterpart may see a purely transactional approach as cold or even untrustworthy.
-
-Refusals are rarely delivered bluntly. The combined influence of *hiya* (concern for face) and *pakikisama* (maintaining smooth relations) means pushback is often softened, redirected, or expressed through silence. A yes in the meeting may turn into a qualified maybe afterward. Rather than forcing a direct answer, confirm gently: "Would an alternative work better for your side?" This gives room for face-saving recalibration without the embarrassment of a public refusal.
-
-Credibility is built through relational consistency, not just technical competence. Who knows your counterpart, where they come from, and how you've behaved over time all shape whether you're seen as legitimate. Punctual follow-through, calm tone, and visible gratitude matter more than aggressive opening offers. Leave space for concessions that won't weaken your position, because bargaining is expected and understood as a collaborative route to fairness, not a sign of distrust.

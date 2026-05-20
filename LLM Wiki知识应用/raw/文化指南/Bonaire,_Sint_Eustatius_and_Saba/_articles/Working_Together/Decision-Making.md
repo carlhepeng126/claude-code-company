@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Bonaire, Sint Eustatius and Saba are shaped by the territory's small scale and the closeness of social and professional networks. On each island, most people know one another, and professional roles often overlap with family ties and long-standing community relationships. This means that decisions are rarely seen as purely technical or individual. They are understood to have social consequences that extend beyond the workplace, and decision-makers are aware that choices may affect people they live alongside, worship with, or see in the village. As a result, consultation is common, even when formal authority is clear.
-
-Leaders typically hold recognized authority and have the final say, but they will often seek input from trusted colleagues, community members, or family before committing to a decision. This consultation is informal and relational rather than procedural. It allows the decision-maker to gauge how a choice will be received, to avoid conflict, and to ensure the outcome fits within the social fabric of the island. The goal is not to dilute authority but to combine it with relational awareness, so that decisions are both respected and socially sustainable.
-
-For colleagues accustomed to rapid decision-making, this process may feel slow or indirect. From a local perspective, however, it reflects responsibility rather than hesitation. A decision made without adequate consultation may be technically sound but socially problematic, and the decision-maker may be held accountable for the relational disruption it causes. If you are waiting for a decision, recognize that the delay may reflect the need to consult quietly across networks. Pressing for speed can be read as disregarding the social implications of the choice, which may make the decision-maker more cautious, not less.

@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decision-making in Spain reflects a blend of hierarchy and debate. Senior leaders typically retain final authority, but input from colleagues is genuinely valued before a conclusion is reached. This means that although decisions rest at the top, the process leading up to them often involves open discussion and challenge. Spaniards tend to engage directly with ideas, questioning proposals and testing options through conversation. This exchange is a form of participation, and it allows people to express expertise, refine thinking, and build collective understanding before a direction is set.
-
-The willingness to debate does not mean consensus is the goal. Once a senior figure decides, the decision holds. But the path to that decision may be more relational and consultative than it first appears. Informal conversations outside formal meetings can influence outcomes as much as what is said in the room. Off-the-record exchanges help sound out opinion, test reactions, and build alignment. For a colleague from a culture where decisions are made quickly and formally, this can feel slow or unclear. From a Spanish perspective, a decision reached without sufficient discussion or relational groundwork may seem rushed or poorly informed.
-
-Regional and sector variation exists. Some settings favour faster decision-making, while others place greater emphasis on thorough dialogue. In practice, this means timelines can vary depending on context, and it is worth confirming early on who makes the final call and what steps come before it. Providing well-structured recommendations backed by evidence supports the process, and allowing time for reflection reduces the risk of resistance. Building relationships outside formal decision points strengthens your influence when it comes time to contribute.

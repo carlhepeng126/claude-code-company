@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Authority in Jordan is deeply personal. The Bedouin tradition of consulting elders and the Hashemite model of dynastic, morally grounded leadership shape expectations of what a manager should be: someone who guides, protects, and makes final decisions while maintaining the loyalty of those they lead. Managers who build genuine relationships with their teams and invest time in knowing people beyond the work itself will find that loyalty runs deep. A team member who trusts their manager will often go to considerable lengths on their behalf. Managed impersonally through formal structures alone, that same person may do the minimum required.
-
-Decision-making authority is rarely delegated, even to middle managers in traditional companies. Major decisions move upward, and junior staff do not expect autonomy in their roles. This reflects both a concentrated leadership model and the reality that personal networks, or *wasta*, often determine how decisions are made and implemented. Understanding whose relationships operate where is frequently more useful than understanding the formal org chart. A manager working in Jordan should expect to provide clear, specific direction and to stay closely involved in how tasks unfold, particularly around deadlines.
-
-Feedback must always be delivered privately. Public correction damages *sharaf* (honor) and will rarely be forgotten. Even constructive guidance is best framed gently and in a way that preserves the person's dignity. Addressing feedback to a group rather than singling out an individual is common practice, as it allows the message to be heard without public embarrassment. A manager from a culture where direct feedback is expected may read this as evasion, while a Jordanian colleague may read blunt correction as disrespectful and damaging to the relationship.

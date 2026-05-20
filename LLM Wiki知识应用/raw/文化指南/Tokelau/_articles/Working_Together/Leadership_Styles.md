@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Tokelau's leadership model flows directly from its communal governance structure. Each of the three atolls operates as a largely autonomous unit, led by an elected *faipule* (village head) and *pulenuku* (village mayor). These roles are not about individual authority or top-down command. They exist to guide consensus, facilitate discussion, and hold collective decisions once they are made. Leadership means being entrusted with the task of bringing people together, not directing them from above.
-
-This same principle extends into professional settings. A manager from Tokelau is more likely to convene a group discussion than to issue instructions unilaterally. Decisions are often reached through extended consultation, where every voice is invited and given time. A colleague from a culture where decisions are made quickly by a senior person may perceive this as slow or unclear. From the Tokelau perspective, bypassing consultation and deciding alone risks undermining trust and fracturing the group. If you are leading or working alongside Tokelauan colleagues, expect decisions to emerge from dialogue rather than directive, and recognize that the process of reaching agreement is itself a form of leadership.
-
-Elders also hold informal influence, particularly in community-rooted organizations or government roles. Their guidance is sought not because of a title, but because of accumulated knowledge and standing. This means that formal org charts may not always reveal where influence actually sits. Taking time to understand who is consulted before decisions are finalized will clarify how authority really operates.

@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Israeli teams move fast and speak up. The startup model, where everyone is working on something that could break through, shapes how people collaborate even in more traditional sectors. Trust forms through doing things together rather than through formal team-building exercises or structured bonding activities. People contribute directly, challenge openly, and expect their ideas to be assessed on merit rather than on seniority or role. A colleague from a culture where team harmony depends on deferring to the most senior voice may find this style abrasive or undisciplined. From the Israeli side, the same colleague's reluctance to challenge a decision openly may read as disengagement or lack of conviction.
-
-The phrase "we are all in this together" has weight rooted in survival. Collective solidarity under pressure is genuine and shapes how teams operate. People expect to support each other when circumstances demand it, and that solidarity translates into shared accountability and mutual backup during difficult phases of a project. The workplace is still seen as an extension of the family in many settings, with colleagues treated accordingly. But this does not mean hierarchy disappears. Individual initiative is encouraged, and people expect space to make decisions and act on them without needing constant approval.
-
-Israelis compete with other teams to reach goals, and incentive programs are common. But within the team, the expectation is collaborative rather than deferential. Everyone is expected to contribute, and the best idea should win regardless of who proposed it. A management style that suppresses debate or treats the team as a group of executors will lose engagement quickly. Teams with Israeli members need room to argue, iterate, and refine ideas in real time, not just implement instructions handed down from above.

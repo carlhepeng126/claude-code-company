@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Greeting and receiving a guest are treated as moral acts in Liberia. The host shows respect through attention and generosity; the guest honors the host by receiving warmly and with gratitude. How you respond to being welcomed often says as much about your respect for the relationship as the words you use. When you visit someone's home or are hosted at a restaurant, understand that the invitation itself is an expression of care, and the host has taken responsibility for your comfort. If a colleague invites you out, expect them to cover the meal. You should reciprocate in turn. Between colleagues going out informally, the bill will usually be split.
-
-Many homes and community gatherings follow an implicit order based on age, gender, or household position. Who is greeted first, who speaks first, and who is served first all reflect hierarchy without making it a performance. Watch for these cues and let the host guide the rhythm. In a home setting, arriving close to the agreed time is appreciated, but showing up exactly on time can feel abrupt. Bringing a gift such as wine or dessert acknowledges the host's effort. The host typically remains seated once the meal begins, having already laid out the food.
-
-The palava hut tradition, rooted in community-based resolution, reflects a broader cultural logic that relationships can be restored through talk and acknowledgment. This means small social missteps are rarely final. If you arrive late, forget a courtesy, or misread a cue, a genuine apology and warm follow-through will usually repair the moment. In settings where Poro or Sande institutions remain culturally significant, approach certain topics with care. Some conversations belong to community insiders or need the right intermediary, and these boundaries should be respected rather than pressed.

@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-British decision-making often moves through a slow consultative phase before suddenly accelerating. From school governors to NHS trusts to corporate boardrooms, committees are everywhere. Decisions typically emerge from layers of working groups, steering groups, and boards. This structure spreads both risk and accountability, and it reflects a cultural preference for building quiet consensus before committing publicly. A colleague from a culture where decisions are made quickly may read this as bureaucratic delay, while a British manager may read rapid decision-making without broad consultation as reckless or politically naïve. If you are co-leading a decision, allow time for your UK counterpart to run internal consultations and equip stakeholders with clear narratives that address reputational concerns.
-
-Leaders constantly read what they call the "mood music": media reaction, staff morale, union views, sometimes party political implications. Even commercial decisions can be framed in these terms. Someone may tell you privately "I'm convinced" while remaining publicly cautious until the timing and optics feel right. This reflects a cultural sensitivity to how decisions will be received, not indecision. When working with UK colleagues, discuss reputational angles explicitly. Asking "How would this look on the front page?" is not alarmist; it is part of the risk calculus.
-
-Once a decision is announced, the expectation is that it holds. Constantly reopening a settled question can feel flaky or undermine credibility. If progress feels stuck, ask what evidence or reassurances the relevant committees need to move forward, rather than pushing for speed. Skepticism runs deep, so overly optimistic framing or hard-sell tactics will be met with suspicion. Openly naming risks or pitfalls is respected, not seen as negativity.

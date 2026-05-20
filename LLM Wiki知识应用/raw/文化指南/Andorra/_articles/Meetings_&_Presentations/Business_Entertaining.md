@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Andorra typically happens in a low-key, informal way. The country's small size and tight-knit business community mean that meals together serve less as formal events and more as natural extensions of working relationships. You might be invited to lunch at a mountain restaurant or dinner at a local spot in one of the parishes, often in settings where Catalan is spoken and the pace is unhurried. These gatherings are chances to get to know someone beyond the office, but they rarely feel ceremonial.
-
-Conversation tends to range widely and may not turn to business at all. Andorrans generally keep a clear line between professional matters and social time, and pushing too quickly toward work topics during a meal can feel forced. A colleague from a culture where meals are used to close deals or advance negotiations may read this restraint as evasiveness, while someone from Andorra might find an overly transactional approach uncomfortable or even off-putting. Letting the host steer the direction of conversation shows respect for that boundary.
-
-Alcohol is present but not prominent. Wine or beer may be offered, especially in ski season or tourist-facing venues, but drinking culture is moderate. Follow your host's lead rather than ordering first. Reciprocating an invitation, either during your visit or when your counterpart travels, is valued and helps maintain balance in the relationship. Andorra's business culture runs on mutual regard, and a thoughtfully returned gesture reinforces that you understand how things work.

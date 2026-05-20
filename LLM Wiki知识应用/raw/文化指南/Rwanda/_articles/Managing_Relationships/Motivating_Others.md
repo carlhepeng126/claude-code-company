@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Rwandans respond strongly to being trusted and treated as capable. Agaciro, the cultural concept of dignity and self-worth, runs through how people engage with work. When a manager delegates meaningfully and shows confidence in someone's ability, it affirms their standing. Recognition works best when it is specific, sincere, and composed, not inflated or overly public. A quiet word of thanks after a difficult week, or acknowledgment of someone's contribution in a team meeting, can strengthen commitment more reliably than a big announcement that singles someone out in ways that might unsettle others.
-
-Work becomes more engaging when people see it as part of shared progress. The tradition of Umuganda, monthly community work days, and Ubudehe, cooperative self-help efforts, reflect a deep cultural practice of contributing to collective improvement. In professional settings, framing tasks as strengthening the team, the organization, or the country's development can tap into that same sense of meaning. Younger professionals, especially in Kigali's growing business environment, also respond to opportunities for training and skills development. A company that invests in people's growth is seen as a good employer.
-
-Fairness also drives motivation. People notice when treatment is inconsistent or when rewards seem arbitrary. Performance reviews that lead to merit increases or promotions are becoming more common, particularly in larger organizations, and they work because they are transparent. A manager from a setting where individual achievement is loudly celebrated might find Rwanda's more collective, measured approach understated. From a Rwandan perspective, that quieter style protects cohesion and respects humility, while still recognizing real contribution.

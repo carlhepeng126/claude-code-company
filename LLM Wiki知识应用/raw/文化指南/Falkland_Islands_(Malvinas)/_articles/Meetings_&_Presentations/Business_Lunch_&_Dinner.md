@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in the Falklands are generally low-key and pragmatic. The local dining scene is small, shaped by the Islands' geography and the close-knit nature of the community. Most business lunches happen at one of the handful of cafés or pubs in Stanley, or occasionally at a hotel restaurant. The atmosphere is relaxed, and formality is kept to a minimum. Meals are a chance to get to know someone rather than seal a deal, and conversations often drift toward local life, farming, weather, or recent community events before returning to business.
-
-Expect hearty, British-influenced food. Lamb is common, given the Islands' sheep farming heritage, and fish appears frequently on menus. Portions tend to be generous, and the style is straightforward rather than elaborate. Alcohol may be offered, especially at dinner, but it's not assumed. If you're hosting, it's worth checking preferences beforehand. Dietary restrictions are accommodated where possible, but choices may be limited given the small scale of local suppliers and the reliance on imported goods.
-
-Timing is usually efficient. Lunch might last an hour, and dinner rarely stretches late into the evening. People have work to return to, and the rhythm reflects a community where most know each other and see little need for prolonged formality. If you're used to cultures where business meals involve multiple courses and extended relationship-building, the brevity here may feel abrupt. From a Falklands perspective, a long, formal meal can seem unnecessary when trust is built through consistency and directness over time, not through elaborate dining.

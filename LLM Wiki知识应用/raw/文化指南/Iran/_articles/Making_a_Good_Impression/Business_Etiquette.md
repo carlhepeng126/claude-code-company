@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Iranian business etiquette is structured around two intertwined codes: *ta'arof* (ritual politeness) and *aberu* (personal honour and reputation). *Ta'arof* governs much of what is said and offered in professional life. A colleague may insist on paying for lunch, downplay a problem as "nothing," or offer extravagant help. These gestures are part of a social script designed to show generosity and deference, and they are rarely meant to be taken at face value. The appropriate response is to gently resist once or twice before accepting, or to quietly confirm the intent by asking, "Are you sure? It's no trouble if I contribute." Taking the first offer literally can leave you appearing naive, while rejecting it outright can feel abrupt.
-
-*Aberu* shapes how disagreement and feedback are handled. Publicly challenging a colleague, especially a senior one, damages their reputation and reflects poorly on yours. Critique is softened, wrapped in polite language, or moved to a one-on-one setting. Meetings are often choreographed to avoid overt loss of face, so decisions may be implied rather than announced, and dissent expressed through silence or a shift in tone rather than direct refusal. A colleague from a culture where disagreement is voiced openly in group settings may read this as evasion, while an Iranian counterpart may perceive blunt feedback in a meeting as aggressive or disrespectful.
-
-Formality varies by rank and familiarity. With seniors, tone remains deferential and indirect. Among peers, warmth, humour, and even teasing emerge quickly once trust is established. People may also shift between public and private personas. What is said in a formal meeting may differ sharply from what is shared in a quieter moment over tea. Real insight often comes in these off-the-record exchanges, so allow space for them and listen for what is left unsaid.

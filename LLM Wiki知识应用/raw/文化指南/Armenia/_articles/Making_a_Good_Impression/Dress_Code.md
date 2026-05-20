@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Armenians often use appearance as a way to show seriousness and respect in professional life. How someone dresses tends to be read as a statement about how much they value the relationship, especially in first meetings or formal settings. A colleague arriving in a well-tailored suit or a polished outfit communicates that they take the meeting, and you, seriously. This expectation runs through most traditional sectors and government settings, where men typically wear dark suits and women choose business suits, dresses, or smart separates. The overall tone is conservative and put-together rather than showy.
-
-The standard shifts by sector and generation. In younger industries like tech or creative fields, business casual is more common, though even here the approach stays deliberate. People tend to dress with intention rather than defaulting to casual comfort. What might feel relaxed in one context can still look considered and coordinated. Someone from a culture where jeans and trainers are acceptable office wear might misread this as overly formal, while an Armenian colleague visiting a more casual workplace abroad might wonder if the meeting holds the same weight.
-
-Evening events and dinners call for a step up in formality. In good restaurants or at cultural occasions, guests dress smartly, and your host will likely arrive looking sharp. Matching that effort helps you fit the setting and shows awareness of the social moment. If the occasion moves into religious or cultural spaces, such as a visit to an Armenian Apostolic church, modesty becomes important. Covered shoulders, skirts below the knee, and avoiding shorts all signal respect for the setting and the people welcoming you in.

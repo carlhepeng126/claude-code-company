@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-In sectors like coffee or livestock, many Ethiopian suppliers see themselves as custodians of regional prestige, not just vendors. A washing-station owner in Yirgacheffe or a cooperative in Sidama defends a local reputation built over generations. A late payment or a poorly negotiated deal is read as disrespect to the area and the lineage it represents, not merely a commercial setback. Approach these relationships as partnerships where your conduct reflects on the supplier's standing at home, and treat agreements with the formality and care that recognizes what is at stake.
-
-Logistics in Ethiopia run on networks of long-established relationships between brokers, truck owners, customs officials and corridor intermediaries. These are not inefficiencies to bypass, they are the infrastructure that makes movement possible across difficult terrain and unpredictable conditions. Trying to replace these relationships abruptly with new systems or outsiders will often stall the very operations you hoped to speed up. Instead, identify who actually makes trucks arrive and goods clear, and invest in fair, sustained ties with those people.
-
-Rural customers and suppliers watch closely how you behave when things go wrong. When seeds fail, roads wash out or projects stall, they remember who came back, who acknowledged the problem, who offered fair compensation, and who disappeared. That memory shapes willingness to collaborate again more than any contract term or pitch. Show up during setbacks, be transparent about what went wrong, and follow through on commitments. In Ethiopia, your real reputation is built not in success but in how you handle failure.

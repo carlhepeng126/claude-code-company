@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Serbian workplaces moves through two parallel channels: formal hierarchies that concentrate knowledge at the top, and informal networks where news travels quickly through conversation and relationship. Decisions are often made by senior leaders without sharing the full rationale downward, even with teams directly involved in carrying them out. This reflects a concentrated decision-making structure where seniority determines access, and knowledge itself can be seen as a form of authority. Yet alongside this official restraint, Serbians share freely in trusted settings. Colleagues exchange updates, observations, and context with each other, and the business community's relatively small size means that word moves fast once it enters the informal circuit.
-
-The gap between these two flows creates a practical challenge for international managers. Expecting full transparency through official channels may leave you waiting. Building relationships across levels and spending time in the semi-formal spaces where people talk openly will keep you better informed than relying on formal cascades alone. Serbians value narrative as much as data. When sharing information, offer both the facts and the story of why it matters. This approach mirrors a cultural comfort with memory and meaning as legitimate forms of knowledge, rooted in a long tradition of oral storytelling.
-
-The setting also shapes what gets said. Sensitive updates or difficult news often land better when delivered in a relational way, not simply broadcast. A colleague working in a culture where all information is shared openly and immediately might read Serbian discretion as withholding. From the Serbian side, that same openness can feel blunt or naïve, missing the care required to handle information responsibly.

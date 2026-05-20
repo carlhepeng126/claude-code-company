@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In ministry offices across Baghdad and Basra, dress is formal but practical. Men typically wear suits or long-sleeved shirts, women opt for modest dresses or abayas, and many women wear headscarves. The formality reflects the seriousness of the engagement, and modesty meets both religious expectation and social norm. In Kurdistan Region of Iraq offices, style leans slightly more relaxed and Western-influenced, but remains professional. In rural or tribal settings, expectations shift toward traditional dress, and what works in Erbil may stand out sharply in a southern village. If you're planning field visits to shrines, rural communities, or IDP camps, ask your local partners ahead of time what will be seen as respectful, not just safe.
-
-How you present yourself when moving through checkpoints or mixed public spaces affects how you're perceived and the attention you attract. Overtly flashy clothing or accessories can be read as a sign of wealth or affiliation, increasing risk. Extremely casual dress, by contrast, can suggest a lack of seriousness or professionalism. The goal is to be low-profile and appropriate to the setting, which in most professional contexts means formal and modest.
-
-Traditional dress such as dishdasha, tribal robes, or Kurdish outfits may appear at ceremonies or be worn by elders. These are not decorative choices. They signal status, regional identity, and sometimes political or peshmerga history. Avoid clothing or accessories that could be mistaken for political or militia symbolism, including certain colors, badges, camouflage, or tactical gear. In a context where affiliation is constantly assessed, what you wear can be read as a statement, whether you intend it or not.

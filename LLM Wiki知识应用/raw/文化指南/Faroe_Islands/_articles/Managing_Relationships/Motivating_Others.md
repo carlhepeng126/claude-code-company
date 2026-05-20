@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Faroese employees respond most strongly to recognition that acknowledges their contribution to something tangible and collective. In a society where people know each other across professional and personal contexts, and where individual success reflects on family and community standing, motivation grows when someone feels they have genuinely added value to a shared outcome. A manager who thanks a team member by name for solving a specific problem, or who makes sure their input is credited in front of others, taps into a deeply rooted sense of duty and belonging. Public acknowledgment reinforces reputation in a way that matters beyond the workplace.
-
-Financial incentives are expected and appreciated, but they rarely drive sustained effort on their own. What tends to energize people more reliably is the feeling that their work is respected and that the manager sees them as a person, not just a role. In small, interdependent workplaces where relationships extend beyond office hours, a leader who remembers a colleague's family situation or checks in after a difficult week builds trust that translates into commitment. Formal performance bonuses matter less than the sense that effort will be noticed and valued in a human way.
-
-Motivation can falter quickly when expectations feel detached from Faroese realities. Tight deadlines imposed without consultation, or targets that ignore weather disruptions, family responsibilities, or the rhythm of island life, tend to create distance rather than drive. People are more likely to go the extra mile when they understand why the work matters and when timelines are set collaboratively, with room for the flexibility that daily life here often requires.

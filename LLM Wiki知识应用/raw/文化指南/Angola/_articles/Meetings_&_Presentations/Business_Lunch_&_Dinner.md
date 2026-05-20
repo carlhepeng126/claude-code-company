@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-In Luanda, a business lunch is rarely just a meal. Who sits where, who receives an invitation and who does not, and what gets said away from the office can all shape working relationships as decisively as any signed agreement. Sharing grilled fish on Ilha de Luanda with a senior partner sends a different message than meeting in a hotel restaurant, and both differ again from sitting on plastic chairs at a roadside stall. Colleagues recognize these distinctions quickly, reading them as markers of hierarchy, trust, and how serious the relationship is expected to become.
-
-Sensitive topics are often approached sideways. A colleague may tell a story about a deal in Huambo, make an offhand joke about "certain people," or recount an anecdote that seems unrelated but holds a quiet warning or a test. These indirect openings allow issues around contracts, land, or political connections to surface without the directness that could force a position too soon or create awkwardness if the topic is unwelcome. For someone from a culture where concerns are raised explicitly and early, this can feel opaque. From an Angolan perspective, a colleague who pushes for clarity before the relationship supports it may seem impolite or unaware of how trust works.
-
-What is discussed over food can later be treated as part of the understanding, even if nothing was written down. The setting you choose for hosting matters. A slightly less formal venue may encourage more candid conversation than a stiff dining room. Listen carefully to shifts in tone and to stories that seem tangential. They may be the only place where real concerns are shared.

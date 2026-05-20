@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Ghanaian professional life runs on a foundation of relationship, and greetings reflect that. Asking "How is the family?" or "How was the weekend?" before opening a contract or proposal shows that you recognize the person across from you, not just the transaction. Many Ghanaians expect this rhythm. A colleague who leads immediately with business risks coming across as cold or transactional, a signal that the relationship has no value beyond what can be extracted from it. Ghanaian colleagues might interpret this as rudeness or mistrust, while someone from a culture where meetings begin with agenda points might read the same opening conversation as slow or unfocused. Building five to ten minutes into every meeting for this kind of genuine check-in prevents that disconnect.
-
-Hierarchy operates clearly in Ghana, even when the atmosphere feels warm. Offices may include laughter, nicknames, and a radio in the background, but there is still deference to rank. A junior colleague may joke easily with a director yet wait for that director's final word on a decision. That blend can feel confusing to someone expecting formality to announce itself through tone or titles. Noticing who others defer to, who closes a meeting, or whose opinion shifts the room will clarify how authority moves, even when it's wrapped in friendliness.
-
-Religion shapes the workday openly. Morning devotions, prayers before events, and phrases like "By God's grace" in formal remarks are common. Faith is not compartmentalized from professional life in many Ghanaian workplaces. For colleagues unfamiliar with this, the presence of religious expression may feel unexpected. Responding with neutral, polite respect keeps the relationship intact, even if your own practice differs.

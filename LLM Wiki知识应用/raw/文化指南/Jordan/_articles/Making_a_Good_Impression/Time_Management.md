@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Jordan's working week follows a Sunday to Thursday schedule. Government departments, offices, and banks commonly close on Fridays and Saturdays, when prayer and family rhythms take precedence. This means a meeting proposed for Friday afternoon will likely founder unless you are working with a multinational or a particular private-sector firm that operates six days. Align your planning around this institutional rhythm, and confirm availability before assuming a full five-day overlap with colleagues elsewhere.
-
-Ramadan reshapes the tempo of the working day, but unevenly. Public-sector hours are often adjusted by directive, while private-sector schedules vary and may not be legally required to change. Energy and pace can drop during fasting hours, and meetings scheduled for mid-afternoon may feel slower or shorter than usual. Build buffer into your timeline during this month and confirm hours gently rather than assume continuity.
-
-Time in Jordan also bends for obligations that hold social and moral weight. A colleague may need to attend a funeral, fulfil a family commitment, or respond to a wedding invitation at short notice. These are not discretionary, and declining them can affect standing in ways that a work meeting does not. If scheduling feels elastic, it is often because another obligation has entered the frame. A manager from a culture where calendars are rarely rescheduled might read this as unreliability, while a Jordanian colleague may see rigid calendar adherence in the face of a condolence visit as cold. Both are applying their own logic to time.

@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Meals in Peru are where relationships deepen, and food itself is treated as a marker of cultural pride and regional identity. Peruvians hold their cuisine in high regard, particularly the growing international recognition of dishes like ceviche, which UNESCO has inscribed as part of the country's cultural heritage. Choosing to share a meal is a deliberate act of connection, and the setting, ingredients, and pacing all say something about the person hosting. Treating the meal as simply a venue for business will feel transactional. Let the host set the rhythm and show genuine interest in what is offered. Asking about a dish or its regional origin will usually be welcomed.
-
-Business lunches are the main setting for discussing work, and they tend to be long, often running from early afternoon until 3:00 or 4:00 p.m. Dinner, by contrast, is almost always social. It may begin at 10:00 p.m. or later, and spouses or partners are often included. The evening may extend to a bar or dancing afterward. A colleague from a culture where meals are shorter and more task-focused may read the length as inefficient. From a Peruvian perspective, a rushed meal suggests the relationship is secondary to the transaction.
-
-Regional pride runs deep, and what is served often reflects where someone is from. Coastal, Andean, and Amazonian food traditions differ in ingredients, preparation, and meaning. Peruvians can be particular about where they eat, especially in Lima, where many of the best-regarded restaurants are located in Miraflores and San Isidro. Ask your business contacts for recommendations rather than choosing on your own, and be ready to try local specialties like ceviche and Pisco Sours.

@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Bulgarians often agree in principle but stretch timelines in practice. The phrase *sega, sega malchko* ("now, just a little later") reflects this pattern: agreement is genuine, but systems, bureaucracy, and competing priorities delay execution. When someone says "we'll do it now," clarify whether that means today, this week, or "in the next period." Set explicit checkpoints rather than assume a shared understanding of urgency.
-
-Many Bulgarians maintain family villages and gardens, even if they live in Sofia or other cities. Spring planting, autumn harvest, and wood cutting are real time commitments, especially for older colleagues and those outside the capital. These obligations rarely appear in calendars but shape availability just as much as any formal meeting. Sudden demands that ignore these realities can build quiet resentment, even if colleagues say nothing directly.
-
-Anything involving municipalities, courts, permits, or state enterprises often moves significantly slower than private sector work. Bulgarian colleagues frequently pad timelines because they already know where files will sit, where signatures will be delayed, or when key people will disappear on sudden leave. For projects touching the state, build extra time into your plan and expect your Bulgarian partners to have better insight into where bottlenecks will emerge than any external schedule suggests. Decisions can also stretch when people want to consult colleagues or avoid taking personal responsibility for outcomes, a reflex that persists in some government offices. If the reason for a deadline isn't clear, it's less likely to be met.

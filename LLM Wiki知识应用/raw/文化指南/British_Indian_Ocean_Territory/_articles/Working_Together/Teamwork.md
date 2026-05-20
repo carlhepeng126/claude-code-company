@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-The British Indian Ocean Territory has no indigenous population and no conventional workplace. The only personnel present are military staff, contractors, and support workers operating on Diego Garcia under U.S. and U.K. authority. Teamwork in this context is shaped entirely by the institutional frameworks and national cultures these individuals bring with them, not by any local tradition or cultural norm.
-
-Collaboration unfolds within highly structured military and logistical operations, where roles are clearly defined and chains of command are explicit. Teams typically comprise American military personnel, British liaison staff, and contractors from a range of countries, often working under time-limited rotations. Because there is no permanent civilian community, relationships remain functional and task-focused. Trust develops through professional competence and adherence to protocol rather than through shared social history or local rapport.
-
-Cross-cultural dynamics emerge from the mix of national backgrounds, not from interaction with a host culture. An American servicemember and a British contractor may interpret directness, urgency, or informal communication differently, but these differences are managed within the institutional norms of their respective organizations. There is no local cultural logic to navigate, no regional variation to consider, and no generational or urban-rural divide. The territory itself offers no cultural anchor for teamwork. What collaboration exists is transient, institutional, and shaped entirely by the cultures people carry with them.

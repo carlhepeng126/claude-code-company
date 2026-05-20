@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Cohesion in Lithuanian teams often forms through quiet coordination rather than high-energy bonding. The cultural aesthetic runs deep: sutartinės, Lithuania's polyphonic folk songs, are built on interlocking parts and disciplined timing, where harmony emerges from structure and synchrony, not individual flourish. The choral tradition, still a mass-participation experience across the country, reinforces this. People rehearse, repeat, and refine together over time. That builds an embodied sense that group cohesion is earned through preparation and reliability, not constant verbal affirmation. A colleague from a culture where teams bond through frequent praise or social rituals may read Lithuanian restraint as distance. A Lithuanian colleague, in turn, may find overt team-building exercises performative when trust is built through steadiness across projects, not moments.
-
-Accountability in Lithuania is often sticky. The social fabric runs through hometowns, family places, and long-term circles, and reputation accumulates over seasons. This shapes how people show up in teams: dependability matters more than visibility. Managers who acknowledge work without lavish praise, and who remember small gestures like marking a birthday with cake, align with this logic. Teams do celebrate together, and friendships form, but the foundation is shared effort and mutual reliance, not enforced enthusiasm.
-
-One team may hold multiple micro-worlds. Vilnius' layered capital life, Kaunas' interwar civic pride, the Vilnius region's borderland bilingualism, and places like Visaginas, a Soviet-planned town with strong Russian-speaking identity, can sit in one room with very different default registers. Recognizing these internal variations, and giving space for them to surface without needing to flatten into one voice, strengthens rather than complicates collaboration.

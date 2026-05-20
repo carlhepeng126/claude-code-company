@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Ecuador's approach to workplace dress reflects the broader cultural value placed on personal dignity and social respect. How you present yourself is seen as part of how seriously you take the professional relationship. In government offices, banking, law, and established sectors, formal business attire is standard: dark suits for men, tailored suits or dresses for women. In these settings, arriving well dressed shows that you recognise the weight of the occasion and the people involved.
-
-Younger industries and startups, particularly in Quito and Guayaquil, lean toward business casual, though even here the standard tends to be more polished than in many tech hubs elsewhere. A button-down shirt or blouse with trousers is more common than jeans and trainers. The shift is less about relaxation and more about adapting formality to context while maintaining a baseline of care. Regional variation exists too. Coastal cities like Guayaquil tend to be slightly more relaxed in dress, while the highland capital, Quito, skews more conservative and formal, especially in public and professional institutions.
-
-Colleagues from cultures where casual dress is framed as egalitarian may read Ecuador's formality as stiff or overly hierarchical. From an Ecuadorian perspective, the reverse can feel careless, as though the visitor hasn't taken the time to understand what the meeting represents. For international professionals working in Ecuador, matching the level of formality your counterparts bring to the room is a straightforward way to signal engagement and respect. If you're uncertain, err on the side of more formal, particularly in initial meetings or when working with senior figures or government representatives.

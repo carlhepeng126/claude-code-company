@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Taiwan's education system trains people to process dense material and extract structure from complexity. Audiences expect logical flow, clear organization, and well-supported arguments. This doesn't mean minimalist slides or oversimplified messaging. A presentation that skips detail or rushes through evidence may read as incomplete or poorly researched. People are used to studying comprehensive materials and won't find depth intimidating. What does frustrate is clutter or unclear sequencing. Each slide should have a purpose, and transitions between ideas should be easy to follow.
-
-Data and empirical evidence matter, particularly in technical, engineering, or public-sector settings. Assertions without backing may be received politely but won't move decisions forward. At the same time, audiences respond to narrative. Taiwan sits at the intersection of high-tech communication and a culture rich in symbolism and storytelling. A case study or humanizing example woven into a technical proposal can help ideas land without sacrificing rigor. Avoid anything that feels like a hard sell. Modesty in delivery is expected. Outlining what your organization has achieved is fine, but framing it as reliability rather than superiority will resonate more. 
-
-Questions may come at the end or not at all in the room itself. Some colleagues, especially in hierarchical or formal contexts, will wait to ask privately rather than risk appearing unclear in front of others. Build in time afterward to speak one-on-one, and don't assume silence means agreement. Where your audience includes both older and younger professionals, adjust tone carefully. Younger colleagues, especially those in creative or digital fields, will appreciate visual care and aesthetic attention alongside substance. Bilingual materials, even just slide headers in Mandarin, signal effort and respect.

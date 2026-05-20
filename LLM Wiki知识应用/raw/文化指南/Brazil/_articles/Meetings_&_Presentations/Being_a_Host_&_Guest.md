@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Brazil reflects deep-rooted values of generosity and inclusion, shaped by Indigenous and Afro-Brazilian traditions that treated guests with honor and made them part of the group. Religious and moral frameworks further reinforce this, framing warmth toward visitors as a virtue. The result is a professional culture where making people feel welcome is both expected and genuinely felt. Whether hosting in a home, restaurant, or office, the aim is to create comfort, not just courtesy.
-
-As a host, attentiveness to your guests' needs builds strong goodwill. This might include offering refreshments, ensuring introductions are made, and taking time to include people in conversation rather than moving quickly to the agenda. Meals can extend well beyond two hours, and business may only be raised once rapport has been established. If hosting a social event, suggesting guests bring food or drink can feel transactional rather than generous. Guests often arrive later than the stated time, and the event may continue late into the night, so avoid indicating an end time. Acknowledging senior colleagues or clients first when greeting or thanking aligns with local norms.
-
-As a guest, showing appreciation verbally and with a small token or follow-up message is valued. Accepting at least something when refreshments are offered fits politeness expectations. Arriving, conducting business, and leaving quickly can come across as disinterest. A colleague from a culture where meetings are kept brief and social elements minimal may read this extended interaction as inefficient, while Brazilian counterparts may read a hurried departure as coldness or dismissal.

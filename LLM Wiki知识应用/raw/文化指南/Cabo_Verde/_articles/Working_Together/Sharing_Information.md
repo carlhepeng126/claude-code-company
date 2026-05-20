@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-In Cabo Verde, information flows most readily through trusted personal networks rather than formal channels. Relationships come first. Colleagues may hold back details in early interactions, not out of secrecy but because trust develops through repeated contact and demonstrated reliability. This caution reflects the small-scale, interconnected nature of Cabo Verdean society, where reputation travels quickly and missteps can affect relationships across professional and personal spheres. Once a relationship is established, sharing becomes more direct and generous, but the initial reserve protects people from overcommitting before they know how the information will be used or respected.
-
-Within organizations, knowledge often stays concentrated in specific teams or individuals rather than circulating broadly across departments. This stems partly from hierarchical norms, where information is seen as something to be shared vertically rather than laterally, and partly from a preference for avoiding public mistakes or exposing gaps that might reflect poorly on a colleague or unit. A manager accustomed to open cross-functional collaboration may find it hard to get updates without directly approaching the person who holds the detail. A Cabo Verdean colleague, meanwhile, may wonder why someone would share widely before consulting the relevant supervisor or confirming the accuracy of what they know.
-
-Building open exchange requires consistency over time. Colleagues respond well to leaders who treat errors as opportunities to learn rather than occasions for blame, and who invest in informal contact, such as shared meals or casual conversations, where trust can grow naturally. Reciprocity also plays a role. Sharing your own information first, especially when it involves vulnerability or useful insight, signals goodwill and often encourages others to do the same.

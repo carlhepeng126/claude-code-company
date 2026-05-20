@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Costa Ricans generally prefer to resolve disagreements quietly, through indirect channels rather than open confrontation. This reflects a broader cultural commitment to harmony and calm. Loud arguments or public challenges are seen as disruptive and unnecessary, and people will often use back-channel conversations, gradual distancing, or mediation by a trusted colleague or manager to address tensions. A colleague from a culture where directness and rapid escalation are valued might interpret this as avoidance or indecision. From a Costa Rican perspective, the same colleague's approach may look needlessly aggressive and likely to damage the relationship beyond repair. If you need to address a disagreement, arrange a private conversation rather than raising the issue in a meeting, and frame the problem as something you can solve together rather than assigning blame.
-
-Protecting someone's dignity is central to how conflict is managed. Publicly criticising or embarrassing a colleague, especially in front of others, will be remembered and is likely to lead to quiet disengagement or resistance. Even in private, focus on the behaviour or situation rather than questioning someone's character or competence. Taking on part of the responsibility yourself, even if the issue lies elsewhere, helps to soften the exchange and keeps the conversation constructive.
-
-Regional tensions sometimes surface in workplace disputes, particularly when colleagues from San José interact with those from Limón or rural areas, or when organisations work with indigenous communities. These tensions reflect historical inequalities and a perception that centralised institutions have overlooked or undervalued people outside the capital. In these situations, acknowledge the asymmetry and demonstrate that you are willing to listen and adjust, rather than impose a solution from the top down.

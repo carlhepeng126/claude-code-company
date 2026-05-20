@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Mozambique's workplace reflects two distinct influences: nearly five centuries of Portuguese colonial rule, followed by a civil war lasting until 1992, created a formal, top-down administrative culture where steep hierarchy and caution are deeply embedded. At the same time, Ubuntu, the Southern African philosophy of shared humanity, shapes leadership at a more personal level. The manager is expected to demonstrate care and genuine interest in the wellbeing of those they lead, not simply allocate tasks. When this happens, it earns loyalty that no directive alone can produce. Build the relationship first. Personal investment in team members makes the difference between compliance and real commitment.
-
-Communication is indirect and conflict-avoidant, shaped by Ubuntu's emphasis on harmony and Portuguese-influenced formality. Employees are accustomed to receiving direction rather than contributing to decisions, and will rarely surface concerns unless real trust has been established. Do not mistake silence or polite agreement for understanding. Create regular, private opportunities for concerns to emerge, framed as support rather than surveillance. Roles tend to be clearly defined and delegation is standard, but deadlines may need reinforcement given a more flexible relationship with time.
-
-All corrective feedback belongs in private and must be delivered with care for dignity. Public criticism disrupts group harmony and will cause someone to withdraw from future participation. Even when an idea will not work, respond with tact. Respect the formal chain of command and the significance of titles, particularly in traditional sectors. Age and experience command real respect, and questioning a senior leader's judgment openly is rare.

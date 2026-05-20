@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Cameroon blends formal hierarchy with relational warmth. Leaders are expected to embody authority but also demonstrate care for their team, a duality rooted in both the post-independence political model and the intergenerational respect embedded in family and community life. A manager who makes decisions unilaterally without prior relationship-building or visible concern for team welfare may be seen as cold or disconnected, even if technically competent. Conversely, a leader who invites too much open debate without first establishing their own position may appear uncertain or weak. The skill lies in being both present and directive.
-
-Consultation happens, but often after the leader has already shaped the direction. Input is welcomed more to refine than to reverse, and this is understood implicitly by most team members. A colleague from a culture where decisions are made quickly and directly may see this as unnecessary delay or symbolic rather than real involvement. From the Cameroonian side, rushing to a decision without this conversational stage can feel abrupt and disrespectful, as though people's voices and dignity were bypassed.
-
-Regional and generational differences do surface. Urban professionals, especially those in international firms or the private sector, may adopt more participative approaches, particularly when working with younger or externally trained teams. In more traditional or public sector settings, and in rural contexts, hierarchy remains more pronounced and leadership less openly questioned. Gender also plays a role: women in leadership may still need to work harder to establish authority, particularly in male-dominated sectors or regions where patriarchal norms remain strong. Recognizing these variations means adjusting tone and process depending on setting, sector, and the individuals involved.

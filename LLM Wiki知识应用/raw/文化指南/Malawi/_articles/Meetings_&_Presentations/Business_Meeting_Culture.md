@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-In Malawi, meetings begin with recognition before work. Extended greetings, inquiries about health and family, and often checks on community wellbeing are part of the relational reset that frames the gathering inside a moral logic of care and mutual regard. This reflects the country's national self-image of warmth and hospitality, and it serves a practical function: people establish where they stand with each other before they open the agenda. Rushing this phase to reach tasks can unsettle the frame. Give this opening its time, especially in first meetings or with senior figures.
-
-Authority in the room is read through multiple channels. Formal title is one of them, but so are age, community standing, and lineage legitimacy. In areas influenced by Chewa matrilineal tradition, the maternal uncle may hold social weight that a colleague from a culture where authority flows through patrilineal lines might miss. When mapping who needs to approve or influence a decision, look beyond the org chart and ask quietly who else should be consulted. A colleague from a culture where decisions are made quickly in the room may interpret this as slowness, while a Malawian counterpart may read a fast decision as isolated from the social fabric that must support it.
-
-Public talk and inside talk are distinct categories. Not everything is shared openly, and the bounded-knowledge tradition of institutions like Nyau reinforces a wider intuition that sensitive issues are handled in quieter, smaller channels. If a point involves face, disagreement, or difficult detail, raising it in the full group can stall progress. Address it outside the formal meeting instead. Story, analogy, and lived example carry legitimacy in ways shaped by oral storytelling traditions. Lead with concrete illustration rather than abstract claims, and expect the same in return.

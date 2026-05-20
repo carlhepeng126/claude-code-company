@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Croatia are often shaped by a quiet, relational process that happens before any formal meeting. Many Croatian professionals will sound out a small circle of trusted people first: a respected colleague, a well-connected board member, someone who lived through the last crisis. This happens because networks are tight and reputation matters locally. When someone says "I'll get back to you," it usually means they need to consult their circle, not that they're stalling. If you're pushing for a quick answer, you may be asking them to commit before they've done the groundwork that protects them socially and professionally.
-
-Risk aversion runs deep, especially among those who lived through the war in the 1990s, the 2008 financial crisis, and more recently COVID-19. Decisions that could threaten jobs or damage a local reputation are approached with caution. Croatian counterparts will often weigh worst-case scenarios more heavily than upside potential. When you present a proposal, include a clear analysis of the downsides and how you plan to reduce them. Showing that you've thought through the bad years, not just the good ones, builds confidence.
-
-Regional and political context also shapes how decisions unfold. Local leaders must balance expectations from Zagreb, compliance with EU rules, and the mood of their own communities. They may agree to something in principle but move slowly in practice if they sense pushback at home. In regional projects, it helps to invest time with local councils, chambers, and civic groups. A signature in the capital does not always translate smoothly into local action. Ask early on who else needs to be involved, and respect that the decision may need to travel through layers you don't immediately see.

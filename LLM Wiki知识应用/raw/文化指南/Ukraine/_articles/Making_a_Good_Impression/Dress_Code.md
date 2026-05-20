@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional appearance in Ukraine is understood as a form of seriousness and self-respect. Formal dress historically signified respect for others, and while styles have modernized, the principle remains. Neatness and presentability shape how colleagues and partners assess your commitment. If you show up in a business setting looking careless, it may read as a lack of regard for the occasion and the people involved. Polished, classic attire such as suits and structured outfits makes the right impression. Even in creative or tech sectors where smart casual is acceptable, clothing should feel coordinated and intentional.
-
-Understated elegance is valued more than extravagance. Urban centers like Kyiv, Lviv and Odesa reflect strong European fashion influences, with professionals dressing stylishly but rarely ostentatiously. Detail matters: shoes should be clean, grooming should be neat, and cuts should be tailored. For someone coming from a workplace where jeans and sneakers signal approachability, this level of formality can feel rigid at first. But from a Ukrainian perspective, dressing well shows that you take the work seriously and that the relationship is worth the effort.
-
-Regional and sector differences shape expectations. Traditional industries and government offices still default to dark suits and formal tailoring, while younger sectors allow more flexibility. But even in looser environments, appearance is considered. In rural communities, modesty and practicality take priority over style, though presentation still reflects respect. If you are meeting someone outside the capital or in a more conservative setting, err toward formality until the tone is clear.

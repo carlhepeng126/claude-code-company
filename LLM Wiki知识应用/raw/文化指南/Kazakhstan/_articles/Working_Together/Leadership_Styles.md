@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership credibility in Kazakhstan draws on multiple sources, and the interplay between them is more subtle than formal hierarchy alone would suggest. While title and position establish authority, influence often depends on something quieter: the presence of what is sometimes called *aqsaqal* energy (moral authority, literally "elder" or "white beard"), a quality rooted in steadiness, restraint, and being seen as someone who protects the group's dignity. The most influential figure in a room may not be the most vocal. Watch instead for who others quietly defer to, and you'll often find someone who leads through character as much as rank.
-
-Stewardship is proven through care. Just as hosts demonstrate worth through generosity and responsibility, leaders earn loyalty by shielding the team, helping people save face, and ensuring the group is not embarrassed in front of others. This means correcting in private and defending in public. A manager who publicly criticizes a team member, even if technically justified, risks losing the trust of the whole group. Conversely, a leader who shows visible fairness and protects people's reputations will often secure deeper, longer-term commitment than one who relies solely on formal control.
-
-Technical credibility also holds weight, particularly in institutional settings shaped by Soviet education norms. Knowing your material, presenting clear logic, and demonstrating that you've done the work all function as legitimacy signals. A colleague from a culture where presence and vision are prioritized over preparation may underestimate how much command of detail contributes to leadership standing in Kazakhstan. From the Kazakh side, a leader who speaks confidently but vaguely may be quietly judged as unprepared or unserious.

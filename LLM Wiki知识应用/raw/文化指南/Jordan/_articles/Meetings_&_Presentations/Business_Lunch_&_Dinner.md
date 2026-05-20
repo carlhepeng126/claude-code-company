@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-In Jordan, sharing a meal moves someone from formal contact to known person. Eating together is where people observe manners, humility, and generosity, and where trust begins to take shape. The meal itself becomes a form of moral exchange: the host demonstrates honor through abundance and insistence, and the guest reciprocates through visible enjoyment, specific praise, and gratitude. This is togetherness inside structure. Even when everyone eats from a communal platter, the order of invitation, who begins, and how elders are treated all reflect an internal hierarchy that runs quietly through the occasion.
-
-The ritual becomes especially visible in traditional settings or when mansaf (seasoned lamb in yogurt sauce, served over rice) appears at the table. The dish itself performs belonging, rooted in Bedouin heritage and often eaten from a shared platter. A colleague from a culture where business meals stay task-focused may find the lack of agenda disorienting. From a Jordanian perspective, forcing commercial conversation too early can feel transactional and may undercut the very trust the meal is meant to build. Follow the host's lead on pace and when serious talk begins, if at all.
-
-Setting shapes expectation. A meal in a modern Amman restaurant may feel globalized and lightly structured. A meal in a home or traditional venue often comes with stronger ritual codes around participation, deference, and the rhythm of courses. During Ramadan, iftar invitations take on extra meaning as moments of religious observance and social bonding, and the evening world shifts later with different energy and pacing. Calibrate your participation to the context, accept what is offered warmly, and recognize that the meal is doing relational work that a signed agreement cannot.

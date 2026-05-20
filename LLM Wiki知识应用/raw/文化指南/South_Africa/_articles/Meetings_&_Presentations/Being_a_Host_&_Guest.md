@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hosting in South Africa often reflects ubuntu, a widely recognized moral framework that frames personhood as relational. This means offering care through tangible acts: making sure people are comfortable, anticipating needs, and acknowledging each person with warmth. Greeting properly establishes harmony and shows respect, especially when elders or senior colleagues are present. A guest who rushes past the greeting or treats it as procedural risks undermining the relational foundation before the interaction even begins. As a host, protecting the dignity of newcomers or outsiders through thoughtful attention is expected, not ceremonial.
-
-South Africa's religious and cultural diversity shapes what feels appropriate around food, alcohol, and timing. Faith traditions including Christianity (among them African Initiated Churches), Islam, Hinduism, and Judaism all have a visible presence, and assumptions about what people eat or drink can create awkwardness or offense. Ask quietly and early about dietary or religious preferences, and avoid pressuring participation in drinking or late-night plans. South Africans frequently drink alcohol, and local wines and brandies are a source of pride, but insisting on imported equivalents can feel dismissive.
-
-Home is not a neutral space. Because history and inequality remain present in everyday life, entering someone's home or hosting in yours can surface questions of identity, class, and safety. If politics, race, or inequality comes up, let the host set the tone. Listen more than you lecture, and avoid treating these topics as abstract when they are lived realities for the people in the room.

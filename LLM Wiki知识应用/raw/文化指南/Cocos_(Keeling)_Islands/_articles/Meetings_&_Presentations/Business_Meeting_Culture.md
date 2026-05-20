@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-The Cocos (Keeling) Islands has no formal business sector in the conventional sense. With a population of under 600 people spread across two atolls, most economic activity revolves around government services, small-scale tourism, and cooperative structures tied to the Malay community. The Australian federal government remains the largest employer. Meetings in this context are shaped by community familiarity, where participants often already know one another through kinship, local governance, or shared involvement in island life. Formality is minimal, and the pace is shaped by practical constraints rather than corporate schedules.
-
-When meetings do take place, particularly those involving external parties such as government representatives from the Australian mainland or development agencies, expect a relaxed approach to timing and structure. Agendas may be loose, and conversations can shift toward community concerns or logistical realities such as supply delays or weather disruptions. For those accustomed to tightly scheduled corporate environments, this can feel unstructured. But the flexibility reflects a context where decisions depend on broader consensus and where relationships outweigh process. Pressing for immediate outcomes or strict adherence to timelines can come across as disconnected from the way things actually get done.
-
-If you are meeting with representatives of the Malay community, particularly elders or those involved in cooperative decision-making, allow time for introductions and background discussion. Decisions are rarely made in isolation, and what seems like a simple administrative matter may involve consultation across family or community lines. Recognizing this collective dimension, rather than expecting individual authority, will help you navigate the meeting more effectively.

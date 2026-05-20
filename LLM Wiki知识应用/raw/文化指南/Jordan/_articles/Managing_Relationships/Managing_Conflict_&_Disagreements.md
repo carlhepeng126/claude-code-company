@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Disagreement in Jordan becomes a different problem once it has witnesses. A technical dispute handled quietly may never escalate, but the same issue raised in front of colleagues can harden positions quickly. The risk at that point is less about the original point of contention and more about public standing. A colleague from a culture where open debate is expected may raise a challenge in a meeting to speed things along, assuming directness will resolve the matter. From a Jordanian perspective, this can look like an intentional affront. In return, what a Jordanian colleague sees as appropriate restraint or careful phrasing may be read as evasion or unwillingness to engage. Keep serious disagreements private. If tension has surfaced publicly, do not try to resolve it in the same setting.
-
-When conflict does arise, the instinct is often to create distance before attempting resolution. This follows a recognizable pattern: cool the situation first, then work toward repair. Suggesting a later conversation or involving a third party reflects this logic. It allows both sides to step back without admitting fault in the moment. For a manager used to addressing issues immediately, this can feel like delay. But cooling time is often what makes resolution possible without loss of face.
-
-Bringing in a senior colleague or respected intermediary can reopen a stalled situation. This person provides a way for both sides to move forward without either appearing to back down. The involvement of a third party is a practical tool, especially when hierarchy or family ties complicate direct exchange.

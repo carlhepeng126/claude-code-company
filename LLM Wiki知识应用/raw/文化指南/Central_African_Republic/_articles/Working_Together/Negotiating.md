@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiating in the Central African Republic starts with relationship. A conversation may begin with questions about your trip, greetings for mutual contacts, or shared tea before any mention of terms. This opening phase builds the personal connection that makes the rest possible. Trust comes first, and your counterpart will assess whether you see the relationship as something ongoing or transactional. If you move straight to price or clauses, you risk signaling that the partnership ends when the contract is signed.
-
-The process itself may move slowly and circle back. A point you thought was settled may reopen days later, or a discussion about logistics may pause while someone consults a senior figure or respected elder. This reflects both the value placed on collective input and the instinct to test your flexibility. What looks like hesitation to a colleague from a culture where decisions are made quickly may actually be careful calibration. From the Central African perspective, a foreign counterpart who presses for closure too early may seem unreliable or overly focused on short-term gain.
-
-Leave room to negotiate. Presenting your final offer at the start removes the give-and-take that allows both sides to feel the outcome is fair. Your counterpart will expect concessions, and offering them shows respect for the relationship. If the pace slows further, it may be strategic, a signal that more is expected before an agreement is reached. Patience here is not only polite but practical. It keeps the door open for a partnership that will continue beyond the first deal.

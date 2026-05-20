@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Cabo Verde, the approach to forms of address reflects the country's position between Portuguese colonial formality and the more relaxed, relational style of island life. Professional titles such as "Doutor" (Doctor) or "Engenheiro" (Engineer) are used with respect, particularly when addressing someone senior or in a first meeting, and paired with the last name until the person indicates otherwise. This reflects a culture where education and professional achievement are highly valued, and where acknowledging someone's status helps establish the relationship on the right footing.
-
-That said, Cabo Verde is generally less rigid than formal Portuguese business culture. Once a working relationship is established, first names often come into use more quickly than in many other Lusophone contexts. The shift happens organically, usually signaled by the senior person or the host, and it reflects the broader Cabo Verdean tendency to blend respect with warmth. Jumping to first names too early, especially with someone older or more senior, can feel presumptuous. Waiting for the other person to invite informality shows you understand the balance between courtesy and connection.
-
-In written communication, formal openings such as "Estimado Senhor" or "Estimada Senhora" are expected in initial emails or letters, with closings like "Com os melhores cumprimentos" (With best regards). Even as relationships develop, maintaining a degree of formality in writing is advisable, particularly in government or more traditional sectors. A colleague from a culture where email tone shifts rapidly to casual may find this sustained formality slow to change, while a Cabo Verdean counterpart may read an overly informal approach as lacking seriousness or respect for the professional relationship.

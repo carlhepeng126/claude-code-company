@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Business relationships in the Bahamas begin with warmth, not formality. A handshake is customary, but the tone is relaxed rather than stiff. First-name use comes early, even across levels, and meetings often open with casual conversation about family, the weather, or recent events. This informality reflects a broader cultural preference for connection over protocol. For professionals from environments where formality signals respect, this can feel disarmingly casual. But in the Bahamas, it's the ease of the exchange that builds trust, not the structure around it. Skipping this early rapport to move straight into business can come across as distant or transactional.
-
-Dress codes reflect this same balance. In Nassau and Freeport, business attire leans toward smart casual, especially given the tropical climate. A collared shirt and dress pants are standard for men, while women might wear a light dress or skirt. Ties and jackets are rare outside formal settings like banking or law. On the Out Islands, where the pace is slower and communities smaller, expectations are even more relaxed. What matters is that you look presentable and respect the setting, not that you wear a suit.
-
-Punctuality is flexible, shaped by a rhythm that values people over schedules. A meeting starting ten or fifteen minutes late isn't seen as unprofessional. It's simply how things unfold. Colleagues from cultures where meetings begin precisely at the stated time may read this as disorganization. From the Bahamian side, rigid adherence to the clock without room for conversation can feel impersonal or rushed. Building in buffer time and treating delays as part of the process, rather than an exception, makes collaboration smoother.

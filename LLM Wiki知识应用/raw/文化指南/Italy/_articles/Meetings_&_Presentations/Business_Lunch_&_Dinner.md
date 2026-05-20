@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Italian business meals follow a layered structure that reflects the country's deep attachment to food as culture and identity. Expect antipasti, a first course (often pasta), a second course, dessert, and coffee, sometimes with liqueur. Each stage invites conversation, and the pace is deliberately unhurried. Regions bring their own character to the table: seafood along the coasts, rich meats and wines in the north, pasta and vegetable specialties in the centre and south. Quality ingredients and local recipes are a source of pride, and the meal itself is treated as an experience worth savoring, not simply fuel or backdrop.
-
-Meals are prime occasions for building rapport and understanding counterparts as people, not just professionals. Conversations typically range across family, culture, and light work topics, with weightier negotiations kept separate from the table. Going straight to numbers or contracts can feel tone-deaf. Let the host signal how much business to discuss. The meal is about deepening connection, and rushing through courses or pushing too quickly toward decisions can undermine trust rather than advance it.
-
-Showing interest in local dishes and letting the host recommend demonstrates respect for their expertise and judgment. If you have dietary needs, share them in advance. Menus are often pre-ordered to impress, and a last-minute restriction can disrupt careful planning. Wine and water are served with both lunch and dinner, and wine is meant to be sipped slowly. Drinking too much or appearing inebriated is read as poor judgment and a lack of self-control, qualities that extend beyond the meal itself.

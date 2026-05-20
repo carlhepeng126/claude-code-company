@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decision-making in the Falkland Islands reflects the realities of a small, geographically isolated community where most people know each other and long-term relationships matter more than short-term efficiency. With a population of under 4,000, there is little room for adversarial decisions or winners and losers. Managers consult widely, not to delay, but to ensure choices sit well with the people affected and won't fracture the tight-knit social fabric. This informal soundings process often happens outside formal meetings, through quiet conversations at the pub, over the phone, or in passing. By the time a decision is announced, the groundwork has been done.
-
-Senior figures and those with long tenure in the Islands hold considerable sway. Their knowledge of local context, past outcomes, and personal relationships gives their opinion real weight. A manager from a culture where decisions are made quickly by the most senior person present may find this consultative approach slow. From the other side, Islanders may see rapid top-down decisions as reckless or dismissive, particularly when the person making the call lacks local understanding or hasn't bothered to ask around first.
-
-Practical concerns also shape decision-making. Logistics are complex, shipping is infrequent, and specialists are scarce. Reversing a bad decision can be expensive and time-consuming. As a result, choices tend to be cautious and grounded in what has worked before. If you're proposing something new, be prepared to explain how it will function in this specific environment, and expect questions that test feasibility rather than vision.

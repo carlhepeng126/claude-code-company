@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-In Argentina, decades of economic collapse have reshaped what drives people at work. Savings wiped out, pensions devalued, promises broken: many no longer believe that hard work leads to wealth. What remains is the need for dignity. Respect, fair treatment, and freedom from humiliation mean more than distant incentives. A manager who treats people as expendable, or who preaches sacrifice while protecting personal privileges, loses credibility fast. Teams watch closely for double standards, particularly around offshore accounts, perks paid in dollars, or benefits shielded from peso devaluation. If you ask for belt-tightening, show concretely where leadership is also tightening belts.
-
-Argentina sees itself as a country that could be great but is held back by corruption and incompetence. Projects that feel like proof of capability energize people. Frame work as evidence that the team, in this country and this reality, can achieve something worthwhile. When something works well, name it as success rooted here. Teams also love to remember moments of collective survival: delivering during the corralito, working through power cuts, meeting deadlines during import bans. Turning hard periods into shared stories, acknowledged and even celebrated, gives struggle meaning.
-
-Motivation is relational before it is financial. Managers who ask about someone's mother, share a laugh, or show visible anger at injustice build loyalty. Purely transactional leadership, even if it pays well, feels cold. Spend real time with people, in branch offices or over coffee, listening and joking. Quality of life remains non-negotiable, and pressure that disrupts work-life balance will backfire.

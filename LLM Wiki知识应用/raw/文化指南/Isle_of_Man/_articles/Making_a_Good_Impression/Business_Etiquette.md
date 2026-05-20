@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-The Isle of Man's professional environment blends British formality with a distinctive island pragmatism rooted in centuries as a self-governing jurisdiction. Manx business culture values courtesy and restraint, but status differences are worn lightly. Titles and formalities matter less than competence and directness. Address colleagues by first name unless they signal otherwise, and expect a straightforward tone in meetings. This reflects the island's small scale: most professionals operate within overlapping networks where reputation spreads quickly, so authenticity outweighs polish.
-
-Punctuality is expected, though not rigidly enforced. Arriving five minutes late to a meeting won't derail a relationship, but consistently poor timekeeping will. Dress codes skew conservative in finance and legal sectors, where the island's offshore expertise is concentrated, but elsewhere business casual is standard. Handshakes are firm and brief; prolonged eye contact or physical gestures beyond that can feel overstated. Meetings often open with light conversation about the weather or island life, but this rarely extends beyond a minute or two. The goal is to establish rapport without delaying the agenda.
-
-Gift giving in professional settings is uncommon and can raise eyebrows, particularly in regulated industries where compliance culture runs deep. A small token after a deal closes, such as locally made products or branded items from your own company, is acceptable, but avoid anything that could suggest obligation. Business cards are exchanged without ceremony. Offer yours at the end of a meeting rather than the start, and don't expect elaborate attention to the gesture. The island's size means follow-up is often more personal than transactional.

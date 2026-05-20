@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Cambodia bends around ceremony, season, and the needs of family. Outside Phnom Penh especially, work still follows the monsoon calendar. Rice planting, transplanting, and harvest pull people back to their home provinces, and office colleagues may disappear for days to help in the fields. Weddings, funerals, house blessings, and pagoda festivals run on event time, not office hours. Someone may leave mid-morning to attend a ceremony announced the night before. These are not interruptions to real life; they are the anchors around which everything else is organized. When planning project milestones, ask directly if there are ceremonies or busy agricultural periods ahead for key team members, especially in rural contexts. Build those windows into your timeline rather than treating them as obstacles.
-
-Saying something will be done "soon" or "tomorrow" is often a way to preserve harmony and goodwill, even when the path forward is unclear. Few people want to admit uncertainty or deliver unwelcome news directly, so timelines become softer and more hopeful than literal. A colleague from a culture where commitments are treated as binding may read this as evasion or unreliability. A Cambodian colleague, by contrast, may see a blunt "we won't meet that deadline" as unnecessarily harsh and damaging to the relationship. The task is to translate "soon" into something more concrete without publicly questioning someone's intention. Ask which day is realistic and who will be responsible, framed as clarification rather than challenge.
-
-Meetings may revisit the same topic several times in non-linear order, circling back until the issue feels resolved. This reflects a broader comfort with flexibility over rigid sequencing. For many staff, family fields and ceremonies remain non-negotiable. Accept that reality and plan flexibility into your approach, rather than enforcing a schedule that ignores it.

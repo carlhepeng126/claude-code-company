@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Bermuda tends to be gentle and relationally aware. The island's small size and tightly connected professional community mean that reputations matter and relationships are rarely disposable. Critical feedback, especially when it involves personal performance, is typically delivered privately and carefully worded to avoid embarrassment or damaging someone's standing. Public criticism is generally avoided, even in team settings, as it risks causing offense that can echo beyond the workplace.
-
-Managers often frame developmental feedback in collaborative terms, emphasizing the team's success rather than individual shortcomings. A colleague might hear something like, "Let's see how we can approach this differently," rather than, "You need to fix this." This softer framing reflects a broader cultural preference for maintaining harmony and protecting dignity, particularly in a place where professional and personal worlds overlap frequently. A manager from a culture where direct, task-focused feedback is the norm may find this approach indirect or unclear, while a Bermudian colleague might perceive blunt critique as unnecessarily harsh or dismissive of the relationship.
-
-Positive feedback is more openly expressed and can be shared publicly, though it's often delivered in a warm, conversational tone rather than through formal recognition systems. Praise that feels genuine and personal tends to resonate more than structured performance reviews, which can come across as impersonal in a culture where people value being known and seen.

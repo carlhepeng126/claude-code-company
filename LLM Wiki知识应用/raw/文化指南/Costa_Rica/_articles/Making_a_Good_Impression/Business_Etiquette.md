@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-In Costa Rica, everyday business etiquette revolves around calm, courteous interaction rooted in the Pura Vida norm. Raising your voice, showing visible impatience, or using sarcasm runs counter to this ideal and can erode trust quickly. Even when deadlines press or frustrations mount, maintaining a measured, friendly tone is read as a marker of professionalism and good upbringing (buena educación). Intensity is acceptable, but aggression is not. Colleagues from cultures where direct confrontation signals clarity may find this reserve frustrating, while Ticos may read bluntness as unnecessary hostility that damages the working relationship.
-
-Small courtesies carry real weight in how your character is judged. Greeting everyone in a room, acknowledging security and cleaning staff with a buenos días, accepting offered coffee, and asking about someone's journey all function as signals of respect. These micro-interactions are not mere politeness but tests of whether you see people as individuals worthy of consideration. Skipping them, or treating them as optional formalities, can quietly undermine your credibility across all levels of the organization.
-
-Refusals are often softened with phrases like "vamos a ver" (let's see), "lo revisamos" (we'll review it), or "tal vez más adelante" (maybe later). Publicly cornering someone into a yes or no is seen as rude. Much real dissent is expressed in private, so learn to hear the soft "no" inside polite phrases and follow up later, one-to-one, to clarify whether something is truly feasible. Faith references such as "si Dios quiere" (God willing) or "gracias a Dios" (thank God) appear naturally in business small talk. Responding with neutral warmth, without mockery or dismissiveness, fits the local tone. You don't need to share the belief, but acknowledging it lightly maintains rapport.

@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Burundi follow a careful, layered process shaped by the country's history of ethnic tension and the enduring value placed on social cohesion. Leaders move slowly because they know that poorly judged choices can reopen old divisions or unsettle relationships that hold communities and workplaces together. Authority is real and visible, but it does not operate in isolation. Senior figures are expected to consult trusted colleagues, often informally, before announcing a course of action. This reflects a deeper cultural logic: decisions must fit socially, not just strategically.
-
-The consultation itself is rarely a formal round table. It happens through quiet conversation, often with people who hold influence through experience, age, or social connection rather than job title alone. Managers will test an idea with a small circle before widening it, ensuring alignment and reducing the risk of public disagreement. This allows them to maintain formal authority while building consensus behind the scenes. A decision presented without this groundwork may meet polite silence or slow implementation, even if it was technically sound.
-
-For colleagues from cultures where decisions are made quickly and individually, this approach can feel opaque or repetitive. From a Burundian perspective, a manager who announces a decision without prior consultation may appear disconnected or reckless, as though they are willing to risk social disruption for the sake of speed. Understanding who holds informal influence and allowing time for this relational process will make a tangible difference to how decisions are received and implemented.

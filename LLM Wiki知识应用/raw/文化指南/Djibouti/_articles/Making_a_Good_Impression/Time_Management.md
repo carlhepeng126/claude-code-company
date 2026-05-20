@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-In Djibouti, time bends around relationships and immediate realities more than formal schedules. Rooted in a nomadic and pastoral past where the day was structured by prayer, weather, and clan obligations, time is still often understood as something that serves people, not the other way around. A meeting might begin late because a family matter arose, or because an elder arrived and social greetings took precedence. This flexibility reflects a broader cultural view that responsiveness to context shows respect, not disregard.
-
-Punctuality matters more in settings tied to international business, military coordination, or the port economy, where Djibouti's role as a logistics hub requires alignment with global timelines. In government offices, traditional businesses, or settings where clan or family ties shape decision-making, schedules can shift without advance notice. Colleagues from cultures where meetings start on time may read this as inefficiency or lack of professionalism. From a Djiboutian perspective, rigid adherence to the clock when a relationship or pressing situation demands attention can seem cold or tone-deaf.
-
-Urban professionals, particularly those educated abroad or working in multinationals, often adopt stricter punctuality as a marker of competence. Yet even they may adjust timelines when relationships require it. If you schedule a meeting, confirm it the day before and be prepared for a late start. Build buffer time into any plan that depends on multiple parties, and recognize that delays are usually situational, not structural. What appears as loose time management often reflects a deliberate prioritization of human connection over rigid process.

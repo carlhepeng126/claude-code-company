@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Chad is shaped by hierarchical structures and the importance of preserving relational harmony. Direct criticism, especially in front of others, can damage trust and undermine a manager's standing. A supervisor will typically deliver corrective feedback in private, using indirect language that allows the recipient to save face. This might involve framing concerns as observations rather than judgments, or offering guidance through questions that invite reflection. Public praise is more straightforward, though it is given carefully to avoid singling someone out in a way that disrupts group cohesion or creates jealousy among colleagues.
-
-In professional settings, particularly in N'Djamena and formal sectors, feedback is rarely a standalone conversation. Managers may consult trusted intermediaries or senior colleagues before addressing an issue, and the person receiving feedback may do the same afterward. This reflects the wider role of social networks in how decisions are made and how advice is received. A junior employee might discuss developmental feedback with family members or elders before acting on it, particularly if the guidance involves a shift in responsibility or long-term career direction.
-
-Colleagues from cultures where feedback is expected to be immediate and explicit may read this indirectness as avoidance or lack of clarity. Managers from Chad, in turn, may perceive direct, unmediated criticism as blunt or disrespectful, particularly if delivered without regard for status or in front of others. Effective coaching in this context means building trust over time and understanding that developmental conversations extend beyond the workplace.

@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Zambia works through quiet reciprocity and repeat presence. A good guest accepts what is offered warmly and without commentary. Appreciation should never sound like assessment of means. A thoughtful thanks that acknowledges the gesture is enough. Effusive praise can suggest surprise or evaluation, which risks unsettling the dignity of the household. Trust and relationship grow not through grand gestures but through showing up consistently over time, checking in at ordinary moments, and attending key events when it counts.
-
-Homes vary widely. Urban professional households, rural family settings, and church-centred homes can have different expectations around timing, food, alcohol, and gender norms. Following the host's lead on seating, formality, and when to eat is always safer than assuming a universal rule. If food is offered, accept it graciously. Declining should be done gently and without elaborate justification. Meals are typically eaten with the right hand, and leaving food on your plate can read as wasteful or ungrateful. If washing hands is offered before eating, guests are invited to go first.
-
-Life-cycle rituals, especially funerals and memorials, are deeply binding social occasions. Attendance at these events demonstrates community belonging far more visibly than casual socializing. A colleague from a culture where condolences are brief and work schedules are rarely adjusted may see this as disruptive, while a Zambian colleague may read non-attendance as indifference. Taking these moments seriously in your planning shows respect for the relational economy that underpins professional and personal networks alike.

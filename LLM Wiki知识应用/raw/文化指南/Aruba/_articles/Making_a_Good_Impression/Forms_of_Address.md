@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Aruba's approach to address blends Caribbean informality with Dutch-influenced professionalism, and the balance shifts depending on context. In formal business settings, especially when meeting someone for the first time or in hierarchical organizations, people use titles such as "Dhr." (Meneer) or "Mevr." (Mevrouw) with the last name in Dutch, or "Señor" or "Señora" in Papiamento and Spanish. Professional titles like "Doctor" or "Ingeniero" are respected and used where applicable. This formality reflects Aruba's connection to both Dutch administrative culture and Latin American norms around deference and social positioning. However, Aruba's small, tight-knit community means that relationships warm quickly, and a switch to first names often follows naturally once rapport is established. Waiting for the other person to signal this shift, rather than assuming it, shows respect for the relationship stage.
-
-In less formal environments or among peers, Arubans are generally warm and approachable, and first names may be used from the outset. The island's size means people often know each other, or know someone in common, and this familiarity softens formality. A colleague from a culture with sustained formality across all interactions may find this shift abrupt, while someone from Aruba working in a more rigid environment may feel the continued use of titles after several meetings creates unnecessary distance.
-
-Greetings typically include a handshake, often accompanied by steady eye contact and a smile. Among colleagues who know each other well, a cheek kiss or a light touch on the arm is common and reflects warmth rather than overfamiliarity. Written communication, particularly in official or client-facing contexts, should maintain formality until a more relaxed tone is clearly established in return.

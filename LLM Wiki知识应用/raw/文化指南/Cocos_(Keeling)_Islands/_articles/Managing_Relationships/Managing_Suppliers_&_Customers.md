@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-The Cocos (Keeling) Islands has no commercial supplier or customer base in the conventional sense. The territory comprises two small atolls with a permanent population of around 500 people, most of whom live on Home Island or West Island. The economy relies almost entirely on Australian government services and employment, with tourism playing a minor supplementary role. There is no industrial sector, no significant import-export trade managed locally, and no established framework for business-to-business transactions within the islands themselves.
-
-For organizations seeking to operate in or with the Cocos (Keeling) Islands, the practical reality is that supplier and customer relationships will almost always involve external parties. Goods are shipped in from Australia or Southeast Asia. Services are typically contracted through Australian providers or, in some cases, coordinated through the local council or government representatives based in the territory. Any formal procurement or client engagement will follow Australian administrative processes, given the islands' status as an Australian external territory.
-
-If you are planning work that involves the local community, such as tourism services or small-scale contracting, the most effective approach is direct contact with individuals or families rather than institutional suppliers. Relationships on the islands are personal and informal. Trust is built through respectful communication and an understanding that the pace of life is slower and less transactional than in urban commercial centers. Assume longer lead times and be prepared to adapt expectations around availability and formality.

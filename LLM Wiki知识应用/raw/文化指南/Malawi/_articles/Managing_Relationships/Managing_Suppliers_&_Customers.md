@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-In Malawi, supplier and customer relationships run on trust earned through face-to-face contact and relationship continuity. Informal markets function as social ecosystems where reputation, daily reciprocity, and personal connection determine who gets served first and who receives flexibility when things shift. This applies equally in formal settings. A supplier or customer who knows you, who has shared tea and conversation, will prioritize your needs when capacity is tight or problems arise. For international managers used to managing relationships remotely through contracts and email updates, this means building in regular in-person visits or appointing a local representative who can maintain that relational continuity. Long-distance coordination alone rarely builds the trust needed to secure reliable service or favorable terms.
-
-Seasonal volatility shapes how suppliers think about timing and reliability. With around three-quarters of the population working in agriculture, many supply relationships sit inside cycles shaped by planting schedules, input availability, and climate shocks. Export dependency, particularly on tobacco, creates further pressure cascades through payment rhythms and cashflow. Build flexibility into timelines and anticipate that urgency signals may intensify during key harvest or auction periods. What looks like unreliability may reflect structural constraints rather than poor planning.
-
-Context also varies. Smallholder settings and estate-linked contexts, especially in the southern highlands where colonial-era tea plantations created distinct labor and mobility histories, operate according to different norms around hierarchy, timekeeping, and decision-making. Calibrate expectations to the local work world rather than applying a single national template.

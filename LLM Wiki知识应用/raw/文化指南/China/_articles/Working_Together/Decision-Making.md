@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Formal decisions in China rest with senior managers, but the real work happens before any announcement is made. Key stakeholders are consulted privately, often one-on-one or through informal channels, to build alignment and surface concerns without public disagreement. By the time a decision is presented in a meeting, the outcome has usually been settled. The formal gathering confirms what has already been agreed rather than debating options in real time. This approach protects group harmony and allows those in authority to gauge support without forcing anyone to oppose them openly.
-
-Stability and reputation shape decisions as much as immediate profit. Long-term relationships, credibility with partners, and the risk of public failure all factor into how options are weighed. A proposal that threatens face or disrupts established ties may be set aside even if the numbers look strong. Data and benchmarks strengthen a case, but so does the standing of the person making it. Credentials, past results, and endorsement from respected figures all influence how seriously a recommendation is taken.
-
-Digital platforms like WeChat play a central role in refining decisions outside formal meetings. Details are adjusted, questions clarified, and final points settled through real-time exchanges that would be awkward to raise in person. For colleagues from cultures where decisions are debated openly in scheduled sessions, this can feel opaque or backwards. From a Chinese perspective, a meeting that erupts into unscripted disagreement suggests poor preparation and weak relationships. Engaging the real decision makers early, framing proposals around risk and relationship as well as outcome, and following up digitally are all practical responses to how decisions actually get made.

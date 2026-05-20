@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Building a professional network in the Central African Republic depends almost entirely on personal connection and visible trust. Years of political instability and shifting authority have made formal structures less reliable, so people rely on relationships they can verify directly. Before agreeing to meet, counterparts want to understand who you are, who vouches for you, and whether you're likely to follow through. Cold calls and unsolicited emails rarely lead anywhere. What opens doors is a mutual contact who can speak for your credibility and arrange a face-to-face introduction. That first conversation may touch on family, shared acquaintances, or simply the journey to the meeting. These exchanges are how trust begins.
-
-Appointments are best arranged through a local contact rather than scheduled directly. Even when a time is agreed, expect it to shift. Meetings may start late, be interrupted by other visitors, or be postponed without much notice. This reflects both limited infrastructure and a social structure where immediate obligations to people present often take priority over written schedules. A colleague from a culture where calendars are fixed may read this as disorganization, while a Central African professional may see rigid timekeeping as indifference to human needs. Building in extra time and confirming plans the day before helps, but real flexibility means accepting that other commitments may arise and the meeting will simply happen when circumstances allow.
-
-In Bangui, younger professionals in international organizations may engage more quickly and follow structured scheduling. Outside the capital, in towns like Berbérati or Bambari, introductions still move through family or community networks, and business discussions wait until the relationship feels secure.

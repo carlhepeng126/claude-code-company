@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Professional life in Greenland moves at a human pace, shaped by a culture where relationships matter more than transactions. Greetings are genuine but understated. A handshake and eye contact are standard, and people use first names regardless of position. Titles and formality feel out of step here. The egalitarian impulse runs deep, rooted in a small, interconnected society where everyone knows someone who knows you. Trust is earned through repeated contact and reliability, not a polished first impression. If you're building a working relationship, expect it to unfold over time, not in a single meeting.
-
-Greenlandic communication is indirect and consensus-oriented. Direct critique or contradiction, especially in front of others, can create discomfort. A colleague may agree in the moment, then quietly disengage if they have doubts. Silence often means hesitation or disagreement, and pressing for an immediate answer can backfire. For someone from a culture where decisions are made quickly and dissent is voiced openly, this can feel slow or unclear. From a Greenlandic perspective, rushing feels disrespectful, as though the relationship doesn't count. If a decision stalls, it's often because the relational ground hasn't been prepared yet.
-
-Gift-giving is uncommon in professional settings and may be misread if done too early. Once a relationship is established, a small, thoughtful gesture is appreciated. Business cards are exchanged casually, and often not at all. A handwritten number or a follow-up email is just as acceptable and sometimes more natural in this context.

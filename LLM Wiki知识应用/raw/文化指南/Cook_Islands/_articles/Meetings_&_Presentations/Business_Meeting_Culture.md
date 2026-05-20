@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-The Cook Islands business environment is small, and most decisions flow through a tight network of relationships. Meetings are typically informal in tone, but they serve a social function as much as a logistical one. A visiting colleague may be received warmly with conversation that moves between personal topics, community news, and the matter at hand. This is how trust is built and where a sense of your character begins to form. Rushing straight into an agenda without allowing time for this can come across as transactional or dismissive, particularly when meeting someone for the first time.
-
-Decision-making often happens outside the formal meeting itself. What is discussed in the room may not be resolved there. A manager from a culture where decisions are made quickly in structured meetings may expect clarity and commitment before leaving, while a Cook Islands counterpart may prefer to consult quietly with others afterward, particularly with senior family members or trusted advisors. This does not reflect hesitation. It reflects a way of working where input from the wider community or family network is valued, and where relationships shape the path forward more than process alone.
-
-Hierarchy is present but expressed gently. Senior figures may listen more than they speak, and decisions are often signaled through quiet agreement rather than formal pronouncement. If someone defers to a colleague or suggests continuing the conversation later, it usually means consultation is still underway. Following up with patience and in person, rather than pressing for written confirmation immediately, tends to yield better outcomes.

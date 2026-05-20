@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Jersey tend to be straightforward and low-key. The island's dining culture reflects its blend of British practicality and proximity to France, but formality is generally light. Lunch is often the preferred option for business discussions, typically held at a local restaurant or hotel. These meals are functional rather than ceremonial. Conversation may touch on work early on, and there's little expectation of extended social preamble before getting to the point. That said, the tone stays relaxed. Rushing through courses or appearing overly transactional can feel abrupt, particularly to those used to Jersey's understated, relationship-conscious style.
-
-Dinner is less common for initial business meetings but may be used to strengthen established relationships. Venues range from traditional parish inns to French-influenced restaurants reflecting the island's culinary ties to both Britain and Normandy. Seafood is a local strength, and Jersey Royals, the island's famous potatoes, often appear on menus in season. Alcohol is socially acceptable and wine or beer may be offered, though it's fine to decline without explanation.
-
-Colleagues from cultures where meals are primarily social may find Jersey's blended approach, mixing business talk with informal conversation, harder to read. Equally, a visitor who separates the two rigidly may seem overly formal. The key is to follow your host's lead. If they begin discussing work over starters, it's a signal that the meal serves a dual purpose and you're expected to engage on both levels.

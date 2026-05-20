@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-In Kiribati, making professional contact is less about formal process and more about relational groundwork. The small scale of the islands means most people are already connected through family, community, or church networks. Trying to schedule a meeting cold, without a shared connection, can feel abrupt and may not be taken seriously. Instead, reach out through someone known to both sides. This could be a colleague, a community leader, or a mutual acquaintance who can vouch for your intentions. That introduction doesn't just open the door, it establishes the trust needed for the conversation to proceed.
-
-Appointments are best made in advance, but expect the timeline to be flexible. A meeting confirmed for Tuesday morning may shift if family obligations arise or if someone senior is delayed. This reflects a culture where people prioritize immediate relational and community needs over rigid schedules. A colleague from a culture where punctuality is closely tied to professionalism might read this as disorganized or uncommitted. Someone from Kiribati, on the other hand, might view insistence on strict timing as disconnected from the realities of island life, where weather, transport, and family can all shift plans without warning.
-
-Allow extra time around any meeting. Conversations often begin with personal exchanges about family or recent events, which aren't filler but the foundation for any productive discussion. Rushing to business topics before that relational layer is in place can come across as transactional and may slow things down in the long run.

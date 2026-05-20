@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Building a professional contact in Turkey typically begins with knowing someone in common. The country's relational business culture, rooted in close-knit community ties and a history of group solidarity, means trust develops through shared connections before it comes from credentials alone. A warm introduction from a mutual colleague or friend can open doors far more quickly than a cold email. Even digital outreach becomes more effective when you can mention someone both parties know. In practice, this might mean asking a local partner to facilitate introductions or attending industry events where these connections can form naturally.
-
-When scheduling appointments, book at least one to two weeks ahead and confirm a day or two before the meeting. Expect the conversation to start with small talk about family, the traffic, or recent events before business topics begin. This opening phase builds rapport and sets relational tone, so let your counterpart guide the shift to the agenda rather than diving straight in. A colleague from a culture where meetings follow a fixed timeline may read this as inefficient or unfocused, while Turkish professionals often see skipping that relational layer as abrupt or impersonal.
-
-Traffic in major cities like Istanbul and Ankara can be severe and unpredictable, so aim to arrive on time but build generous travel buffers into your own schedule. Summer months see extended family holidays, especially in August, when cities can empty and response times slow. During Ramazan, many colleagues will be fasting from dawn to dusk, which can affect energy and meeting rhythms. Avoid proposing lunch meetings unless you know your counterpart's observance, and consider scheduling later-afternoon slots when focus may be sharper. Religious holidays shift each year on the lunar calendar, so check current dates before confirming travel or deadlines.

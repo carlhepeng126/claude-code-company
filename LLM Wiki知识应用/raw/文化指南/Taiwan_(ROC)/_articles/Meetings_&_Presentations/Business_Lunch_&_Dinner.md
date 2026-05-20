@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Taiwan are built for connection, and food is the medium. From family-style restaurants to night markets and izakaya-influenced bars, shared dishes and communal pacing create natural openings for conversation and trust. Mealtimes are rarely confined to the transaction at hand. Light talk about family, travel, or hobbies is expected and welcomed, and the rhythm of the meal itself encourages this. Asking about dietary preferences in advance — vegetarian, pork-free, allergies — shows respect and avoids putting anyone in an awkward position at the table.
-
-The variety of food traditions reflects Taiwan's layered identity. Hoklo, Hakka, Indigenous and Japanese-influenced dishes coexist alongside international cuisines, offering hosts plenty of options for inclusive gatherings. Letting local colleagues recommend dishes or venues helps build rapport and shows you value their judgment. Family-style ordering is common, with shared plates placed in the center and everyone helping themselves. Offering food to others and pacing the meal together are standard practice, so eating too quickly or pushing straight into detailed negotiations can feel jarring and overly transactional.
-
-For international colleagues used to shorter, more structured meals, this slower, conversational approach may feel unfocused. From the Taiwanese side, a rushed tone or reluctance to share dishes can come across as distant or uninterested in the relationship. Following the host's lead on when and how to introduce business topics keeps the flow natural and helps deepen the understanding that underpins effective collaboration.

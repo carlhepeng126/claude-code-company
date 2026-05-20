@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-In Jordanian professional life, collaboration rests on a relational foundation that goes deeper than role clarity or project timelines. Who you are, where you're from, and who can vouch for you shape how safely people engage. Teams often operate inside dense social webs formed by family name, hometown, and shared connections. This means that early investment in relationship-building isn't ceremonial—it's structural. Until that fabric is stable, collaboration remains cautious. *Wasta* (an intermediary who transfers credibility) can function as a practical mechanism when trust is still forming, especially across unfamiliar groups or hierarchies.
-
-Hierarchy and warmth coexist comfortably in most Jordanian teams. Age and seniority are respected visibly—who speaks first, who is deferred to, and whose view closes a discussion are all tracked carefully. Yet this formality doesn't preclude closeness. Groups aim for cohesion and inclusion, and leaders are often expected to show care as well as authority. A colleague from a culture where decisions are made quickly in flat structures may read this deference as slowness or indirectness, while a Jordanian colleague may read the absence of seniority cues as dismissive or chaotic.
-
-When tension arises, teams often prefer cooling time over immediate confrontation. The traditional logic of *ʿaṭwa* (truce or pause) and *ṣulḥ* (reconciliation) still influences how conflict is handled: allow space for emotions to settle, involve a trusted intermediary if needed, and resolve in a way that protects dignity rather than produces public winners and losers. Forcing an open debate before relationships are repaired can entrench positions rather than resolve them. Mediation is culturally available and often more effective than direct escalation.

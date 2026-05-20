@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Many Hong Kong professionals adopt English given names and use them freely at work. "Hi, I'm Kelvin from Risk" is typical in day-to-day conversation, and meetings often move to first names quickly. But the same person's email signature and business card will show their full Chinese name in traditional characters, and formal documents will reference that name. Dropping the Chinese name entirely or treating the English name as the only "real" one misses the bilingual reality most people navigate. Both names reflect identity and context, and treating them both as legitimate shows you recognize that.
-
-Seniority still invites formality. Senior lawyers, bankers, government officials, and older clients are routinely addressed as Mr Chan, Ms Ho, or Dr Wong, especially at first meeting. Jumping to "Winnie" while everyone else says "Ms Lee" marks you as tone-deaf to status. The shift to first names happens, but it is offered, not assumed. In Cantonese, these markers are even clearer. People say Chan-saan (Mr Chan), Lee-tai (Mrs Lee), or lou-baan (boss). Younger staff might refer to a long-serving office manager as "Ah May-jeh," meaning big sister May, a blend of respect and warmth. Listening to what colleagues call someone in Cantonese tells you how formal or familiar the relationship is, and how others read their standing.
-
-Follow what the business card or email signature shows. That is what the person chose for cross-cultural use. Default to Mr or Ms with the surname in first meetings unless you are invited to do otherwise. If you hear Cantonese titles being used, mirror the level of formality, even if the conversation switches to English.

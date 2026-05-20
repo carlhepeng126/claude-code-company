@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Thailand runs on the logic of relationship-first collaboration, shaped by concepts like *kreng jai* (considerate restraint) and a commitment to protecting face. Teams aim for an environment where no one is embarrassed, exposed, or isolated. This means that harmony is structural, built into how people participate and coordinate. Juniors may hold back from speaking directly in front of the group if a senior hasn't opened the floor, not because they lack views but because offering disagreement too visibly can feel like overstepping. Managers leading Thai teams should create low-risk channels for input such as smaller breakout groups, written feedback, or one-to-one check-ins where hierarchy feels less exposed.
-
-Silence in meetings does not usually mean agreement. It may signal someone is holding back to avoid causing friction or waiting to see how others respond. A colleague from a culture where open debate is expected might read this as disengagement or lack of initiative. From a Thai perspective, the same colleague's directness might feel abrupt or even disrespectful, especially if disagreement is aired without the buffer of relationship or rank. Building alignment often happens off-stage through careful side conversations and gentle follow-ups. This coordination is culturally legitimate, a way to arrive at agreement without forcing public confrontation.
-
-Atmosphere also shapes participation. Thai teams value *sanuk*, a sense of ease and lightness that keeps work human and pressure from hardening into tension. Food is shared throughout the day, and colleagues often socialize together at lunch. Bluntness or intensity can reduce the willingness to contribute, particularly among junior members. Protecting that atmosphere is part of protecting the team's capacity to function.

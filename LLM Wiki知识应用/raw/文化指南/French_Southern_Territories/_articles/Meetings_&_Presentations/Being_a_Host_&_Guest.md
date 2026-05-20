@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-The French Southern Territories host no permanent civilian population and exist primarily as scientific research stations under French administration. Hospitality in this context is shaped entirely by the logistical and environmental realities of polar and subantarctic isolation. Visiting researchers, support staff, or officials arrive by scheduled supply ship or charter flight, often after weeks of planning. Hosts are typically station leaders or senior scientists who coordinate arrivals, assign accommodation, and conduct safety briefings. The welcome is functional and thorough, focused on ensuring guests understand emergency protocols, weather risks, and the strict environmental regulations that govern all activity on the islands.
-
-Hosting is a shared responsibility across the small resident team. Meals are communal and often informal, served in a single dining area where everyone eats together regardless of rank or role. A guest who arrives expecting separate quarters or private meals will find neither. The station operates as a collective unit, and visitors are expected to integrate quickly into established routines. This includes contributing to shared tasks such as clearing dishes or helping with minor maintenance when needed.
-
-Guest behavior is closely observed, not out of judgment but because safety and group cohesion depend on it. A visitor who disregards environmental guidelines, ignores curfews during storms, or disrupts the rhythm of station life will be corrected directly. Politeness in this setting means adapting quickly, asking questions when unsure, and respecting the authority of those who know the terrain and its dangers.

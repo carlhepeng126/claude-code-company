@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Serbia are designed to do more than move through an agenda. They exist to see whether you are someone worth working with, which requires room for conversation that feels human before it feels transactional. The kafana tradition, where people have long gathered for meals, celebrations, and serious talk in communal settings, has shaped a workplace rhythm that values warmth, attentiveness, and emotional authenticity alongside competence. Arriving with a tightly structured agenda or pushing straight into deliverables can feel abrupt. A colleague from a culture that prioritizes efficiency over rapport may read this as time-wasting, while a Serbian counterpart may interpret immediate task focus as coldness or lack of relational investment.
-
-Meetings are often arranged with little advance notice, sometimes within two or three days, and rarely follow a formal agenda. This flexibility reflects a preference for responsiveness over rigid planning. The meeting itself may open with extended small talk, coffee, and cigarettes, a pace that should be allowed to unfold naturally. Once discussion begins, expect people to listen carefully and take turns speaking. Narrative often plays a role: colleagues may explain context through stories, examples, or shared reference points rather than bullet-point summaries. This isn't digression; it's how meaning is built and trust is tested in real time.
-
-Authority sits at the top, and decisions rest with the most senior person in the room. Send someone of equivalent rank, and ensure that person is present for key discussions. After a productive meeting, expect an invitation to lunch or dinner. Accepting is more than courtesy; it shows you understand that the relationship extends beyond the negotiating table and that your commitment is personal, not just contractual.

@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Cabo Verde tend to move at a slower, more relational pace than efficiency-focused models might suggest. In a small island nation where personal networks are visible and social consequences ripple quickly, rushing a decision can undermine trust or overlook someone whose voice should have been heard. Leaders consult informally before finalizing anything significant, often checking in with colleagues, family members, or respected figures whose judgment they value. This is not a formality. It reflects a cultural logic in which decisions are expected to account for their social impact, not just their operational outcome. A manager who skips this step risks being seen as disconnected or overreaching, even if the decision itself is sound.
-
-Authority is respected, but it does not eliminate consultation. Senior figures retain final say, and their approval often marks the moment a decision becomes real. At the same time, those same leaders will usually have sought input widely before that point, balancing their formal role with the need to maintain harmony and avoid visible dissent. The result is a process that can feel slow to someone accustomed to faster, more individualized decision-making, but which serves to protect relationships and ensure buy-in across a tight-knit professional environment.
-
-If you are waiting for a decision, understand that silence or delay may mean the person is still consulting, not avoiding. Pushing for speed can come across as disrespectful or naïve. Equally, if you are leading a decision, involve trusted colleagues early and signal openness to input, even if the final call is yours. In Cabo Verde, the quality of a decision is often judged not only by its logic, but by how well it was prepared socially.

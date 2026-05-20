@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In Namibia's small, overlapping professional and social networks, reputation can follow a person across contexts. Public embarrassment can have a long tail, so feedback that threatens someone's dignity in front of others can damage more than the moment. This makes private, one-on-one conversations the more effective route for correction or development. Protecting dignity is practical, not just polite. When feedback is delivered privately and with care, it is more likely to be heard and acted on.
-
-Calm, measured delivery tends to land better than highly emotional or emphatic language. Restraint is often read as seriousness and respect, while visible frustration or intensity can be interpreted as a loss of control or a lack of regard. A manager from a culture where directness and urgency are prized might worry that measured tone softens the message, while a Namibian colleague might read urgent, emotional delivery as overreaction or disrespect. From the other side, a Namibian manager's calm framing might seem understated to someone expecting more explicit urgency or emphasis.
-
-The source of feedback also shapes how it is received. In a context where authority can come from institutional position, elder standing, or moral figures like church leaders, the same message may be heard differently depending on who delivers it. A formal performance review from a line manager may be acknowledged, but feedback from a respected elder or community figure may prompt deeper reflection and action. When coaching is needed, consider who holds the right kind of authority in that person's world, not just on the org chart.

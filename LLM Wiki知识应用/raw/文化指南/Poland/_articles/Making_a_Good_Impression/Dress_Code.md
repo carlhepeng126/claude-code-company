@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Polish professional dress reflects a culture that values credibility, understatement, and the effort to present yourself well without excess. This approach is rooted in both post-1989 modernization and an older expectation that appearance signals respect for others and the seriousness of the occasion. In practice, this means dressing neatly and conservatively, especially in sectors like banking, consulting, government, or larger corporations, where dark suits, pressed shirts, and muted tones remain standard. The emphasis is on looking put-together rather than standing out. Quality and fit often read more strongly than brand or trend, and anything that feels flashy or overdone can undermine trust rather than build it.
-
-The baseline can shift noticeably by city and sector. Warsaw's corporate environment tends toward formal suits and subdued colors. Kraków, with its academic and heritage focus, may blend tradition with a slightly softer formality. Gdańsk's maritime-civic identity brings its own inflection. In smaller companies or younger industries like tech or creative fields, business casual is common, but even here the style leans deliberate rather than careless. If you are meeting across multiple settings in one trip, a conservative middle ground works better than guessing. Observe the room first, and adjust afterward.
-
-For international colleagues arriving from contexts where personal style is valued as part of professional presence, Polish understatement can read as overly cautious or withholding. From a Polish perspective, the same expressive dressing may come across as trying too hard or lacking in seriousness. Both readings risk misunderstanding the intent. If you choose understated, well-fitted professionalism for first meetings, you signal respect for the occasion and allow your work to speak first.

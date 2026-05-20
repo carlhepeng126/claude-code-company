@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Serbia often rises when people feel included rather than singled out. The cultural image of *kolo* (a traditional circle dance) illustrates this well: coordination and connection energize the group, and being part of something cohesive matters more than individual spotlight. When someone is brought into a decision, trusted with information, or publicly recognized in a way that respects their standing within the team, commitment follows. A manager who acknowledges contribution in the moment, and who makes people feel like valued members of the chain, will see stronger engagement than one who relies on formal incentive structures alone.
-
-Money does matter, but it rarely works in isolation. Security and stability resonate deeply, shaped in part by decades of economic upheaval and the generational memory of jobs that once lasted a lifetime. For many, the drive to provide for family and maintain dignity within their close circle remains a powerful frame. The *Slava* tradition, which centers on family continuity, prosperity, and protection, reflects this: reliability and follow-through are not just professional qualities but markers of personal honor. Linking effort to the well-being and reputation of the group, rather than to abstract targets, often lands more effectively.
-
-What motivates people can shift by generation and setting. Younger professionals in urban centers may prioritize career growth, international exposure, or development opportunities. Older colleagues, or those in smaller cities, may value stability and a respected position more than mobility. Across these differences, warmth and realism in tone tend to work better than glossy motivational language. Humor, emotional honesty, and a human touch are forms of strength here, not cynicism.

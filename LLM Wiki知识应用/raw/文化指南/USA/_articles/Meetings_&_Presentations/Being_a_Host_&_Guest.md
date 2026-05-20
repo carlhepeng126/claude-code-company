@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Informality and comfort define hosting in the USA, with an emphasis on making guests feel at ease rather than following strict protocols. Hosts focus on flexibility rather than formality, and it is entirely normal for guests to mention dietary preferences or restrictions openly without embarrassment. Low-carb, vegan, or allergen-free needs are standard conversation, not special requests. This openness reflects a broader cultural tendency toward individualism and practical accommodation. A colleague from a culture where meals are shared without adjustment might read this as fussy or self-centered, while an American host might see reluctance to share dietary needs as making their job harder or risking discomfort for the guest.
-
-Invitations should be extended at least a week in advance. Anything closer can suggest the person was an afterthought, which undermines the sense of being valued. When hosting at a restaurant, choose somewhere interesting or recently opened rather than predictable or traditional. Americans tend to value novelty and see dining as an experience worth curating. The host typically orders the wine and sits the most senior or important guests nearby at formal events, though casual meals have no fixed seating rules.
-
-Payment norms are clear but vary by context. If one person extends the invitation, they are expected to pay. In working lunches where both parties benefit equally, splitting the bill is common, though it can feel slightly awkward. To avoid confusion, the host should state upfront that the meal is on them. Dinners are often scheduled earlier than in many other cultures, so plan accordingly and confirm timing when arranging the meeting.

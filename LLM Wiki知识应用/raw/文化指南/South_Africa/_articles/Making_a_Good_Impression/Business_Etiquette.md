@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Respect in South African business settings is often expressed less through elaborate formality and more through showing up properly: greeting people fully, acknowledging them as individuals, and not rushing relational steps before moving to the agenda. In many contexts, especially where ubuntu remains a widely legible reference point, personhood is understood through relationship. Starting a meeting with genuine acknowledgment of the people in the room, asking how they are, and taking a few moments before diving into business reflects this relational grounding. A colleague from a culture where meetings begin with immediate task focus may read this as inefficiency, while a South African counterpart may read a swift transition to business as dismissive or transactional.
-
-Communication around sensitive topics requires care. South Africa's transition out of apartheid, including the Truth and Reconciliation Commission, has kept concepts like truth, accountability, and repair culturally legible. This history means that moral and ethical framing is often present in public and professional life, and that race, inequality, and historical injustice remain highly charged. Offhand remarks, stereotypes, or jokes on these subjects can land with far more weight than intended. When responsibilities or commitments are at stake, ethical clarity is often valued. Naming impacts and obligations plainly, rather than obscuring them in corporate language, tends to resonate.
-
-Expectations around directness, humor, and how much preface is needed before getting to substance vary widely across linguistic, community, and urban-rural lines. What works in Johannesburg may feel mismatched in a smaller town, and what feels appropriate in one cultural group may not translate to another. Rather than assuming a single South African style, invite preferences openly and adjust as the conversation develops.

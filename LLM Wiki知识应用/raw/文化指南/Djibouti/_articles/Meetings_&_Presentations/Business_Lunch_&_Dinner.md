@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Djibouti tend to be modest affairs, and the choice of venue often depends on the sector and formality of the relationship. Established hotels with international clientele are a reliable option when hosting visitors, as they offer familiar standards and privacy. Local restaurants can be appropriate once a working relationship has developed, but visitors should follow their host's lead. Meals are not rushed. Conversations may begin with personal topics or informal exchanges before any business discussion emerges, and this is particularly true at dinner. Trying to move too quickly into proposals or decisions can feel abrupt and may weaken the foundation of trust being built.
-
-Most restaurants will not serve alcohol, reflecting Djibouti's Islamic culture. International hotels are more likely to offer it, but even then it may be discreet or limited. If alcohol is available and your host declines, follow suit. Ordering it when your counterpart does not can create subtle discomfort, even if no objection is voiced. Tea or coffee is typically offered at the end of the meal and provides a natural moment to close the conversation without signaling impatience.
-
-Sharing food is common, and dishes may be placed in the centre of the table for everyone to serve themselves. Offering tastes to others or accepting what is offered shows goodwill. If you have dietary restrictions, mention them beforehand rather than at the table. Vegetarian options exist but may not always be extensive, and hosts will appreciate the chance to plan accordingly.

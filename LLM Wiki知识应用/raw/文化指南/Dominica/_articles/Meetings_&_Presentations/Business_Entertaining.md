@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Dominica remains uncommon in formal professional settings. Most business relationships develop through workplace interaction or community encounters rather than structured meals or hospitality events. The island's small size and tight social networks mean that colleagues and contacts often already know each other through family, church, or shared community life, which reduces the need for deliberate relationship-building occasions outside the office.
-
-When entertaining does occur, it tends to be casual and understated. A visiting colleague might be invited to a local restaurant or bar, particularly in Roseau, but the invitation usually comes after rapport has already formed through face-to-face meetings. The tone is relaxed and personal rather than transactional. Business topics may come up naturally in conversation, but they are rarely the main focus. Attempting to steer a social occasion toward formal negotiation or strategic discussion can feel forced and may prompt the Dominican host to withdraw slightly from the exchange.
-
-Reciprocating an invitation is appreciated and seen as a sign of goodwill, but it is not expected immediately. A visiting professional who offers to host a meal or buy a round is likely to be well received, provided the gesture feels genuine rather than performative. In practice, many business visitors to Dominica find that effective relationship-building happens more reliably through consistent, respectful presence in meetings and workplaces than through orchestrated social events.

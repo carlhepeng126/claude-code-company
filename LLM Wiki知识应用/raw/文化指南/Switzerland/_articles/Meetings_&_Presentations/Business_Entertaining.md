@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in Switzerland tends to favor formats that create warmth without overstepping boundaries. The apéro, a pre-meal gathering with drinks and small bites such as cheese, strikes this balance well. It offers a chance to connect in a relaxed way without the commitment or intimacy of a full evening. The format is widely recognized, easy to repeat, and reflects a broader Swiss preference for social interactions that are contained and considerate. Lunch meetings are common, often working-style and alcohol-free, especially in Zurich and Geneva. Dinner is more formal and may involve fine dining, though invitations are usually deliberate rather than spontaneous, and evenings rarely extend late.
-
-Privacy shapes the rhythm of Swiss entertaining. Familiarity deepens through repeated, reliable contact rather than immediate disclosure. Small talk before business is expected, but personal questions can feel intrusive. Avoid topics such as Swiss neutrality, the country's wartime role, the military, or women's rights unless your counterpart raises them. If dining out, let your host recommend a Swiss wine. The Swiss take pride in their wines, and since little is exported, you are not expected to know them. If you are hosting, choose a stylish or international restaurant over a traditional fondue spot unless your guest requests it.
-
-Regional differences in tempo and expressiveness are real. A dinner in Geneva or Lausanne may feel different from one in Zurich, Basel, or Ticino. Local rhythms also matter. Sundays and designated quiet periods are respected across the country, and what counts as considerate timing for social plans can vary by canton. Arriving on time, confirming plans clearly, and leaving at a reasonable moment are all read as forms of respect. Restraint in timing and tone helps entertaining feel natural rather than intrusive.

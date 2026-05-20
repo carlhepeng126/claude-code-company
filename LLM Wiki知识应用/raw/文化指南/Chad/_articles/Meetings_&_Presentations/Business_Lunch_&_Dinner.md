@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Chad are opportunities to build trust, not places to advance an agenda. Relationships develop over time, and meals offer space for that gradual process. Expect conversation to begin with personal topics like family, health, or current events. Jumping into business early may feel transactional and can stall the relationship before it begins. A colleague from a culture where time is tightly structured and meetings follow clear agendas may find the pace slow or indirect. From a Chadian perspective, a visitor who moves quickly toward proposals without first establishing personal connection may seem uninterested in the relationship itself.
-
-The meal itself often reflects Chad's Arabic and Sahelian influences. Dishes like grilled meat, rice, millet-based preparations, and stews are common. Meals may be served communally, with shared plates placed in the center of the table. If bread is offered, break off pieces with your right hand rather than using your left, which is considered inappropriate for eating. Watch your host for cues on how to begin and when to serve yourself.
-
-Chad is a predominantly Muslim country, and alcohol is rarely served. Tea, especially sweet green tea, is a staple and often signals a shift in tone or the winding down of conversation. Meals are not rushed. Courses arrive slowly, and the rhythm encourages conversation rather than efficiency. Pressing to finish or glancing at your phone may suggest impatience and undermine the goodwill being built. If you have dietary restrictions, mention them discreetly in advance rather than at the table.

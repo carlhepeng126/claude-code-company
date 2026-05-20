@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Guyana, initial professional interactions tend toward formality, shaped by the country's British colonial legacy and a workplace culture that values respect for hierarchy and seniority. Titles are used routinely. "Mr." and "Mrs." paired with the surname are standard, and professional titles such as "Doctor," "Engineer," or "Professor" are expected when applicable. Using a first name too soon, particularly with someone senior or older, may come across as presumptuous. Wait for the other person to suggest a shift to first names, which often happens once rapport is established but is never assumed.
-
-This formality functions as a marker of professional respect rather than distance. In government ministries or older private firms, titles continue to be used consistently throughout a working relationship. In newer sectors such as tech or international NGOs, or among younger professionals, the shift to first names may happen more quickly, but even there, initial introductions follow formal conventions. A colleague accustomed to immediate first-name use may read Guyanese formality as overly stiff, while someone from Guyana may interpret a quick move to first names as casual to the point of disrespect, particularly if directed toward a senior figure.
-
-In written communication, formality remains the default. Emails often open with "Dear Mr. [Surname]" or "Dear Dr. [Surname]," and closings such as "Yours sincerely" or "Kind regards" are standard. Even in routine exchanges, maintain the same level of address until the relationship clearly shifts. Dropping the title without invitation can undermine credibility before the work has even begun.

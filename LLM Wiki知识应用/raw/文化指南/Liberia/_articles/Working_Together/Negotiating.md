@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiation in Liberia draws on Palava Hut traditions, where the goal has long been to restore working relationships, not just extract terms. This shapes how many Liberians approach commercial discussions today. Agreement feels legitimate when it leaves both parties able to live with the outcome and with each other. That means proposals that allow for face-saving adjustments and mediated solutions often move further than those that corner someone into a binary yes or no. If you present an offer as final and non-negotiable too early, you may close down the very flexibility that keeps the conversation open.
-
-How you arrive at the table also affects credibility. In many settings, acknowledgment of seniority or the use of a respected intermediary demonstrates that you understand how legitimacy works. Bypassing that step can stall progress before terms are even discussed. Once at the table, argument tends to land when it feels grounded in something real. Narrative, concrete examples, and moral framing often persuade more effectively than abstract logic alone. If your proposal can be told as a story with visible benefit and fairness, it gains traction.
-
-Recent history has also sharpened a preference for the actionable over the aspirational. The Ebola response taught many Liberians to look for clear messaging and follow-through. Proposals that feel practical and specific are more likely to be taken seriously than those built on vague incentives or distant timelines. If you want credibility, show what will happen and when, then deliver on what you said you would do.

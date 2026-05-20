@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional appearance in the Democratic People's Republic of Korea is closely tied to political loyalty and collective discipline. What you wear reflects not only personal presentation but also alignment with the state's values and respect for national symbols. Clothing choices are monitored and regulated, and deviation from approved norms can invite scrutiny or worse. Understanding these expectations means recognizing that dress codes function as a visible statement of ideological conformity, not personal style.
-
-Men typically wear dark suits with white shirts and subdued ties in formal settings, while women wear conservative suits, blouses with skirts, or modest dresses. Bright colors, overly Western styles, or anything perceived as individualistic or immodest can be seen as politically suspect. This extends to hair length, accessories, and grooming. Even minor departures from the norm, such as jeans or casual wear in professional contexts, may be interpreted as disrespect toward the state or the occasion. For foreign professionals, dressing conservatively and formally is essential. Aim for understated, well-tailored clothing in neutral tones, and avoid anything that might be read as attention-seeking or culturally insensitive.
-
-The pin bearing the image of state leaders, worn over the heart, is a mandatory accessory for North Korean nationals in most professional and public settings. Foreigners are not expected to wear it, but acknowledging its significance without comment is appropriate. In contexts where interaction with local officials or counterparts occurs, matching their level of formality signals respect for the setting and the seriousness of the engagement.

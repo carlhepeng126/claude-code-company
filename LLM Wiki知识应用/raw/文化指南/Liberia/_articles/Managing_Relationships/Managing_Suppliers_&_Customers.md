@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Reputation in Liberia moves through networks as story, not as credential. Who kept their word under pressure, who handled a delivery problem with respect, who is "straight" in their dealings — these narratives circulate quickly and shape whether future business happens at all. A buyer or supplier may ask around about you before formal negotiations even begin. This means continuity and respectful repair after a problem can be more valuable than a flawless first interaction. If something goes wrong and you address it openly and fairly, that response becomes part of the story people tell about you.
-
-Outside Monrovia, who you greet first and who you consult before beginning work can affect whether you are seen as legitimate. In county contexts especially, acknowledging local authority — chiefs, community leaders, or elders — is social groundwork, not protocol. Skipping this step can quietly undermine trust even if contracts are signed. A colleague accustomed to starting work immediately after a written agreement may see this as delay, while a Liberian counterpart may see it as the only way to ensure cooperation and respect once delivery begins.
-
-Language choice also manages the relationship. Switching from Kolokwa (Liberian English) to formal English can signal a shift from warmth to official seriousness, or from closeness to professional distance. Suppliers may use this shift to recalibrate tone when a conversation becomes sensitive. Paying attention to these changes helps you read how the relationship is being positioned at any given moment, and adjusting your own register can ease responsiveness without changing the content of what you say.

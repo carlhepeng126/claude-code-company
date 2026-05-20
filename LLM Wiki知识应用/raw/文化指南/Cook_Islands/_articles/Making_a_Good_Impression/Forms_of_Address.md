@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-The Cook Islands workplace runs on first names and informality from the outset. Titles are rarely used, even when addressing senior leaders or government officials. This reflects the small size of the islands and the closeness of community life, where nearly everyone is connected through family, church, or long-standing association. Formality can create distance, and distance runs counter to the relational fabric that holds professional and social life together. A visiting consultant who opens an email with "Dear Mr. Tunui" may find the reply signed simply "Kia orana, Tama." Using first names quickly shows you understand how things work.
-
-That ease should not be mistaken for a lack of respect. Respect is shown through tone, attention, and acknowledgment of relationships, not through honorifics. Elders and those in senior roles are still treated with deference, but this is expressed in how you listen, how you frame requests, and whether you take time to greet properly. A colleague from a culture where titles signal professionalism may read the informality as casual or even careless. In return, someone from the Cook Islands may find the use of surnames and titles unnecessarily rigid, a signal that rapport has not yet been established.
-
-Greetings matter more than formality. A warm "kia orana" (hello, literally "may you live") often opens exchanges, in person and in writing. Taking a moment to ask after someone's family or acknowledge a shared connection before moving to business shows you value the person, not just the transaction.

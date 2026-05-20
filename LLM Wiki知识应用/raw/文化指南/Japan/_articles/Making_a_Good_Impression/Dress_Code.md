@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Standard office dress in Japan tends toward the conservative and coordinated. Men typically wear dark suits with white or pale shirts and simple ties. Women choose modest, neat outfits. Shoes and bags are often high quality but not flashy. This visual uniformity reflects a broader cultural expectation that individuals represent the organization, not just themselves. Dressing in a way that blends rather than stands out reinforces group cohesion and signals seriousness about the relationship. In certain industries, this goes further. Uniforms are common across retail, hospitality, and some office roles, visibly expressing the idea that everyone is part of the same collective effort.
-
-Government-led Cool Biz campaigns have introduced seasonal flexibility, normalizing lighter dress during hot months to save energy. In many offices, this means no tie and no jacket, though the overall expectation still leans tidy and coordinated. The shift is practical but also culturally managed. People adjust together, following a shared understanding of what is appropriate for the season rather than individual preference. If your Japanese colleagues are in Cool Biz mode, matching their level of formality shows you can read the context and adapt.
-
-For first meetings, aim for conservative business formal unless your partners explicitly indicate otherwise. Avoid loud patterns or statement pieces early on. Understated professionalism tends to strengthen credibility. Plan footwear with shoes-off scenarios in mind. In traditional venues, some meeting spaces, and almost all homes, you will remove outdoor shoes. Clean socks and easy-to-remove footwear are small but noticeable details that demonstrate cultural awareness.

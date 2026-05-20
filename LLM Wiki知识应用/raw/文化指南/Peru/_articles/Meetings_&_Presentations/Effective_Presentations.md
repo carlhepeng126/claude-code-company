@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Peruvians often respond to presentations that move beyond bullet points and technical detail to tell a story with purpose. The country's strong tradition of embodied performance and collective ritual — visible in festivals, processions, and community ceremonies — means people are used to meaning being transmitted through narrative and symbolism, not only text. A presentation that connects ideas to place, lived reality, or the broader reason for doing something will feel more culturally legible than one that simply lists features and costs. Frame your message as a journey: establish context, explain the purpose and its implications for people, explore options, and close with a clear recommendation.
-
-Keep language grounded and visually simple, especially when presenting to mixed audiences. Educational pathways vary widely, and linguistic backgrounds can differ within a single organization. Some attendees may have experienced stigma around accent or mother tongue, so clarity means building shared meaning, not adding layers of jargon or dense slides. Use real examples, plain recaps, and visuals that support rather than compete with what you're saying.
-
-Peruvians value a balanced tone: confidence paired with humility travels better than aggressive persuasion or over-polished performance. You are being evaluated as a person, not just a representative of your company, so showing respect and approachability matters as much as having the right answer. It's acceptable to acknowledge risks or trade-offs, provided you offer a path forward. Peruvians can be skeptical of proposals that sound too optimistic, and you'll gain more credibility by acknowledging complexity than by overselling certainty.

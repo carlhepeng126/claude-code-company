@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Achievement in Uganda is socially shared. People work with the knowledge that their progress reaches beyond the office: families have often invested deeply in education, communities expect contribution, and doing well means creating opportunity for others. Success becomes something you do with and for people, not in isolation. A manager who recognizes that someone stayed late not just to complete a report, but to make sure the team could move forward, names something that already feels true.
-
-Recognition works best when it honours reliability, care for colleagues, and stepping up when needed, not only high-profile wins. Praise should be specific and given in a way that dignifies. Sarcasm or blunt critique, even delivered with good intentions, can threaten face and undo trust. A colleague from a workplace culture where directness and tough feedback are valued might read this as inefficient or overly cautious. From a Ugandan perspective, that same bluntness can feel disrespectful and disconnected from the relational foundation that makes collaboration possible.
-
-Linking goals to a narrative that shows why the work matters, who it serves, and how it contributes to something larger than a quarterly target can unlock commitment more effectively than metrics alone. Faith communities and the long-standing cultural prestige of education both shape how meaning is made, and these reference points show up at work. Predictable support and consistent standards often motivate more deeply than high-intensity rallies or aggressive timelines. Creating stability, not urgency for its own sake, helps people bring their full effort.

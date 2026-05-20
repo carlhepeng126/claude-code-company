@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Cuba are less about negotiating deals and more about building the personal trust that makes deals possible. In an environment shaped by decades of economic uncertainty and limited institutional reliability, knowing someone personally before doing business with them reduces risk. Meals offer a chance to assess character, hear someone's story, and establish whether you will stand by your word when formal structures cannot enforce it. Expect conversation to stay personal and exploratory for much of the meal. Business topics may arise organically, but pushing for commitments too early can signal that you see the relationship as purely transactional.
-
-The setting matters. Many business meals take place in hotel restaurants or paladares, privately run eateries that have grown more common since economic reforms allowed small-scale private enterprise. Paladares often serve home-style Cuban dishes like ropa vieja (slow-cooked shredded beef), arroz congrí (rice and black beans), or tostones (fried plantain), and choosing one can show respect for local entrepreneurship. Meals are typically unhurried. Courses arrive slowly, conversation flows in its own time, and rushing through either may be read as impatience with the relationship itself.
-
-Alcohol is widely available and rum, especially served neat or in cocktails like mojitos or Cuba libres, is common. Declining a drink is usually accepted without issue, but joining in can ease conversation. The host will typically settle the bill, and attempting to split it may create awkwardness. If you have been hosted, reciprocate at a later meal rather than in the moment.

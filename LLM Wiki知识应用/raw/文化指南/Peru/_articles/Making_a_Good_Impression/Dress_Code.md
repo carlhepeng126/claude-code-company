@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In Peru, what you wear can be read through a layered cultural register: urban versus provincial identity, formality shaped by Lima's status-conscious professional culture, and practical adaptation to strikingly different climates across the coast, highlands, and Amazon. Business settings in Lima and other large cities tend toward conservative formality. Men wear well-cut suits in neutral tones, paired with light shirts and a tie. Polished shoes are expected. Women choose tailored suits or dresses that fall below the knee, often with heels and refined accessories. The emphasis is on understated elegance rather than showiness, but the quality and fit of your clothing will be noticed. In a culture where hierarchy and position shape first impressions, appearance becomes one early signal of seriousness and respect for the relationship.
-
-Regional and Indigenous clothing holds real cultural prestige. Textiles, hats, and styles tied to specific communities represent lineage and identity, not just folklore. These may appear in daily life or be reserved for ceremonial occasions, depending on context. Urban Peru is hybrid: Lima and other cities blend global streetwear, professional dress, and visible regional aesthetics in the same office building or meeting space. Treat this range as normal, and avoid any framing that positions Indigenous or regional dress as exotic. If you're working across regions or with multi-regional teams, choose professional attire that reads as respectful and context-sensitive without appearing performative.
-
-Climate will shape practical choices. Coastal areas can be warm, the Amazon humid and hot year-round, and the highlands cold. Locals adjust accordingly, but in formal business settings, the expectation remains: dress with care, and dress well.

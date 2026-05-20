@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Professional interactions in Haiti are rooted in dignity, relationship, and social awareness. Greetings are taken seriously. Expect handshakes accompanied by direct eye contact and a genuine exchange of pleasantries. Asking about someone's family or health is welcomed, and rushing past this opening to get to business can come across as cold or transactional. These moments build the relational foundation that allows work to progress smoothly, particularly in settings where trust determines whether cooperation will follow.
-
-Titles and formality reflect respect for hierarchy and education. Addressing someone as *Monsieur*, *Madame*, or by their professional title (Doctor, Director, Engineer) acknowledges their standing. First names are used once invited, and moving to informal address too quickly can feel presumptuous. This is especially true when working with older professionals or in formal institutions, though younger colleagues in urban centers may shift to first names more readily.
-
-Public disagreement is rarely direct. Critique, especially in front of others, risks causing embarrassment and can damage a working relationship. If a colleague deflects or offers a vague reply, they may be signaling hesitation without outright refusal. When working with professionals from cultures where disagreement is voiced openly, this indirectness can be misread as evasiveness or lack of clarity. From a Haitian perspective, the abruptness of a flat "no" can feel disrespectful. Listening for tone and hesitation, and following up privately when possible, allows space for honest conversation without loss of face.

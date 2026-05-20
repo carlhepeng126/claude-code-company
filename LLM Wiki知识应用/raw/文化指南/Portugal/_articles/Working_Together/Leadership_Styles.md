@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Portuguese leadership combines clear hierarchy with relational warmth. Authority is expected and generally accepted, especially in family businesses, government bodies, and older institutions, but it is expressed through steadiness and measured presence rather than high-intensity charisma. Titles and formal address—*senhor* or *senhora*, and often *Doutor* or *Doutora* as a social honorific tied to education or status—remain socially active markers of respect. These formalities reflect an enduring expectation that seniority and expertise will be acknowledged openly, even as relationships grow more familiar over time.
-
-Leaders are valued for their ability to get things done, often under pressure, and for their skill in forming genuine connections across the organization. The ability to multitask, solve problems pragmatically, and follow through calmly builds credibility. Risk is approached with caution, and a leader who can balance vision with prudence earns trust. While decisions are often centralized, effective Portuguese managers typically consult before finalizing direction—inviting input to preserve dignity and group cohesion, even when the final call rests with them.
-
-In family-run companies, nepotism is common and socially normalized. A family member may be brought into leadership regardless of formal experience, and while this can create frustration among non-family staff, it is widely understood as loyalty to kinship over meritocracy. When working across mixed seniority groups, deference cues—turn-taking, careful forms of address—should remain visible. Let local colleagues guide the pace at which formality softens. Challenge substance when needed, but do so with tact: firm reasoning delivered with gentleness preserves both the point and the relationship.

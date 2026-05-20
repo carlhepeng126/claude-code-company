@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-In Indonesia, formal decision authority sits with the most senior person, but securing that decision often depends on stakeholders who may not appear on the organisation chart. The ideal of *musyawarah* (deliberation toward consensus) coexists with systems of patronage, where family ties, political allegiances, and business networks shape outcomes. A director may convene department heads for consultation, but the final call rests with them. At the same time, a project signed at that level can stall if a silent veto player — a senior bureaucrat, a local powerbroker, or a political backer — remains unconvinced. The reverse also holds: an informal signal from the right patron can move a decision forward faster than any formal approval. Understanding who really needs to be on board means asking not just for titles, but for names.
-
-This layered reality becomes more pronounced across Indonesia's regions. A national policy agreed in Jakarta may be reinterpreted by governors, district heads, and village officials according to local politics, capacity, and relationships. The same decision can look very different in Sumatra, Java, or Papua. For international teams, this means planning beyond the signing ceremony. A colleague used to streamlined approvals may find the pace frustrating and assume progress has stopped, while Indonesian counterparts may see the time as necessary to bring the right people along. From the other side, rushing a decision can signal impatience and weaken your position, giving counterparts room to renegotiate terms.
-
-To move a decision forward, ask partners directly: *Siapa saja yang perlu diajak bicara?* ("Who else needs to be involved?"). Build time for both formal sign-offs and informal conversations. If implementation depends on regional actors, secure their interpretation and commitment early, not after the contract is signed.

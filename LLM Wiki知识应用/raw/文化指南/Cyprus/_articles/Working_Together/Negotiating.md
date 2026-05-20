@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiations in Cyprus move more slowly than the pace many international visitors expect, and the reason is relational. Business decisions here are built on personal trust and long-term connection, not just the terms on paper. Cypriots want to know who they are working with before they commit, which means time will be spent building rapport, often over coffee or a meal, before the substance of the deal is fully addressed. Colleagues from cultures where efficiency is signaled through speed may find this frustrating, while Cypriots may read a push for rapid closure as transactional or even disrespectful. If you move straight to numbers and deadlines without first investing in the relationship, you risk stalling the process rather than accelerating it.
-
-The discussion itself may loop back on points you thought were settled. This is common and reflects a preference for consensus and thoroughness rather than linear progress. An issue raised early on might resurface later, not because of indecision, but because new concerns have emerged or because key stakeholders were consulted in the interim. Flexibility is built into the process. Revisiting terms is a way of testing the strength of the agreement and ensuring all angles have been considered.
-
-Bargaining is expected. Presenting your final offer at the start leaves no room for the negotiation itself, which is where trust is demonstrated. Cypriots anticipate some back-and-forth, and the ability to make concessions is seen as good faith. Build in margin for movement, and be prepared for the conversation to unfold over several meetings.

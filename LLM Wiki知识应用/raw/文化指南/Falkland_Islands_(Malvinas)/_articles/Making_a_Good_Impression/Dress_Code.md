@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Dress in the Falklands is guided by function and climate, not ceremony. The weather shifts frequently, temperatures remain cool even in summer, and wind is a constant. People dress for warmth and practicality first, and that logic extends into professional life. In offices, particularly government and public sector roles in Stanley, you'll find business casual as the baseline: smart trousers or skirts, collared shirts, knitwear. Full suits are rare and can read as overdone. The emphasis is on being neat and prepared for the conditions, not polished for show.
-
-This practical approach reflects a broader cultural preference for unpretentiousness. Islanders value competence and straightforwardness over status symbols, and clothing choices follow the same principle. Arriving overdressed for a meeting can create distance rather than credibility, signaling a misunderstanding of local priorities. A colleague from a culture where formality signals respect may initially interpret the relaxed dress code as informality in attitude, while Falkland Islanders may view tailored suits or polished accessories as unnecessary or even performative in a working environment where directness and results count more than presentation.
-
-Outdoor work settings, including farming and fisheries, demand fully weatherproof gear. Layering is standard, and waterproofs are non-negotiable. Even in Stanley, keeping a jacket close by is sensible. If you're visiting a site or joining a field meeting, dress for the elements. Turning up in office-only clothing suggests you haven't thought through the context, and that will be noticed more than any attempt at formality.

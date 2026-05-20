@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Eswatini is given with care for the person's dignity and for their place in the group. Public correction, even when mild, risks embarrassment and can damage both the individual's standing and the relationship with the manager. Hierarchy matters here, and a senior person's words carry real influence. That also means criticism, if delivered too directly or in front of others, can feel like a public loss of face. Managers who want feedback to be heard will deliver it privately, framing it gently and with reference to the person's value to the team. Praise, by contrast, can be shared more openly, especially when it reinforces collective effort and loyalty.
-
-Indirect phrasing is common, particularly when the message involves correction. A manager might ask a question or suggest a revision as a way of guiding the conversation without stating the problem outright. This allows the recipient to adjust without being told they have failed. For colleagues from cultures where feedback is expected to be specific and immediate, this can feel unclear or incomplete. From the Eswatini side, a blunt summary of what went wrong can feel unnecessarily harsh, even disrespectful, when a softer approach would have achieved the same outcome without damaging trust.
-
-Coaching is often relational rather than transactional. A manager who has built trust over time, who knows something of a person's family or community ties, will find it easier to offer guidance that is taken seriously. One-off feedback sessions or anonymous performance systems may feel impersonal and disconnected from the social context that gives advice its meaning.

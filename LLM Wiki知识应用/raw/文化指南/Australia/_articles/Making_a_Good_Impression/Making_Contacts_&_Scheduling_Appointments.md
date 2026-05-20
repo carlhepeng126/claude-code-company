@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-First contact in Australia works best when it's warm without being overly formal. Australians value directness and accessibility, so a friendly, first-name email or phone call asking for a 30-minute conversation usually lands better than a long, carefully structured letter. This preference reflects a cultural wariness of pretension and hierarchy. People appreciate clarity and brevity over elaborate courtesy, and tone counts more than formality. That said, once a meeting is agreed, Australians switch to structured calendaring. Outlook invites, clear agendas, and confirmed times become the norm, because while the culture is relaxed in manner, it runs on visible efficiency and respects everyone's schedule.
-
-Personal networks still open doors, particularly through place-based or sector connections. School and university cohorts, professional bodies, sporting clubs, and industry groups form strong webs of recognition and reputation. In smaller cities or sectors like mining, agribusiness, or public service, people often know each other before you arrive, and a warm introduction from a mutual contact can accelerate trust. In larger cities or global firms, LinkedIn and cold outreach work too, but the approach should still feel human rather than transactional.
-
-Geography shapes scheduling more than many outsiders expect. Australia spans multiple time zones, and colleagues in Western Australia or remote areas may be managing fly-in fly-out rosters or fieldwork alongside office commitments. Offering flexible meeting slots and acknowledging time zone differences shows respect for these realities. School holidays, long weekends, and major sporting events also quietly shape availability, especially for senior professionals with families, so checking local calendars before locking in joint milestones helps avoid gaps in momentum.

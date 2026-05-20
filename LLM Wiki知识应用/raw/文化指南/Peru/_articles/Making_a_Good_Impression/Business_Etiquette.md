@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Peruvian business etiquette rests on reciprocity, dignity, and the steady layering of trust. Relationships develop through repeated, attentive exchanges rather than quick transactions. This stems partly from ayni, an enduring reciprocity logic rooted in Andean tradition, where showing up, contributing, and returning goodwill form the basis of moral standing. Colleagues are quietly assessing whether you participate in balance or simply extract. Follow through on small commitments, remember details from earlier conversations, and respond to gestures with similar effort. A colleague who sends an introduction or arranges a connection will remember whether you acknowledge it later.
-
-Communication is indirect, shaped by a desire to protect face and maintain harmony. Preferences are implied rather than stated outly. A soft "perhaps" or a shift toward general conversation may signal reluctance. Public bluntness, especially across class or regional lines, can feel shaming rather than efficient. Peru's internal conflict from 1980 to 2000 left lasting sensitivity around authority and recognition, particularly for communities that bore disproportionate harm. Tone matters. Keep critiques private, ask rather than instruct, and allow space for a colleague to adjust course without losing dignity.
-
-Hospitality anchors social connection. Shared food, whether ceviche by the coast or an Andean meal in the highlands, functions as an invitation into belonging. Declining an offer can feel like rejecting the relationship itself. If you must decline, do so warmly and briefly, perhaps suggesting another occasion, so your counterpart does not feel slighted. Receiving hospitality with genuine appreciation strengthens the relationship more than formal efficiency ever will.

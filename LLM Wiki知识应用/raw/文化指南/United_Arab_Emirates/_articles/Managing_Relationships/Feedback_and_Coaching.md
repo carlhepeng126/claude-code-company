@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In a culture that places dignity and honor at the center of professional life, feedback in the UAE is most effective when it protects the person even while addressing the problem. Good managers separate behavior from identity. They say "this report needs more depth," not "you are incompetent." The sharper the critique, the more essential it becomes to deliver it behind closed doors, ideally with a calm tone and enough time to rebuild the relationship in the same conversation. Public criticism, even if mild, can damage trust in ways that are hard to repair.
-
-The approach to feedback often differs between Emiratis and expatriates, shaped by how each group is positioned in the labor market. Leadership programs, scholarships, and secondments frame Emiratis as long-term investments in the country's future. Feedback to an Emirati professional may explicitly connect development to their role in serving the nation: "We're investing in you because we see you leading this area for the UAE in a few years." For many expatriates, especially those on shorter contracts, feedback ties more directly to renewals, bonuses, and job security. How blunt you can be, and in what terms, depends on this underlying reality.
-
-Some Emirati managers naturally frame feedback in Islamic or moral language, appealing to responsibility, intention (niyyah), trust (amanah), and fairness. This approach reaches beyond targets and metrics to touch conscience and duty. For expatriate managers unfamiliar with this register, it may be more effective to deliver difficult feedback through a trusted Emirati colleague who understands how to pitch it in terms that resonate locally and preserve dignity.

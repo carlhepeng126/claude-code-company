@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in South Africa often lands as a statement about personhood, especially when it touches on dignity. The country's moral vocabulary is shaped by ubuntu and the lived memory of apartheid, so correction delivered harshly or publicly can feel like a judgement on someone's worth or belonging. A manager from a setting where directness is expected might see this as overly sensitive, while a South African colleague might read blunt critique as disrespectful or even dehumanizing. The same exchange can carry very different weight depending on tone, setting, and the relationship already in place.
-
-Accountability lives inside relationship, not separate from it. In many communities, feedback is embedded in longer relational networks like family, church, union, or team. Mutual-aid institutions such as stokvels and burial societies enforce norms through repeated interaction and shared responsibility, not one-off interventions. This means coaching is rarely transactional. A single conversation may be revisited, discussed with others, or acted on only after consulting trusted voices outside the workplace. Managers who expect immediate behavioral change may need to allow time for this broader process to unfold.
-
-Respect cues shape how directness is interpreted. In many South African settings, especially across generations, bypassing proper greetings or disregarding seniority can make even useful feedback feel dismissive. The use of kinship titles for elders reflects how deeply these rituals run. Language adds another layer: with eleven official languages and differing politeness systems, a phrase that feels direct and efficient in one community may sound abrasive in another. Choosing private settings, keeping tone calm, and focusing on behavior rather than character helps feedback remain constructive. Inviting paraphrase and clarification ensures meaning is shared, not assumed.

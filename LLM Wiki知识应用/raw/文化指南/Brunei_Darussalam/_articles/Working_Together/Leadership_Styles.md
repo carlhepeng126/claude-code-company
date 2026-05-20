@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Brunei is shaped by two reinforcing traditions: the sultanate and Islamic principles of hierarchy and care. The Sultan holds absolute authority and is both head of state and religious leader, a dual role that anchors the expectation that leaders will be respected, obeyed, and entrusted with decision-making. This model extends into the workplace. Managers are expected to act with calm authority and a sense of responsibility toward those they lead. Decisions flow from the top, and open disagreement with a leader, especially in front of others, risks causing visible discomfort and a loss of face for both parties.
-
-This does not mean consultation is absent. Leaders often seek input from trusted individuals, usually in private and within established hierarchies. What may appear to a colleague from a culture where debate is encouraged as a lack of transparency is better understood as a way of protecting relationships and maintaining group harmony. Consultation happens, but it is selective and discreet. Public meetings are more likely to confirm decisions than to contest them. A manager from a more participative environment may mistake this for passive agreement, while Bruneian professionals may view open challenge in meetings as disrespectful or poorly timed.
-
-Younger professionals, particularly those educated abroad or working in multinationals, may expect more collaborative styles. But even in these settings, seniority and formal authority remain central. A leader who delegates too quickly without establishing trust and demonstrating competence first may be seen as uncertain rather than empowering.

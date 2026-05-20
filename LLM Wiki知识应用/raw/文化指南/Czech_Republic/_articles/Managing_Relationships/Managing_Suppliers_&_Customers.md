@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Czech suppliers, particularly in engineering and manufacturing, often view themselves as co-designers, not just contract producers. They expect to be asked how they would improve a specification, refine a timeline, or solve a technical problem, and they value partners who treat their expertise as an asset rather than an inconvenience. Bringing a supplier into design or risk discussions early acknowledges this identity and often unlocks better solutions. A manager from a culture where supplier relationships are purely transactional may find this expectation of involvement slow or unfamiliar, while a Czech partner may interpret a refusal to consult as a sign of arrogance or disrespect for their capability.
-
-Memory runs long in Czech business relationships. Firms remember which partners stayed during the 2008 financial crisis or the disruptions of COVID, and which cancelled contracts abruptly. That history of reliability, of being what Czechs call a slušný partner (a decent, honourable partner), often outweighs small pricing differences when contracts are renewed or new opportunities arise. If you need to reduce volumes or renegotiate terms, communicate early and clearly. How you behave in a crisis shapes whether the relationship survives it.
-
-Czech customers scrutinize both quality and attitude. They are often demanding but become loyal once they feel treated as equals and see that you keep your word. Plain, technically credible communication builds trust more effectively than glossy marketing language. Trust itself accumulates through small promises kept: a callback at the agreed time, a technician arriving when expected, an honest admission of a mistake followed by a fix. These details matter more than grand gestures, and over time they create the goodwill that allows a relationship to weather the inevitable problem.

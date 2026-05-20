@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Grenada flows along personal lines first, shaped by a society where everyone knows someone and relationships anchor trust. Projects move through informal networks as much as formal roles, and people expect colleagues to connect at a human level before collaboration deepens. A manager from a culture where tasks drive relationships may wonder why a team seems slow to move until they realize Grenadians prefer to know who they are working with, not just what needs doing. Conversely, Grenadians may read a task-first approach as cold or dismissive, a sign that the person values output over people. Building team cohesion means making time for conversation outside the agenda.
-
-Hierarchy exists, but it softens through warmth. Senior team members guide more than they command, offering input that feels advisory rather than directive. Direct instruction can feel too blunt, so leaders often model behavior or share stories that allow others to draw their own conclusions. This preserves face and lets junior colleagues learn without feeling exposed. In practice, this means giving feedback privately and framing critique as collective learning rather than individual correction.
-
-Team success reflects collective harmony, and public praise typically acknowledges the group rather than singling out individuals. Highlighting one person can create discomfort or imply others contributed less. If recognition matters, name the team's effort and then speak with individuals later. This approach protects dignity and keeps morale steady, especially in small communities where word travels quickly and reputation holds weight.

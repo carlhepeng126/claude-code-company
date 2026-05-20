@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional dress in Botswana is conservative and formal, particularly in corporate, government, and diplomatic settings. Men wear suits with ties, and women choose tailored dresses, skirts, or trousers with blouses. This formality reflects the respect accorded to hierarchy and the seriousness with which professional relationships are approached. First impressions matter, and dressing well signals that you take the meeting and the relationship seriously. Showing up underdressed can suggest a lack of regard for the occasion or the people involved.
-
-Expectations shift depending on sector and setting. Mining, finance, and government offices maintain formal standards year-round, even in Botswana's heat. In contrast, tourism, NGOs, and creative industries allow more flexibility, with business casual becoming more common, especially among younger professionals. Even in these less formal environments, the emphasis remains on looking neat and considered rather than relaxed. If you are meeting someone for the first time or attending a formal event, err on the side of formality until you have a clearer sense of the setting.
-
-Heat and practicality shape how formality is managed. Lightweight fabrics and lighter colors are common, and jackets may be removed indoors once a meeting has begun. Women often wear sleeveless dresses or blouses, though these are still tailored and professional. Pay attention to what your counterparts wear and adjust accordingly over time, but begin with a polished, formal appearance to show respect for the relationship you are building.

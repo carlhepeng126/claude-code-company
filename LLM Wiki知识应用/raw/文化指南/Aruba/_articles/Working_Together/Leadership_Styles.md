@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Aruba tends to be personal, relational, and grounded in respect rather than rigid formality. Authority exists, but it is softened by the island's small size and the cultural expectation that leaders remain accessible and visible. Managers are expected to guide and decide, but also to know their people individually and to be available for conversation. This reflects broader Aruban values of warmth, connection, and community cohesion. A manager who keeps the door closed or issues instructions without personal engagement risks being seen as distant or out of touch, even if technically competent. The relationship comes first, and through that relationship, authority becomes effective.
-
-Consultation happens, but it does not always mean decision-making will be shared. Leaders often invite input as a way of maintaining harmony and showing respect, even when the outcome has already been shaped. This can create confusion for colleagues from cultures where consultation signals a more participative process. What looks like openness may function more as relational courtesy, a way of keeping the group intact and ensuring people feel heard. The leader still decides, but the manner of deciding preserves dignity and avoids confrontation.
-
-In practice, this means that disagreement is rarely voiced directly in group settings. If you lead a team in Aruba, inviting open debate in a meeting may be met with polite agreement, while the real concerns surface later, one-on-one. Building trust through informal exchanges, checking in personally, and allowing time for views to emerge outside formal channels will make decision-making smoother and more genuine.

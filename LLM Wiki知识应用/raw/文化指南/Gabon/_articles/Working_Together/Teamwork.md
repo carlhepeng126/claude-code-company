@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Collaboration in Gabon typically unfolds through personal relationships and respect for seniority. Teams often rely on informal networks and long-standing connections to coordinate work, and trust builds gradually through repeated interaction rather than being assumed at the outset. Senior colleagues often guide decisions quietly, and their input is expected before the group moves forward. This reflects a broader cultural preference for consensus shaped by hierarchy, where junior team members may defer to older or more experienced colleagues even when formal roles suggest otherwise.
-
-In practice, this means that project timelines may need to accommodate relationship-building and consultation before visible progress occurs. A colleague from a culture where tasks are delegated quickly and executed independently may see this as hesitation or lack of initiative. From a Gabonese perspective, moving ahead without checking in with key figures or building alignment can seem disconnected or even disrespectful. What matters is that the group understands the direction together, not that one person drives it alone.
-
-Open disagreement within the team is rare. When concerns arise, they are more likely to be raised privately or through an intermediary than in a full group setting. This protects dignity and keeps relationships intact. If you notice a colleague going quiet during a meeting, it may signal unease rather than agreement. Following up one-on-one often reveals what went unsaid and allows the team to adjust without anyone losing face in front of others.

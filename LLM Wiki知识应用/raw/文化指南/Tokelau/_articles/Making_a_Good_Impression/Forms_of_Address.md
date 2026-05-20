@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Tokelau's approach to forms of address reflects the small scale and communal structure of its three atolls, where most people are connected through family ties, shared responsibilities, and long-standing relationships. In formal or public contexts, particularly when interacting with elders or village leaders (taupulega), titles and respectful language are used to acknowledge age, role, and kinship position. However, the culture places less emphasis on formal honorifics than on the quality of the relationship and the context in which you are speaking.
-
-In everyday settings, first names are common, but the tone and manner of address shift depending on who is present and what is being discussed. When addressing an elder or someone in a leadership role, a respectful prefix or family-based term of address may be used, especially in public gatherings or community meetings. This reflects the centrality of collective decision-making and the cultural expectation that certain voices are acknowledged before others speak. A colleague from a culture where hierarchy is expressed primarily through titles may find this approach informal, while someone from Tokelau working in a more title-dependent environment may feel the reliance on designations rather than relationship creates unnecessary distance.
-
-In written communication or official correspondence, formality increases, particularly when representing the village or engaging with government bodies. Even so, the expectation is not rigidity but appropriateness to the situation and respect for the people involved.

@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Nigeria open with greetings and personal conversation, and rushing past this phase to reach the agenda can be read as disrespect. This time is used to establish trust and to signal that you recognize the people in the room, not just the transaction. In cultures where meetings follow a tight agenda from the start, this can feel slow or indirect. From a Nigerian perspective, a colleague who moves to business matters without building rapport first may appear transactional or dismissive of the relationship that underpins any eventual agreement.
-
-Decisions rest with senior figures, and it can be common for those lower in the hierarchy to imply they have authority even when they do not. Bringing the right level of seniority to the table from the outset helps avoid repeated discussions. Important topics are addressed first and revisited until consensus is reached, so an agenda may serve more as a guide than a fixed sequence. Avoiding promises you cannot keep and listening more than you speak both help establish credibility in a context where character is being assessed alongside competence.
-
-Timing is shaped by infrastructure and obligation. In Lagos especially, traffic can reshape schedules in ways that are structural rather than attitudinal. Across Nigeria, weddings, funerals, naming ceremonies, and religious commitments anchor the week and can take precedence over planned meetings. Prayer times and Friday or Sunday observances are not flexible. Stating clearly when timing is essential and confirming logistics in advance helps navigate a rhythm that is built around relationships and city realities, not abstract punctuality.

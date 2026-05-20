@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Being invited to a Swedish colleague's home, particularly to a country cabin, usually reflects a genuine personal connection rather than professional courtesy alone. Many Swedes maintain a clearer separation between work and home than colleagues from cultures where hospitality and business relationships develop more fluidly together. The home is seen as private space, so an invitation represents a shift toward trust and friendship, not an extension of the meeting room. Colleagues from cultures where home hospitality happens earlier and more often might read this boundary as distance, while Swedes may find premature invitations premature or performative rather than sincere.
-
-Once inside, expect a more egalitarian dynamic than formal guest treatment. Shoes come off at the door, and guests are often invited to help with practical tasks like setting the table or clearing dishes. This reflects the broader Swedish preference for shared effort over hierarchy. A guest who waits to be served, or a host who refuses all offers of help, may create mild discomfort on both sides. Asking where to put your shoes and offering to pitch in naturally aligns with the cultural script.
-
-Gifts should be thoughtful but modest. Flowers, good chocolate, or something small from your home country work well. Oversized or expensive presents can feel awkward, even embarrassing, in a culture shaped by lagom, the principle of balance and avoiding excess. The goal is to acknowledge the gesture of hospitality without creating a sense of imbalance or show. A brief follow-up message of thanks after the visit completes the exchange warmly and appropriately.

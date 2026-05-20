@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Americans often move quickly. The cultural preference is to act rather than wait, and there is respect for someone who makes a call without needing to escalate it. The phrase "It's better to ask for forgiveness than permission" reflects a workplace expectation that people at many levels can and should decide without always seeking senior approval first. Speed is valued, and prolonged deliberation can be read as indecision or lack of confidence.
-
-That said, decision-making is rarely done in isolation. While individuals are empowered to act, they are also personally accountable for the outcome. If a decision goes wrong, the person who made it will be held responsible. This creates a dynamic where people want input and alignment before committing, especially on anything that involves risk. Group discussion is common, and consensus is often sought, not to dilute the decision but to share accountability and make sure key perspectives have been heard. The collaborative phase tends to be time-limited. If building agreement takes too long, the group will usually move forward anyway rather than let the process stall.
-
-For colleagues from cultures where decisions move through more formal consultation or require senior sign-off, the American pace can feel abrupt or premature. From the American side, a slower, more layered process may be read as hesitation or unclear ownership. In practice, it helps to clarify early on who will make the final call and what level of input is expected. Americans will usually appreciate being consulted briefly and directly, and they will expect a decision to follow soon after.

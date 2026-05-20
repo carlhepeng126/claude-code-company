@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Access to business contacts in Cameroon often depends on who you know rather than what you send. The country's colonial history under both French and British rule, followed by decades of highly centralized governance, has created professional environments where personal connections offer security and credibility that formal channels alone cannot. People are cautious about opening doors to strangers, so having a mutual acquaintance vouch for you can move things forward quickly. If you're trying to arrange a first meeting, start by asking colleagues or local partners to introduce you. A warm referral from someone already trusted can turn a tentative inquiry into a confirmed appointment.
-
-Once contact is established, expect scheduling to be more flexible than fixed. Meetings are typically arranged a week or two in advance, but confirming the day before is wise. Appointments may shift due to competing demands or the arrival of someone more senior. In Douala and Yaoundé, business moves faster and schedules may be tighter, but even there, other commitments can take precedence without much notice. If you're visiting from a culture where calendars are locked in early and changes are rare, this fluidity can feel unsettling. From a Cameroonian perspective, though, holding rigidly to a fixed time when circumstances have shifted can seem inflexible or disconnected from real priorities.
-
-Resist the temptation to stack meetings tightly. Leave buffer time between appointments and be ready to adapt if one runs long or starts late. Showing you can adjust without frustration signals you're serious about the relationship, not just the transaction.

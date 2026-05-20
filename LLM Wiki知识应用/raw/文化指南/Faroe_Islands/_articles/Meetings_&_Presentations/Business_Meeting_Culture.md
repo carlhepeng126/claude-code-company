@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in the Faroe Islands are typically arranged with little formality, often on short notice and sometimes without a detailed agenda sent in advance. This reflects the practical, relationship-based nature of business in a small society where people know one another and trust can be assumed more readily than documented. If you work in a culture where advance planning and written agendas are expected, this flexibility may feel unstructured. For Faroese professionals, by contrast, an insistence on rigid scheduling or extensive pre-meeting documentation can seem overly formal and disconnected from the reality of how decisions are made. Confirming the time and place a day or two ahead is usually enough.
-
-Once the meeting begins, expect a conversational tone. Small talk about weather, fishing conditions, or shared acquaintances is common and helps establish a sense of connection before turning to business. The discussion itself tends to be direct and informal, with participants speaking plainly about what works and what does not. Hierarchy exists but is understated. Senior figures are respected, yet younger or less senior colleagues may contribute openly if they have relevant knowledge. Silence is not uncomfortable. If a point needs consideration, people will take the time rather than fill the gap with talk.
-
-Decisions are rarely made on the spot. Even when agreement seems clear, follow-up is often needed to confirm next steps. This reflects a preference for consultation and consensus rather than unilateral authority. If you are used to meetings that end with clear commitments and timelines, allow space for this slower, more collective process to unfold.

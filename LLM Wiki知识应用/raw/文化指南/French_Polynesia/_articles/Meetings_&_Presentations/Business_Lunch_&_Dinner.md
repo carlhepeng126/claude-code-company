@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in French Polynesia follow a relaxed rhythm shaped by the Polynesian concept of *aita pea pea* (no hurry), which reflects a deeper cultural value placed on relationships over schedules. Rushing through a meal or moving quickly to business topics can feel transactional and may undermine the trust you're trying to build. Meals are seen as opportunities to connect personally, so expect conversation to wander through family, local events, and shared experiences before any work discussion emerges. If you're planning the timing of a business lunch around a tight afternoon schedule, build in extra time.
-
-The dining style itself tends to be informal and communal, even in professional settings. Sharing dishes or offering tastes to others at the table is common and reflects the broader Polynesian emphasis on collective life and generosity. This informality should not be read as a lack of professionalism. It reflects a preference for warmth and human connection in all interactions, including business ones. A colleague from a culture where formality signals respect might interpret this casualness as too familiar too soon, while someone from French Polynesia might find a more reserved dining style distant or cold.
-
-French and Polynesian influences both shape the food itself. You might encounter fresh seafood, tropical fruit, *poisson cru* (raw fish marinated in coconut milk and lime), or French-influenced dishes like baguettes and pastries. Restaurants in Papeete and tourist areas often serve alcohol, though it's less common in smaller, more traditional settings. If you're unsure, check in advance or follow your host's lead.

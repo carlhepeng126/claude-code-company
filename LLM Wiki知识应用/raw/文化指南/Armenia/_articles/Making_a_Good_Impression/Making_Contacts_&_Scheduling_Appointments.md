@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-In Armenia, business relationships begin with establishing a sense of who you are and how you connect to people already known and trusted. This reflects a history shaped by close community ties and periods when formal institutions were fragile or unreliable. People want to understand not just your role but your intentions and your network before moving forward. A personal introduction from a mutual contact makes a meaningful difference. It might take the form of a colleague arranging a coffee, a phone call to vouch for you, or an invitation to a shared meal before any formal meeting is set. Starting without that link means investing more time upfront to build the same foundation.
-
-Email and phone calls are widely used to initiate contact, especially in Yerevan and within multinational companies, where processes often move more quickly. Younger professionals and those with international experience may be comfortable moving to business topics after a brief exchange. Outside the capital and in smaller enterprises, though, introductions through a trusted intermediary remain the more natural route, and the pace tends to be slower and more relational.
-
-When scheduling appointments, book at least a week or two in advance and reconfirm a day or two before. Avoid tight schedules. Meetings may start late, extend beyond the planned time, or include additional participants who weren't originally expected. These shifts reflect the priority placed on the relationship over the agenda. If you're in the country and already have some rapport, a respectful in-person visit can sometimes open a conversation more effectively than a series of messages.

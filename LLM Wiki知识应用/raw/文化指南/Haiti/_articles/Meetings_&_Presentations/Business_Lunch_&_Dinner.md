@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Haiti are opportunities to strengthen personal connection, and they unfold at a relaxed pace that reflects the relational foundation of professional trust. Conversations often begin with family, community, or shared interests before turning to work. Rushing this opening phase or steering the discussion quickly toward business may suggest that you view the meal as a transaction rather than a relationship, and that perception can quietly erode confidence. For colleagues from cultures where meals are structured around agendas or time limits, this rhythm may feel slow. From a Haitian perspective, a colleague who seems eager to move on may appear less invested in the relationship itself.
-
-Food is central to Haitian identity and hospitality. Dishes like *diri ak djon djon* (rice cooked with black mushrooms) or *griot* (fried pork) are often served at business meals, and accepting what is offered signals openness and respect. Declining without explanation, especially when a host has made an effort, can feel like a rejection of the gesture rather than just the dish. If you have dietary restrictions, it helps to mention them warmly and in advance, framing them as a practical matter rather than a preference.
-
-Alcohol may be offered, but many Haitians do not drink for religious or personal reasons. It's common to see rum served at some gatherings, particularly in less formal settings, but soft drinks and juice are always available. Following your host's lead avoids misreading the tone of the occasion. Business meals may take place at restaurants, but invitations to a colleague's home, though less frequent in initial stages of a relationship, reflect significant trust and should be treated as an honor.

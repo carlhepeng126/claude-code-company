@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leaders in Ivory Coast are expected to maintain a certain distance from their teams while remaining approachable and personally invested. The model draws on the traditional figure of the village chief: someone who commands respect and holds authority, but who also listens and helps solve problems when approached. A leader who achieves this balance will be invited to social gatherings and trusted for advice. The style is warm but not egalitarian. Authority comes through relationship, but the relationship itself must honour the difference in status.
-
-Higher up the hierarchy, this distance becomes more pronounced. Junior employees would rarely expect direct contact with senior executives, and involvement in strategic decisions is not assumed. Corporate structure in Ivory Coast is steep, and lower-ranking staff understand that access and influence are limited by level. This does not mean disengagement, but it does mean that consultation happens selectively and within recognised lines of authority.
-
-The figure of Didier Drogba offers a window into what leadership can achieve when it combines standing with relational credibility. When he appealed on national television in 2005 for an end to violence during the civil conflict, many Ivorians believe his words helped bring about a ceasefire. His influence crossed social and political divides because he was seen as someone who could reach people at every level, not through position alone but through earned respect and connection. This reflects a broader expectation: that effective leaders should be able to mobilise people through personal influence, not just formal power.

@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiations in the Falkland Islands reflect the directness and pragmatism of a small, isolated community where long-term working relationships often matter more than one-off transactions. People tend to value clarity and straightforwardness over formal process. Discussions are usually efficient and low on ceremony, shaped by a culture where everyone knows everyone and a reputation for reliability travels fast. There is little appetite for drawn-out formalities or elaborate positioning. If you have something to propose, say it plainly and be ready to answer questions directly.
-
-Trust is built through demonstrated competence and consistency rather than through prolonged rapport-building at the outset. Islanders are likely to judge you on whether you deliver what you promise and whether you understand the practical constraints of operating in a remote location. Overpromising or presenting unrealistic timelines will undermine your position quickly. A counterpart from a culture where negotiation involves extended relationship-building phases may find the pace uncomfortably brisk, while a Falkland Islander might view elaborate preambles as a waste of time or even evasive.
-
-Hierarchy is relatively flat, and decision-making authority is often concentrated in a small number of hands. If you are negotiating with someone, they are likely either the final decision-maker or very close to one. Expect decisions to be made with minimal bureaucracy, but do not mistake brevity for carelessness. People will want to understand the full picture before committing, and they will ask direct questions to test your knowledge and reliability.

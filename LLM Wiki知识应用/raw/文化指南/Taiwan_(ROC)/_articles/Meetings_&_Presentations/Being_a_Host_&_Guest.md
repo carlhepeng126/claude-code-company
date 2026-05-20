@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Taiwan reflects both personal warmth and family pride, rooted in temple and village traditions where offering tea, food, and small gestures of care has long been central to how people honour visitors. Coastal, mountain, and Indigenous communities have reinforced this ethos, anchoring hospitality in shared meals and rituals that express respect. This background means that hosting is rarely showy, but it is almost always thoughtful. A colleague who chooses the right restaurant, ensures a table near the window, or quietly pre-orders dishes suited to your dietary needs is demonstrating care and professionalism, not just convenience.
-
-When you are the guest, accepting at least a little of what is offered shows appreciation for the effort behind it. If you have dietary restrictions, explain them in advance and with warmth, framing them as a preference rather than a refusal. Leaving your plate entirely clean can suggest your host has not provided enough, so leave a small amount to show you have been well cared for. If you are hosting, ask local colleagues about appropriate venues and portions. Matching the level of hospitality you have received, rather than outdoing it, protects mutual face and keeps the relationship balanced.
-
-Bringing or sending a small thank-you gift after a home visit or significant meal is appreciated, particularly if you have been welcomed into someone's personal space. Flowers or something from your own country work well; avoid bringing prepared food, as it can imply the host has not provided enough. Avoid transactional behaviour. Spending time over a meal, responding to toasts even with tea or water, and staying until the gathering winds down all show you value the occasion and the relationship, not just the outcome.

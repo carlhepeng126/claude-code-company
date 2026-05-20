@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Titles matter deeply in Iraqi professional life because they make visible a person's education, family standing, or religious authority. "Doctor," "Engineer," "Ustad" (teacher or master), and tribal or religious designations like "Sheikh," "Sayyid," "Haji," or "Mawlawi" recognise status that extends beyond the workplace into the social order. Academic and professional titles acknowledge years of study in a context where education often required personal and family sacrifice; tribal and religious titles root a person in networks of kinship, faith, and influence that shape access and trust. Use the form you hear Iraqis use with each other and keep it until explicitly invited to relax. Dropping a title too early can be read as dismissing the person's standing or the effort it represents.
-
-Language choice adds another layer. Arabic is the default in federal Iraq; Kurdish (Sorani or Badini) is preferred in the Kurdistan Region. Many professionals use English in oil or NGO sectors, but assuming it is neutral can overlook deeper identity lines. Switching languages without checking preference, or addressing a Kurdish colleague in Arabic when Kurdish is their working language, may read as either careless or politically loaded. Ask discreetly which language people prefer for documents and substantive discussion, and follow that lead.
-
-Elders and religious figures expect visible deference, reflected in how they are addressed and the order in which they speak. Younger Iraqis may be informal among peers, but they adjust tone and form in the presence of seniors. Give elders and religious or tribal leaders early speaking turns in meetings and explicit acknowledgment of their input. Skipping this step can quietly derail local support, even if the formal agenda moves smoothly.

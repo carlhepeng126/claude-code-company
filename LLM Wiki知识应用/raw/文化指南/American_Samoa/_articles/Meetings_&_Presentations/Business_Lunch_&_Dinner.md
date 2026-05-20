@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in American Samoa happen less formally than in many corporate cultures and rarely take place in dedicated business restaurants. Most shared meals unfold in family-owned eateries, at community events, or in homes. Food in American Samoa is tied closely to *fa'asamoa*, the Samoan way of life, where eating together strengthens social bonds and reinforces collective identity. Inviting someone to share a meal is an act of inclusion that extends beyond professional obligation. It reflects a willingness to build relationship, not just advance a transaction.
-
-Meals are often communal. Large platters of roasted pork, taro, breadfruit, or palusami (taro leaves baked in coconut cream) are placed in the center, and everyone serves themselves. Sharing from a common plate reflects values of reciprocity and mutual support. Refusing food or eating only a small amount can suggest discomfort or distance, especially if the host has gone to considerable effort. Accepting what is offered, even if unfamiliar, shows respect for the relationship being built.
-
-Timing is relaxed, and meals may begin later than scheduled or extend well beyond the expected duration. This reflects a broader cultural pattern where relationships take precedence over rigid timetables. A colleague from a culture where punctuality and agenda-driven meetings are the norm may read this flexibility as disorganization. Someone from American Samoa, in turn, may perceive a tightly controlled meal schedule as emotionally detached or overly transactional. Business discussion may emerge gradually rather than at a set point in the meal, and pressing too early can disrupt the relational foundation the gathering is meant to establish.

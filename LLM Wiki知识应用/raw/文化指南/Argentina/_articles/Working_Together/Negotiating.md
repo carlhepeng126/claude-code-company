@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-In Argentina, negotiating means navigating layers of economic instability that shape every commercial conversation. Everyone at the table is calculating in at least two currencies and often tracking multiple exchange rates: the official peso rate and the informal blue-dollar rate. This is survival arithmetic, not gamesmanship. Proposals that lock in future payments or fix prices without indexation will be scrutinized for whether they expose your counterpart to hidden losses. Come prepared with transparent logic on currency, indexation and risk-sharing, and invite them to stress-test your offer against their lived experience of crisis. Frame your structure as mutual protection against chaos, not as an opportunity to exploit their vulnerability.
-
-You may also encounter what Argentines call *viveza criolla* (street-smart resourcefulness): exploratory questions about invoicing across jurisdictions, partial cash payments, or formalizing later. These are tests. Your counterpart is checking whether you are rigid, naive, or someone they can push past legal boundaries. Hold firm on compliance, but show that you understand why people look for side doors in an unpredictable system. Redirect that energy into creative, compliant structures rather than responding with blunt refusal.
-
-In union or supplier negotiations, expect public theater: banners, megaphones, symbolic strikes. Much of this performance is aimed at their own base, a way to demonstrate strength and legitimacy. Don't overreact or take it as a breakdown. Look for quieter, more private spaces to discuss substance once the show has served its purpose. Behind the performance, people care deeply about whether a deal feels fair and dignified in an unjust context, not just whether the numbers add up.

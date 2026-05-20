@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-A Croatian business lunch unfolds over courses, not minutes. Soup, main, salad, dessert, coffee, and often rakija (a fruit brandy served as a digestive) mark the rhythm of a proper meal. This structure creates room for conversation to shift from polite to substantive. Serious topics tend to surface between dishes, once initial reserve has eased and people have had time to gauge each other. Booking a restaurant with a tight turnaround or signaling that you need to leave quickly undercuts this process. The meal itself is doing relational work that a conference room cannot.
-
-Regional dishes feature prominently, and colleagues often point out which foods are "ours" and which belong to other parts of the country. Dalmatian fish, Istrian truffles, Slavonian kulen (a spiced sausage), or Zagorje specialties reflect local pride and identity. When someone recommends a dish or explains its origin, they are sharing more than a menu. Showing genuine interest, even if you are unfamiliar with the cuisine, signals respect for that regional attachment. A colleague from a culture where meals are brief and business-focused may read this attention to food as tangential, while Croatian colleagues may interpret a hurried or indifferent response as a lack of engagement with the relationship itself.
-
-While Croatia is formally Catholic, observance varies widely. Some colleagues, especially older or more religious ones, keep Friday fish traditions or abstain from meat during Lent. Many others do not. People rarely announce these preferences, but they notice when hosts never ask or when menus offer no alternatives. When organizing a meal, it helps to check discreetly about dietary preferences and to choose venues that include both fish and meat options, particularly around major Catholic seasons.

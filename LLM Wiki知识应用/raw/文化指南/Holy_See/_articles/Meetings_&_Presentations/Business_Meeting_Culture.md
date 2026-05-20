@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in the Holy See follow protocols shaped by centuries of formal diplomacy and the institution's role as both a religious authority and sovereign entity. Scheduling is usually formal and requires advance notice, often through official channels. Those seeking a meeting should be clear about the purpose and the level of representation required. Seniority is taken seriously, and invitations should reflect that. If you are meeting a department head or senior official, ensure your own delegation includes someone of comparable standing. Decisions rest with those in authority, so having the right people in the room from the outset avoids the need for repeated conversations.
-
-The tone during meetings is courteous and measured. Small talk may be brief or absent, particularly in early encounters, as the focus is on substance rather than relationship-building through informality. Participants speak with care, choosing words that reflect both precision and respect for the gravity of the issues being discussed. Interruptions are uncommon, and silence is given space. If you are used to fast-paced exchanges or expecting immediate reactions, you may find the rhythm slow. For those working in the Holy See, a colleague who speaks quickly or presses for on-the-spot commitments may seem impatient or insufficiently thoughtful.
-
-Expect little visible emotion or urgency, even on significant matters. This reflects a long institutional view, where decisions are considered in the context of enduring principles rather than short-term pressures. Pushing for rapid conclusions will not accelerate the process and may suggest a lack of seriousness. Follow-up is often formal as well, with written summaries or formal correspondence confirming what was discussed and any next steps agreed.

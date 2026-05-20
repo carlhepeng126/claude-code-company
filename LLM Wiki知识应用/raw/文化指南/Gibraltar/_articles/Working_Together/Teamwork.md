@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Gibraltar is shaped by the scale and closeness of a small community where reputation and relationships extend well beyond the workplace. In a territory where most people are only a few degrees of separation apart, team dynamics are shaped by the reality that colleagues are likely to know each other's families, share mutual friends, or have attended the same schools. This interconnectedness means that how you conduct yourself in a team has implications that reach far beyond the immediate project. Preserving relationships becomes a practical necessity, not just a cultural preference.
-
-Collaboration tends to be informal and relationship-driven. Teams often function through established networks and personal rapport rather than purely procedural structures. Seniority is respected, but the tone is rarely rigid. Guidance is typically offered in conversational ways, often over coffee or through side discussions, rather than in formal performance reviews. For colleagues from cultures where team roles and reporting lines are more explicitly defined, this can feel ambiguous. From the Gibraltarian perspective, however, the same clarity exists, it simply lives in the relational layer rather than the organizational chart.
-
-Decision-making in teams usually involves checking in with the right people, sometimes in indirect or sequential ways, to ensure no one is caught off guard. This process reflects both the need to maintain social cohesion and the practical reality that disagreements in a small territory can have lasting effects. A colleague from a context where decisions are made quickly through direct discussion may read this as hesitation. In return, a Gibraltarian team member may perceive that colleague's directness as tactless or dismissive of the group's shared history.

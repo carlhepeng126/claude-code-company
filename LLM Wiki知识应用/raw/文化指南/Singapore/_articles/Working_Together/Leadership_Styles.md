@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-The admired leader in Singapore often resembles the public image of the country's top civil servants and ministers: technocratic, disciplined, slightly reserved, data-literate and clean. Flashiness and emotional volatility look unprofessional. This archetype reflects Singapore's broader Confucian influences and the way the public sector has shaped organizational culture across industries. Leaders are expected to set high standards, move fast, and not waste time, but also to avoid shouting, swearing or humiliating people. Losing control undermines credibility in a culture that prizes self-regulation.
-
-Leaders see themselves as guardians of the organization's reputation and regulatory standing, not just of profit and loss. Getting into headlines with the Monetary Authority of Singapore for the wrong reason is a nightmare scenario. This means that leaders respond well to clean, quantified narratives that show both upside and risk, and that demonstrate you understand their exposure to regulators, boards and social media. Build solutions that reduce that exposure rather than increase it.
-
-If you are leading a team, combine clarity and firmness with emotional steadiness. The performance of a team depends on the quality of its leadership, and Singaporeans thrive under a strong, accessible, paternalistic style rather than a brash or authoritarian one. Avoid "pep talk one day, meltdown the next" variability. Be sparing but sincere with praise; over-hype or flattery lands as inauthentic. Team members will automatically turn to the most senior or experienced member for leadership, so when preparing a list of delegates or planning a meeting, always list the team leader first and the rest of the team in descending order of seniority.

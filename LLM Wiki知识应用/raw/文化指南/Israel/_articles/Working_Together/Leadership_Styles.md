@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Israeli leaders tend to be accessible, direct, and willing to be challenged. Respect flows from competence and decisiveness, not from rank or title alone. An impressive CV without the substance to back it up will be found out quickly. The startup culture of "disagree and commit" — where people push back before a decision is made, then execute fully once it is — is a widely shared professional norm. Leaders who hide behind process, avoid conflict, or wait for consensus before acting will lose credibility fast.
-
-The "rosh gadol" (literally "big head") versus "rosh katan" ("small head") distinction is widely used and culturally revealing. A big-head leader takes initiative, thinks beyond their brief, and solves problems without being asked. This is the cultural ideal. A small-head approach — sticking strictly to instructions, waiting for permission, or deferring to hierarchy — is seen as limiting. This expectation shapes how Israeli teams respond to leadership: they want someone who will make decisions, take responsibility, and trust them to do the same.
-
-A leader from a culture where consultation before action is expected and authority is rarely questioned openly may find Israeli directness unsettling. From the Israeli side, a leader who takes longer to decide or seeks extensive alignment before moving forward may come across as indecisive or overly cautious. The key difference is that in Israel, debate before the decision is encouraged and expected, but once the call is made, the expectation is to move quickly and trust people to act.

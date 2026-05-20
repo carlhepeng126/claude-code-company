@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Decades of official propaganda and corporate double-speak have left Czechs alert to the gap between what is announced and how things actually are. They assume there will be some distance between the two and measure your credibility by how wide that gap turns out to be. When a manager presents a restructure as an "exciting opportunity" while sidestepping obvious downsides, colleagues notice. The real conversation happens that evening in the hospoda (pub), where people ask what the change means for their plant, their region, and who will actually lose out. The version that wins there often decides whether your message is believed.
-
-People prefer dry honesty to motivational speeches. Saying "this project is risky, here's what we don't know yet" earns more trust than polished slides that ignore real concerns. Czech colleagues are highly skilled at reading between the lines. They notice what you omit, the tone you choose, even the jokes you make when presenting difficult news. If you avoid naming something uncomfortable, they will fill the silence themselves, usually with a less favorable interpretation than the truth would have been.
-
-Close the distance between your official line and reality by stating explicitly what you know, what you don't, and what trade-offs you have chosen. Anticipate the questions people will ask each other later and answer them directly in plain language. Make yourself available for small-group follow-ups and one-on-ones so that corridor gossip does not become the primary source. A slightly understated, carefully worded message will be believed. An over-sold one will not.

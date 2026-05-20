@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Israeli supplier and customer relationships are built through delivery, not ceremony. People get to the point quickly, flag problems when they arise, and expect the same directness in return. Personal connection develops through the work itself rather than before it. A supplier who delivers reliably and communicates honestly will earn loyalty faster than one who invests in relationship-building without the substance to back it up. This reflects a culture shaped by Israel's startup ecosystem, where speed and adaptability often outweigh formality. If a deadline slips or a specification changes, raising it early and plainly will strengthen the relationship. Leaving issues unspoken to preserve harmony will have the opposite effect.
-
-Many Israeli businesses are used to moving fast and changing direction, particularly in the tech and innovation sectors. Suppliers and partners who can be flexible and responsive are valued over those who require lengthy approval processes or rigid workflows. That does not mean contracts are unimportant. Written agreements and clear deadlines provide the frame, but the day-to-day relationship depends on how openly both sides communicate when things shift. A colleague from a culture where process adherence signals professionalism may read this flexibility as disorganized, while an Israeli counterpart may view strict adherence to outdated plans as inflexible or impractical.
-
-After-sales and technical support are expected to be strong. Israelis are not inclined toward deferential service, but they do expect follow-through. Being responsive, flexible, and direct will go further than formal account management in most Israeli business contexts.

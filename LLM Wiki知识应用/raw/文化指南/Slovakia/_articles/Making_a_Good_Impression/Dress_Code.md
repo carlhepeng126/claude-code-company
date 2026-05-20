@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Slovak professional dress favors polished restraint over personal flourish. The goal is to show you understand the occasion, not to make a statement. In business settings, men typically wear suits and ties, while women opt for tailored suits, dresses, or blouses with skirts or trousers. Clean, well-maintained shoes matter particularly. This approach reflects a broader social instinct rooted in Slovakia's texture: modesty and seriousness read as respect, while displays of wealth or excess can create distance. Incomes vary, and flaunting affluence in a country where many still live carefully can come across as tone-deaf or dismissive.
-
-Context shapes expectation. In Bratislava, especially in younger sectors like tech, business casual is more common and the atmosphere feels more cosmopolitan. Move beyond the capital into smaller towns or traditional industries, and formality tightens. A colleague from a culture where casual dress signals openness may find this degree of polish unnecessarily stiff, while Slovaks may read casual dress in formal settings as a lack of preparation or seriousness. The practical implication is straightforward: when visiting regional offices or meeting partners in smaller towns, lean more formal than you think necessary.
-
-Slovakia's mountain identity, anchored in the High Tatras and the broader Carpathian landscape, reinforces practical instincts around clothing. Weather shifts quickly, walking is common, and weekends often involve outdoor activity. Arriving in impractical footwear or without weather-appropriate outerwear can undermine the competence you've otherwise signaled. If your visit touches commemorative or religious settings, such as saints' days or civic memorials, dress slightly more formally. These moments still hold symbolic weight, and adjusting your appearance shows you recognize that.

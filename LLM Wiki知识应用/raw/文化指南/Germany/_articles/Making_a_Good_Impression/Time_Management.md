@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Punctuality in Germany is understood as a reflection of character. Rooted in industrial and engineering traditions where trains, factory shifts and legal contracts depend on precision, arriving on time communicates respect, reliability and self-control. Turning up late, even by a few minutes, suggests a lack of regard for others' time or poor planning. If you know you'll be delayed, call or message as soon as possible, not after the appointed time. The expectation is to arrive five to ten minutes early for meetings, whether internal or external.
-
-Timelines are expected to be realistic, not aspirational. Engineering and legal cultures have shaped a preference for building in contingencies rather than committing to optimistic schedules that ignore constraints. A colleague from a culture where speed is valued and deadlines are adjusted as you go may read this as slow or risk-averse. From the German side, committing to a deadline you cannot meet looks like wishful thinking or a lack of control. When proposing a timeline, factor in public holidays, school vacation periods and approval cycles, and if a deadline begins to slip, flag it early with options such as re-scoping, additional resources or an adjusted date. Late disclosure of delays suggests you were hiding the problem.
-
-The structure of the week is also culturally embedded. Sunday remains widely observed as a *Ruhetag* (rest day), with shops closed, noise restrictions in place and time reserved for family. Public holidays and school breaks shape project calendars, and non-urgent communication is generally not expected in the evening, on Sundays or during holidays unless explicitly agreed in advance.

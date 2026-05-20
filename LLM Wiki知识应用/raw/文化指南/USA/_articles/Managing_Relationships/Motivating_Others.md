@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-The driving force behind motivation in the United States is personal advancement. The belief that anyone can climb to the top through individual effort shapes how Americans approach their work. This conviction means that people are willing to take risks, stretch their capabilities, and invest in their own development if they see a clear path forward. Money can prompt short-term gains, but it rarely sustains performance over time. What keeps people engaged is the sense that they are growing, learning something new, or demonstrating leadership in ways that build their future prospects.
-
-Americans focus on results, not process. How someone achieves success is largely their own concern, as long as the outcome is favorable. This makes autonomy a powerful tool. Managers who give people the freedom to choose their approach and hold them accountable for the end result will see stronger commitment than those who prescribe every step. Job titles alone do not motivate. Many organizations use inflated titles without matching power or pay, and most workers recognize this. What counts is whether the role offers real responsibility, visible contribution, and the chance to develop skills that will serve them later.
-
-If someone believes they are making a meaningful impact and expanding their capabilities, they stay engaged. If those elements are missing, motivation becomes difficult to sustain regardless of other incentives. A manager working with an American team should focus on creating opportunities for development and making clear how each person's work contributes to something larger. Recognition works best when it is specific, timely, and tied to personal achievement rather than formal ceremony.

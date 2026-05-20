@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-New Zealanders often avoid open confrontation, especially in Pākehā work settings. Disagreement tends to emerge through soft language like "I'm not sure that's quite right" or "maybe we could think about…" rather than direct challenge. The phrase "yeah, nah" can contain a firm refusal, though visitors from cultures where dissent is voiced more explicitly may miss the underlying message. This preference reflects both a general discomfort with overt conflict and the reality of New Zealand's small, tightly connected professional networks. Reputations travel quickly across sectors, and burning bridges can follow someone for years. Many people choose quiet disengagement or workarounds over dramatic showdowns, so silence, withdrawal, or sudden inflexibility often signals unresolved tension. Managers working across cultures should watch for these indirect signs rather than assuming that the absence of argument means agreement.
-
-In Māori contexts, serious conflict may require a face-to-face hui with the right people present, sometimes including elders. The focus will be on acknowledging harm, restoring mana, and rebalancing relationships, not simply determining fault. If a disagreement involves Māori partners or colleagues, ask what process is appropriate and who should attend, rather than pushing for quick bilateral resolution.
-
-Pasifika approaches often involve talanoa, a form of open, respectful group conversation facilitated by elders or church leaders. Public confrontation, especially toward senior figures, is usually avoided, and people may endure considerable discomfort before voicing concerns. Offering a group forum with a trusted facilitator can be more effective than insisting on one-on-one discussions.

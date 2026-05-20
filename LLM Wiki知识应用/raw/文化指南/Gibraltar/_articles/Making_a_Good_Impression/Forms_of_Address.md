@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Gibraltar's professional environment is relaxed and informal by temperament. People move to first names quickly, often within the first conversation, and do not expect titles to be used in everyday workplace exchanges. This reflects the size and closeness of the community, where many people know each other or have overlapping networks, and where formality can feel like creating unnecessary distance.
-
-That said, respect for seniority and professional status does exist, especially when first meeting someone more senior or in more formal settings like legal, medical, or government contexts. Using "Mr." or "Ms." with a surname when you are introduced to a director or senior official is appropriate, but the invitation to drop it will often come soon after. In legal or medical professions, titles like "Dr." may be used more consistently, though even here the tone remains approachable.
-
-When writing emails, the opening may start with "Dear Mr. Smith" on first contact, but replies often shift to first names by the second exchange. In face-to-face settings, handshakes are standard in business introductions, regardless of gender. The formality is light and the shift to informality happens naturally as rapport builds. If you are from a culture where formal address is maintained throughout a professional relationship, you may find the quick transition casual or even disorienting. For Gibraltarians working with colleagues who maintain titles and surnames throughout, the formality can feel stiff or overly distant, even if the relationship is warm.

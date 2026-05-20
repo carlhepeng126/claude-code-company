@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Afghanistan, forms of address reflect a society organized around respect for age, status, religious authority, and family lineage. Titles anchor identity in ways that go beyond individual role. Using them correctly demonstrates awareness of social position and is read as a basic form of courtesy. Omitting a title or moving to first names prematurely can suggest disrespect or unfamiliarity with local norms.
-
-Professional titles such as *Doctor* or *Engineer* are used routinely, paired with the surname. Where religious education is involved, *Haji* (for someone who has completed the pilgrimage to Mecca) or *Mullah* (a religious scholar or cleric) may precede the name. Even where formal qualifications are absent, honorifics like *Sahib* or *Jan* (a suffix meaning "dear" or "esteemed," often added to first names among colleagues or friends) signal warmth without informality. A manager from a setting where first names are the norm within days may find the sustained formality constraining, while an Afghan colleague working abroad may find immediate first-name use uncomfortably direct.
-
-Written communication follows the same logic. Letters and emails open with full titles and formal greetings. Dropping into casual tone too quickly, even after several exchanges, can undermine credibility. Where hierarchy is visible, address the senior figure first and most formally. In group settings, acknowledge elders or those with religious standing before peers of equal rank. This sequencing is not decorative. It reflects the social order and failing to observe it can create quiet friction that affects trust over time.

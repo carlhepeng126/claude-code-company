@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Egypt bends around traffic, bureaucracy, and last-minute requests from people higher up the chain. The phrase *ma'alesh* (never mind) does real work here. It helps people absorb delays without tension, and it reflects a cultural acceptance that schedules cannot always hold in the face of competing demands and infrastructure realities. Punctuality is valued in principle, but strict adherence is often unrealistic. Showing up on time yourself is still expected, but building buffers around meetings and avoiding back-to-back agendas will save you frustration. Assume that a 10 a.m. meeting may start at 10:30, and that the person you are waiting for may have been delayed by Cairo traffic or called into an unscheduled conversation with someone senior.
-
-Daily prayer times and the rhythms of Ramadan also shape when people are genuinely available. Friday noon prayers are a fixed commitment, and during Ramadan, energy dips sharply in the late afternoon as people fast. Productivity often shifts to late evenings when people have eaten. Scheduling critical discussions or decisions just before *iftar* (the breaking of the fast) or during prayer windows means you may have attendance without attention. Plan workshops and negotiations around these rhythms, and confirm timing with local colleagues before locking in your calendar.
-
-In rural and agricultural areas, time follows daylight, irrigation cycles, and harvest schedules rather than Outlook reminders. If your project involves partners outside major cities, consult them about planting and market days before setting deadlines. What reads as flexibility in one setting may read as disorganization in another, and vice versa. A colleague accustomed to tightly sequenced timelines may find Egypt's approach unpredictable, while an Egyptian counterpart may see rigid scheduling as a refusal to accommodate real conditions on the ground.

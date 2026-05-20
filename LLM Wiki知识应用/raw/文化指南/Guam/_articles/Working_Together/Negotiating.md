@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiations in Guam place the relationship ahead of the contract. Your counterpart will want to know whether you can be trusted over time, whether the partnership will hold, and whether you understand the value of connection in a small island community where reputations travel fast and people are likely to cross paths again. Early conversations may circle around family ties, mutual contacts, or shared experiences before moving to terms. If you push too quickly toward signatures and deliverables, you risk signaling that the deal means more to you than the people involved.
-
-The process may double back on itself. A point you thought was settled might resurface later, or the conversation might shift to something seemingly unrelated before returning to the original issue. This allows both sides to test flexibility, surface concerns that weren't initially voiced, and make sure nothing has been overlooked. For a colleague from a culture where agreements are finalized sequentially, this can feel inefficient or even evasive. From a Guam perspective, linear negotiation can look rigid and may suggest a lack of room for adjustment once circumstances change.
-
-Slower movement through the discussion is common and usually reflects consultation. Your counterpart may need to check with family members, community elders, or senior colleagues before committing. In a society where decisions are often made collectively and where respect for hierarchy runs deep, this is how alignment is built. Allow time for that process. Pressing for a faster answer can backfire, as it may be read as disrespect for the people whose input your counterpart values. At the same time, a slower pace can also be strategic, signaling that better terms are expected. Leave room to negotiate rather than leading with your final offer.

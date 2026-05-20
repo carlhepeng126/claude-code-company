@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Effective leadership in Liberia often means keeping the group steady and preventing unnecessary rupture, particularly when tensions rise. A leader who protects people's dignity under pressure and manages conflict without humiliation earns lasting respect. This reflects a society shaped by civil unrest and the Ebola crisis, where leaders who communicate clearly and act consistently have built more trust than those who make sweeping promises and fail to follow through. Credibility comes from practical, visible follow-through, especially in settings where past crises have sharpened people's awareness of when words and actions don't align.
-
-Influence frequently sits with those seen as people of integrity, often outside formal titles. Pastors, tribal elders, and other respected intermediaries are regularly called on to mediate workplace disputes or calm tensions within teams, even when organizational charts suggest someone else is in charge. The Truth and Reconciliation Commission's recognition of Palava Hut committees as quasi-judicial forums underlines how culturally legitimate this moral-authority model remains. In practice, this means that a newly arrived manager with formal authority may find that decisions only settle once an elder or trusted colleague has informally endorsed them.
-
-In parts of the country, cultural societies like Poro and Sande have historically shaped moral instruction and carry social weight as custodians of tradition, though their role is contested and actively regulated. Understanding this helps explain why moral authority can outweigh hierarchical position, and why a leader's perceived integrity often determines whether directives are genuinely taken up or quietly sidestepped.

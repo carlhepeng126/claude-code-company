@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Collaboration in Mongolia begins with the collective. The group, not the individual, forms the natural unit of work, and team members take a deep sense of shared responsibility for outcomes. This stems from a cultural history where survival depended on interdependence, both in nomadic life and in the collective structures that followed. When something goes wrong, the expectation is often that the whole team addresses it together rather than isolating who was at fault. A colleague from a culture where individual accountability is clearly defined may find it difficult to understand why responsibility seems dispersed. From a Mongolian perspective, the question of who made the error can feel less urgent than ensuring the team fixes it and moves forward.
-
-Relationships underpin how teams function. Trust is built slowly, often through informal time spent together outside formal meetings, and once established, it becomes the basis for smoother collaboration. Decisions tend to flow from the top, so while team input may be invited, final authority usually rests with the most senior person present. This does not mean participation is unwelcome, but waiting for a signal before contributing is common, especially in mixed or formal settings.
-
-Younger professionals and those in international companies may show more directness and individual initiative, but even there, group cohesion and respect for hierarchy remain strong. Understanding that the team itself is the primary frame of reference will help you read how decisions are made and how responsibility is understood.

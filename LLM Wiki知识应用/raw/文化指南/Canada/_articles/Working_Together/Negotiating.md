@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Canadian negotiators typically approach the table with fairness and mutual benefit in mind. The goal is to build agreement that both sides can stand behind, with compromise seen as practical rather than weak. This reflects a broader cultural emphasis on reasonableness and relationship maintenance. Hard-pressure tactics or aggressive positioning can trigger withdrawal or quiet resistance, as they sit uncomfortably with norms around politeness and respectful exchange. A colleague from a culture where assertive tactics are standard business practice may read Canadian calmness as passive or uncommitted. Conversely, a Canadian negotiator may interpret high-pressure tactics as damaging to trust and wonder whether the other party values a long-term partnership.
-
-Discussions tend to be structured around facts, evidence, and clear proposals. Objective information anchors the conversation more reliably than emotional appeals or personal persuasion. This preference for clarity also reflects Canada's multicultural professional environment, where differing communication styles require explicit framing to avoid misunderstanding. Presentations with tangible data and well-documented reasoning support decision-making and help build credibility across diverse negotiating teams.
-
-Style can vary between Anglophone and Francophone negotiators. Anglophone Canadians often prefer calm, methodical exchanges. Francophone Canadians may bring more expressive communication and a stronger relational tone, though still without aggressive tactics. Both groups prioritize reliability and follow-through. Over-promising or failing to deliver can damage credibility over the longer term, as trust and reputation shape future collaboration more than one-off gains.

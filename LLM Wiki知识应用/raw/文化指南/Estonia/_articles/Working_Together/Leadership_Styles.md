@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Estonian leadership reflects the country's cultural blend of egalitarianism, restraint, and functional efficiency. Leaders tend to be task-focused and low-key, often avoiding overt displays of authority or emotion. The goal is to guide rather than command, and to do so without unnecessary formality or fanfare. This style grows out of Estonia's long history of external rule, where independence of thought and quiet resilience were valued more than hierarchical assertion. It also aligns with the country's recent digital transformation, where competence and results matter more than seniority or status.
-
-Managers typically expect teams to work with considerable autonomy and minimal supervision. Once direction is set, employees are trusted to deliver without frequent check-ins or detailed oversight. Instructions are often brief, and questions are welcomed only when they clarify a genuine gap in understanding. This places responsibility on individuals to self-manage and problem-solve, which can be challenging for colleagues from cultures where leaders provide more structured guidance or frequent feedback. Silence from an Estonian manager usually means things are on track, and micromanagement is read as a sign of distrust.
-
-While consultation happens, it tends to be practical rather than symbolic. Leaders seek input when it adds technical value or when the decision genuinely benefits from broader perspective, but the process is rarely about building consensus or validating group cohesion. If the answer is already clear, lengthy discussion is seen as inefficient. This can feel abrupt to colleagues from cultures where consultation serves relational or face-saving purposes, even when the outcome is settled. From the Estonian side, extended input sessions without clear purpose may seem like avoidance or indecision.

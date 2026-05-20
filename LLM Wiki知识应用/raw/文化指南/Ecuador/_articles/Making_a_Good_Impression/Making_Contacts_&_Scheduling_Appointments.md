@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Building professional connections in Ecuador begins with recognizing that relationships are shaped through ongoing personal interaction, not just exchanged business cards. Ecuadorians value warmth and authenticity before moving to business matters. Cold outreach through email or LinkedIn can work, especially with younger professionals in Quito or Guayaquil, but responses may be slow or go unanswered if there's no mutual contact to vouch for you. A personal introduction from someone already trusted within the network shortens the path considerably. If a colleague can arrange an informal introduction over coffee or lunch, the conversation becomes easier and your credibility is already established. This means investing time in building your own local network and asking for connections rather than expecting to schedule meetings directly with senior figures you haven't met.
-
-Once contact is made, appointments are typically scheduled a week or two in advance, though confirming the day before is expected. Ecuadorians may agree to a meeting out of politeness even when their calendar is uncertain, so reconfirmation helps clarify whether it will actually happen. Flexibility on timing is essential. Meetings may start late, run longer than planned, or be interrupted by phone calls and drop-in visitors. This reflects a relationship-centered approach where immediacy and personal availability often take precedence over fixed schedules.
-
-Colleagues from cultures where punctuality and calendar precision are strictly observed may feel unsettled by what seems like unpredictability. From an Ecuadorian perspective, however, rigid scheduling can feel transactional and disconnected from the relational foundation that makes collaboration meaningful. Allow buffer time between appointments and treat delays as part of the process, not exceptions to it.

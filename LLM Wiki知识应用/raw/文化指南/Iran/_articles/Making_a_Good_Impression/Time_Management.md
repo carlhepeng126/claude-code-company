@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-In Tehran, a 9:00 meeting can mean leaving home at 7:00 to navigate multi-hour commutes on Valiasr or the ring roads, sandwiched between school drop-offs and late dinners. In smaller cities and southern towns, the day still follows bazaar hours, with a morning peak, a long lunch, and a visible lull at midday when heat and prayer times dictate rhythm. Time in Iran is not a single clock but a layered grid shaped by traffic, religious observance, and whether you are working with the state or the private sector. Ministries and government offices are most reachable early in the morning; by midday, senior officials may have disappeared into side meetings or left entirely. Private business often shifts to late afternoon and evening, and calls from entrepreneurs at 21:00 are unremarkable. When scheduling, ask specifically whether morning or late afternoon works better, and adjust your expectations accordingly. 
-
-The religious calendar reshapes the entire year. Work patterns warp around Ramadan, when mornings are slow and nights become intense, and Muharram, when days are taken up by Ashura and Arbaeen mourning rituals. During Nowruz, half the country is on the road visiting family. A ministry that responds quickly in one month may be unreachable the next. Project plans that treat these periods as unexpected delays will fail; build them in from the start.
-
-Bureaucratic processes can take weeks, but the same official, once personally invested, may move a file in 48 hours through direct calls and favors. Formal approvals will be slow, but when a key person is convinced, ask what can be done quickly and informally within the rules, and design around that dual reality.

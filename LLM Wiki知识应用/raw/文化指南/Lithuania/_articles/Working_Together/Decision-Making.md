@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Lithuania are often built on earned certainty, not charismatic conviction. A history of sudden disruption has left an instinct that stability is valuable and risk should be approached with care. That instinct shows up in the workplace as a preference for decisions that are grounded in proof, coherence, and clear sequence. A proposal is more likely to gain traction when it shows the evidence, explains the rationale, and maps out what makes the path forward safe. This applies not just to large capital decisions but to everyday project commitments, role changes, and resource allocation.
-
-Process itself can be part of legitimacy. Lithuanian culture includes examples where form and structure give meaning to an event, from the symbol-laden table of Kūčios to the guided etiquette of the pirtis (traditional sauna). That reinforces a broader intuition that how something is done matters to whether it feels real. In practice, this means that skipping consultative steps or bypassing expected sign-offs can quietly reduce buy-in, even if the decision itself is sound. A colleague from a culture where decisions are made quickly may read this as delay or bureaucracy, while a Lithuanian counterpart may see their fast-moving counterpart as reckless or underprepared.
-
-Decisions are typically made at the top of the hierarchy, with limited input from those further down. Experts may be called in for technical weight, but the final call rests with senior figures. That concentration of authority is visible in the Worldprism profile, and it shapes how proposals move through an organization. If you are not speaking to the decision-maker, timelines can stretch without explanation.

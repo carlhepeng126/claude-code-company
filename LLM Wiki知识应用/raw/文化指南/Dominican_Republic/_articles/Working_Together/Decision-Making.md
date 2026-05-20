@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Formal authority in the Dominican Republic is concentrated at the top, usually with the owner, a senior family member, or a politically connected leader. But the person with the title rarely decides alone. A web of influencers shapes what happens before any announcement is made: cousins, lawyers, pastors, party operators, and long-standing advisers who may never appear on an organizational chart. To understand how a decision will move, ask quietly who else needs to feel comfortable with it. That network often extends beyond the room and beyond the company.
-
-This layered structure reflects both hierarchy and relationship. Dominicans expect the person in charge to decide, but they also expect that person to have consulted people they trust. A decision made in isolation, even if technically correct, can lose traction if it hasn't been socially validated. For colleagues from cultures where authority is more individual or decisions are made quickly within defined roles, this can feel opaque or slow. From a Dominican perspective, speed without relational grounding looks reckless and risks fracturing the team or the broader network that sustains the business.
-
-Timing varies sharply depending on opportunity and uncertainty. When a clear advantage appears, such as land coming available or a new free-zone incentive, decisions can happen very fast, with consultation folded in afterward. But when political or regulatory risk looms, the same decision can stall for weeks. Leaders weigh whether a proposal can survive an election cycle, a ministerial reshuffle, or a sudden tax change. Show that your plans can absorb local volatility, and don't mistake a pause for inefficiency. It may mean someone higher up, or outside the formal structure, hasn't yet signaled their view.

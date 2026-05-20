@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in the Democratic Republic of Congo draws heavily on the strength of personal bonds and the authority of rank. Collaboration tends to flow through networks of established relationships rather than purely structural reporting lines. A manager's role goes beyond task allocation. Leaders are often seen as protective figures who take responsibility for the welfare and advancement of their team members, and in return, team members show loyalty and deference. This reflects broader social values around mutual obligation and the centrality of relational trust. When assigning work or making decisions, a manager who ignores these ties or distributes tasks without regard to relationship may find that motivation drops or that implementation stalls.
-
-Hierarchy shapes how information moves and how contributions are framed. Junior colleagues are unlikely to challenge a senior figure openly, even when they hold relevant expertise. Speaking up in a way that contradicts or bypasses a senior team member can be read as disrespectful, not just to the individual but to the social order that sustains the group. A colleague from a culture where junior staff are expected to voice concerns directly may interpret this restraint as disengagement, while a Congolese team member may view the same directness as aggressive or destabilizing.
-
-Feedback and recognition require care. Public correction risks damaging dignity and unsettling group harmony, so criticism is better delivered privately and with attention to tone. Praise, by contrast, is often directed at the collective rather than singling out individuals, which helps to protect relationships and avoid perceptions of favoritism. Recognizing a team member publicly without also acknowledging the wider group or the manager's guidance can create tension rather than motivation.

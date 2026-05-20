@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Business interactions in Guinea-Bissau begin with greetings that acknowledge the person, the relationship, and the time it takes to connect properly. A hurried introduction can feel dismissive. People exchange questions about health, family, and well-being before turning to the matter at hand. This isn't filler; it establishes trust and signals that the person in front of you deserves attention. Skipping this stage or rushing through it risks being seen as transactional or disrespectful. If you're working with colleagues from Guinea-Bissau, build time into your schedule for these exchanges and allow the conversation to move at its own pace.
-
-Hierarchy shapes how people interact, especially in more formal settings. Deference to seniority is visible in who speaks first, who is consulted, and whose opinion closes a discussion. Younger or junior colleagues may wait to be invited into the conversation rather than volunteering opinions early. This reflects a cultural expectation that experience and age bring authority. If you're leading a meeting, make space for senior figures to contribute before moving forward, and recognize that silence from others may reflect respect rather than disengagement.
-
-Gender norms also influence professional conduct. Women are present in business, particularly in urban areas and sectors like education or health, but in more traditional or rural contexts, interactions between men and women may be more reserved. A handshake may not always be offered, and it's best to let your counterpart lead. Physical contact between men, such as a handshake held longer or a hand on the shoulder, is common and signals warmth. Use your right hand when greeting or passing items, as the left is considered impolite.

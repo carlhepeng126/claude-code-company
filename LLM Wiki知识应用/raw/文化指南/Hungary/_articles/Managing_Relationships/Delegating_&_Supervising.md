@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Hungarian workplace culture reflects a dual inheritance: Habsburg formality and Soviet-era hierarchy, both of which placed a premium on rank and the proper exercise of authority. Decisions flow from senior management, and employees may not feel authorized to contribute views outside their designated role unless explicitly invited. This structure coexists with a notable streak of individualism. Hungarians can be outspoken and direct when they do engage, stating disagreement plainly rather than softening it, which can catch managers from more indirect cultures off guard. But they may hold back until they are confident the context warrants speaking up.
-
-Credibility in Hungary is earned through demonstrated expertise and intellectual rigor, not through warmth or positional title alone. Hungarians are detail-oriented and analytically serious. They expect well-reasoned briefs and will engage with complexity if the thinking behind a task is sound. A manager who cannot explain the logic of a decision, or who delegates without sufficient context, will lose standing quickly. Face-to-face communication when assigning work gives the task a human dimension and signals that input is welcome, even within a hierarchical frame.
-
-Risk aversion runs high, rooted in a cultural fear of failure and public exposure. Employees are unlikely to volunteer ideas or take initiative that might leave them vulnerable to criticism if things go wrong. Ambiguity tends to produce caution rather than creative problem-solving. Structured, detailed briefs work far better than open-ended requests for innovation. Correcting someone publicly will produce withdrawal, not improvement. Invite contributions explicitly, demonstrate your own competence early, and keep feedback private and constructive.

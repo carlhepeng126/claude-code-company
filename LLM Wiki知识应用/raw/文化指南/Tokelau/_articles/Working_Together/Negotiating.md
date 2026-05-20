@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Negotiations in Tokelau begin with the understanding that decisions belong to the village and flow through the *taupulega* (village council). Authority rests with elders and the *fatupaepae*, the council of family heads who speak for their extended kin groups. Even in workplace or project settings, you are rarely negotiating with just one person. The individual across from you will need to bring your proposal back to their family representatives and, depending on the scope, to the council. This means the formal discussion you participate in is only part of a longer deliberative process that continues outside your presence.
-
-The *inati* system, Tokelau's traditional model of equal resource sharing, shapes expectations around fairness and collective benefit. Proposals that emphasize individual gain or seem to advantage one group over another will meet quiet resistance. Frame agreements in terms of shared outcomes and long-term reciprocity, not transactional wins. What may read to a colleague from a fast-moving commercial culture as vagueness or reluctance to commit often reflects the need to ensure a proposal aligns with communal values and has been properly discussed among those it will affect.
-
-Consensus takes time, and decisions cannot be rushed without damaging trust. Silence or a request to revisit the conversation later does not signal disinterest. It signals respect for the collective voice. If you present terms as final or push for closure before the community has reached agreement, you risk being seen as disrespectful of process, and the conversation may stall indefinitely. Allow space for consultation, and expect that timelines will extend beyond what a written agenda suggests.

@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Professional interaction in Armenia often begins with genuine personal interest before business is discussed. Asking about someone's well-being or family reflects the value placed on knowing who you're working with, not just what they do. This connection-building isn't a formality to rush through. It establishes the relational foundation on which trust and collaboration are built. A colleague from a culture where meetings begin with the agenda may read this as inefficient, while an Armenian counterpart may find a quick pivot to business impersonal or abrupt. Building rapport first means you can be more direct later without the interaction feeling transactional.
-
-Hierarchy shapes how respect is expressed. Titles are used, and seniority is acknowledged in greetings and seating arrangements. Younger or less senior colleagues often defer to those with more experience, and interrupting someone senior can come across as disrespectful. If you're leading a meeting with mixed levels of seniority, direct your opening remarks to the most senior person present and give them space to set the tone. This recognizes the structure without flattening the conversation.
-
-Business cards are exchanged, but the practice is relaxed. There's no strict ritual around when or how to offer one. Handing over a card with your right hand and taking a moment to read what you receive shows basic courtesy. What matters more than the card itself is the follow-through. A card without a continued relationship doesn't hold much weight. Gifts in professional settings should be approached carefully. Early in a relationship, they may be misread as overly forward or even inappropriate. Once trust is established, a small, thoughtful gift can reinforce the connection, but the gesture should feel personal rather than transactional.

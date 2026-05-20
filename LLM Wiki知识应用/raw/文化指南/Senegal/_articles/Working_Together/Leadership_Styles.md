@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Senegal draws authority from multiple sources. A manager is often expected to be both *chef de service* (administrative head) and *chef de famille* (family head), combining formal oversight with care and protection. This means staff may turn to their leader not only for work direction but also for help navigating institutions, resolving paperwork, or managing personal emergencies. The role extends beyond the office, and a leader who refuses this broader responsibility risks being seen as distant or indifferent. When engaging senior figures, frame proposals in terms of how they strengthen the leader's capacity to provide for their team and protect their interests, whether that means job security, reputational gain, or tangible community benefit.
-
-Legitimacy is layered. A director may answer to a political party, a Sufi brotherhood, a hometown network, or an ethnic group, often simultaneously. These are not background influences but active relationships that shape decisions. A leader saying yes to a new initiative may need to explain that choice to party allies, a marabout, family elders, and staff. If you need buy-in, provide clear narratives and evidence they can reuse in those conversations. Understand that consultation may take longer because the decision involves more than organizational logic alone.
-
-The admired leadership style is calm and firm. Public displays of anger or humiliation are read as loss of control, not strength. A leader who can make tough calls while preserving everyone's dignity commands real respect. For managers leading Senegalese teams, adopt a tone closer to a protective older sibling than a directive authority: accessible, listening, decisive, but never volatile or publicly harsh.

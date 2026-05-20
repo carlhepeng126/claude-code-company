@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Reliability in Namibia is often judged through observed consistency over time, particularly in smaller markets where reputations travel and the same faces reappear across different deals. Trust builds through repeated contact and proof that you follow through, not just through contracts or initial promises. Some smaller suppliers may agree to terms they cannot meet, particularly when dealing with international buyers, in part to maintain the relationship rather than disappoint at the outset. This makes early clarity essential. Spell out delivery standards, timelines, and performance expectations in concrete terms, and build in regular check-ins rather than relying solely on written agreements.
-
-Geography shapes how reliability is understood. Long distances and uneven infrastructure mean that timing and service are experienced through real constraints, not just goodwill. A supplier who factors in road conditions or fuel availability is seen as realistic, while a partner who sets deadlines without understanding distance may be read as out of touch. Planning with these constraints in mind, rather than importing expectations from more compact markets, helps keep relationships grounded and expectations achievable.
-
-Different economic settings carry different relationship habits. Formal businesses, informal exchanges, and tourism or conservancy-linked economies operate side by side, each with its own trust cues and documentation practices. In conservancy and tourism contexts, communities often have experience negotiating with external partners and may evaluate relationships through long-term benefit and demonstrated respect. In these settings, showing that you understand the partnership beyond a transactional exchange can strengthen credibility and open doors for continued collaboration.

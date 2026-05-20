@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Bargaining is woven into Indian commercial life, rooted in centuries of bazaar trading where an opening price has always been understood as a starting point. That reflex shows up in boardrooms just as it does in street markets. If you present a single offer as final, you may be read as inflexible rather than professional. Build in headroom and signal where movement is possible so that the exchange can unfold naturally.
-
-Deals rarely hinge on price alone. Expect discussions to pull in payment terms, credit periods, delivery schedules, rebates, after-sales service, training commitments, local hiring, marketing support and even visibility on platforms or events. These bundled elements often unlock agreement faster than a fight over headline numbers. A colleague from a culture where price is agreed first and other terms follow may find this multi-layered approach circuitous, while an Indian negotiator may see a narrow focus on one variable as missing the wider picture of partnership value.
-
-Face and ongoing relationships shape how refusal is handled. A direct "no" in front of others can damage dignity, so responses like "we'll think about it" or "let's revisit this" may signal reluctance rather than genuine consideration. Follow up one-to-one to test commitment. The person across the table may also need to convince family shareholders, senior owners or internal factions before anything is binding. What looks like hesitation often reflects coalition-building you cannot see. Offer clear, defensible rationale they can use to sell the agreement internally, and you strengthen the ground for delivery.

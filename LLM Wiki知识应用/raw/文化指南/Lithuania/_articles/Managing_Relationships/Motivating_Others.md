@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Lithuania often roots itself in competence quietly demonstrated. People respond to being recognised as reliable, thorough, and capable, not to being celebrated as exceptional. Praise that feels exaggerated can create awkwardness rather than energy. When a manager acknowledges someone's consistent contribution or solid grasp of detail in specific terms, that recognition tends to settle well. A broad declaration that someone is outstanding can feel like too much.
-
-Lithuania's choral traditions shape a particular kind of workplace pride: you earn your place by showing up, holding your part, and rehearsing until it works. The same logic often applies in teams. Belonging comes from disciplined participation, not from standing out. People may draw motivation from knowing their work fits into something larger and enduring, and that they contributed steadily to its success. A colleague from a culture where individual visibility drives engagement might read this as low energy or disengagement. From a Lithuanian perspective, the colleague's need for personal spotlight might feel like a lack of respect for the collective effort.
-
-Job security and clear goals remain practical motivators, particularly given ongoing emigration and competition for talent. People want to know the company will be stable, that their role has a future, and that advancement is possible. Momentum can be harder to sustain without that clarity, so managers who set out a visible path and communicate openly about stability tend to see stronger commitment. Career development and training also matter, especially where retention is fragile and people are weighing offers elsewhere.

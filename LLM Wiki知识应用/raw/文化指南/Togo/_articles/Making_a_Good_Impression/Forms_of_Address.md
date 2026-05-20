@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Titles are used consistently in Togo's professional settings, and the expectation to use them comes from a culture where age, position, and educational achievement define how people relate to one another. Address someone using "Monsieur" or "Madame" followed by their surname until explicitly invited to do otherwise. If the person holds a professional title such as "Docteur," "Professeur," or "Ingénieur," use it. Leaving out a title when someone has earned one can read as a lack of respect or awareness, particularly when the person is senior or holds formal authority.
-
-The formality extends to written communication. Emails and letters should open with "Cher Monsieur" or "Chère Madame" and close with a standard phrase like "Cordialement" or "Salutations distinguées." Even in routine exchanges, maintaining this structure shows that you understand the relationship has a professional frame. A colleague from a culture where first names are used quickly in email may find this formal, but in Togo, shifting to informality too soon can suggest you are not taking the relationship seriously.
-
-The shift to first names happens gradually and is usually led by the more senior person. If a Togolese colleague continues to use your title after several meetings, they are not being distant. They are showing respect. In return, continue using theirs unless they suggest a change. In contexts where hierarchy is less marked, such as among peers in younger or more internationally oriented workplaces, formality may relax sooner, but it is safer to let the other person set the pace.

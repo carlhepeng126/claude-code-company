@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Tokelau is shaped by the communal structure of the atolls, where relationships are interwoven and reputations are collective. In a society where everyone knows everyone, public criticism risks not only embarrassment but damage to family and community standing. Feedback is given sparingly and almost always in private, often through indirect channels such as a senior family member, a respected elder, or a trusted colleague. Direct correction from a manager can feel confrontational, especially if it bypasses these relational pathways. A line manager working with someone from Tokelau may need to involve an intermediary or wait for a quieter, less formal moment to raise concerns, rather than scheduling a formal review.
-
-Coaching tends to be observational and relational rather than structured. Learning happens through watching, doing, and being gently guided by someone with more experience. Younger workers may expect guidance to come without having to ask for it directly, and they may wait for cues rather than seeking explicit instruction. For colleagues from cultures where coaching is formalized through regular one-on-ones or written development plans, this can look passive. From a Tokelauan perspective, a colleague who pushes for frequent feedback sessions or writes detailed critiques may seem impatient or unaware of the relational cost of such directness.
-
-Praise can be shared more openly, but even then it should acknowledge the group or the context, not just the individual. Singling someone out for recognition can create discomfort, especially in front of peers or elders. Framing achievement as a team effort or as the result of collective support shows respect for the communal fabric that underpins all professional life in Tokelau.

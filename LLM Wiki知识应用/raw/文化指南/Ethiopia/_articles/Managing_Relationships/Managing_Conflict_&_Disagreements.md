@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Disagreements in Ethiopian workplaces are often managed through shimglina, a process of elder mediation in which a respected senior figure helps both sides reach resolution. The term reflects a long-standing reliance on community wisdom and face-saving negotiation rather than formal procedures. When a dispute arises between colleagues, turning immediately to HR or formal complaints can feel like an escalation that bypasses the possibility of reconciliation and threatens both parties' dignity. If you are working with a team in Ethiopia and notice tension, consider involving a respected internal figure, a trusted senior colleague, or even an external community leader rather than moving straight to official channels.
-
-Conflict is also shaped by recent history. Many colleagues may have family members killed, displaced, or imprisoned in conflicts in Tigray, Oromia, or Amhara. Casual jokes or throwaway comparisons that touch on ethnic or political lines, even if made with no ill intent, can reopen very fresh wounds. It is worth being deliberate about language in settings where these tensions may be present, particularly when discussing resource allocation, representation, or regional issues.
-
-Meetings can appear calm and polite while positions remain entrenched. People may nod in agreement during discussion and then work through separate networks to block or resist what they dislike. Watch what happens after the meeting ends. If decisions do not move forward or if patterns of quiet resistance emerge, the disagreement may still be unresolved, just unstated.

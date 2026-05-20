@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Trust and personal connection shape commercial relationships in Mexico far more than contract terms or price alone. Hospitality is part of the exchange: offering coffee, asking about family, or sharing a meal before discussing business helps establish the rapport that underpins long-term loyalty. Reliability matters deeply. A supplier who consistently delivers will be valued over one who offers a better rate but proves unreliable. This reflects a broader cultural preference for partnerships built over time rather than one-off transactions.
-
-Communication is often indirect, especially when there are doubts about delivery or capacity. A supplier may avoid saying no outright to preserve respect and avoid awkwardness in the moment. Instead, phrases like "we'll try" or "let's see what we can do" signal uncertainty. A lack of detail, hesitant tone, or shift in the conversation away from specifics often means the commitment is less firm than it sounds. Someone from a culture where yes and no are stated directly may read this as a confirmed agreement, while the Mexican counterpart assumes the caution was understood. To navigate this, ask clarifying questions without forcing a binary answer, request written timelines respectfully, and follow up regularly in a way that allows honesty without loss of face.
-
-Regional differences shape expectations. In the north, efficiency and directness are more common. Central regions place greater emphasis on courtesy and formality. Southern areas tend toward warmth and slower relationship-building. Adapting your tone and pace to the region and the individual strengthens the partnership and signals that you value the relationship, not just the outcome.

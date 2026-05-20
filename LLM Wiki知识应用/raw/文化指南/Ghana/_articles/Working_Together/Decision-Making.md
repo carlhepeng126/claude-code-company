@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Boards and executive committees in Ghana often function less like technical forums and more like political cabinets. A strong chair presides, and heads of function arrive not only with their portfolios but also with constituencies behind them. Decisions emerge from who is aligned with whom as much as from the technical merits of a case. In state institutions and some private businesses, ruling and opposition party networks shape appointments and contracts, which means that a technically sound proposal can stall if it is seen as politically risky or as favouring the wrong camp. Understanding this reality means mapping stakeholder politics behind the formal structure and anticipating which ministries, party figures, or regional networks need to be at least comfortable before a decision moves forward.
-
-For some leaders, particularly those with strong ties to their home region, a major decision also needs to make sense when explained to clan elders back in the village. A choice that shames them at the hometown palace can feel harder to accept than one that disappoints a donor. This is not sentiment intruding on business. It reflects a layered accountability system in which professional standing and kinship honour are bound together. If you sense hesitation after what seemed like a promising discussion, the leader may need time to consult quietly with family or traditional authorities before committing publicly.
-
-Decision-making takes time because consensus must be built across these concentric circles of influence. Proposals are expected to spread benefits visibly across regions and groups, not concentrate them in one stronghold. Rushing a decision, or pressing for a public commitment before this internal work is done, can undermine both the proposal and the relationship.

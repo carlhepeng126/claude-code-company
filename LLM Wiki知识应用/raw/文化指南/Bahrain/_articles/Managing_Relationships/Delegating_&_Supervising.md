@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Delegation in Bahrain follows a clear vertical line. Authority flows from the top, and decision-making power stays there even when tasks are handed down. Employees typically wait for direction rather than stepping forward on their own initiative, a pattern rooted in both respect for hierarchy and a cultural preference for clarity over assumption. If you delegate a task without following up, the silence may be read as disinterest, and the work may simply not move. Clear instruction and regular check-ins keep things on track and show you are engaged.
-
-The relationship between manager and employee is personal, not just transactional. Managers are expected to take a genuine interest in their team members' lives, their families, their concerns outside the office. This is how trust forms and how loyalty is earned. If you treat supervision as purely functional, you will find it harder to gain the kind of commitment that makes delegation effective. Time spent building that personal connection is time well spent.
-
-Face and honor are central. Public correction, visible reprimand, or putting someone in a position where they cannot succeed without being blamed damages more than morale. It erodes standing and respect in ways that are hard to repair. Feedback should always be delivered privately, framed carefully, and focused on preserving dignity while addressing the issue. A manager from a culture where directness is valued may see this as inefficiency or avoidance, while a Bahraini colleague may view blunt public feedback as unnecessarily harsh and damaging to the relationship that underpins the work itself.

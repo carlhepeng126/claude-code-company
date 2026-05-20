@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In Albania, feedback is deeply relational, shaped by a culture where relationships come before procedures and where open disagreement risks damaging trust. Coaching is generally delivered informally, through conversation rather than structured processes. Managers prefer to guide through suggestion and example rather than direct correction. This approach reflects the high value placed on personal connection and the desire to avoid public embarrassment or tension. For someone from a culture where feedback is given quickly and explicitly, this indirectness can feel vague or incomplete. For an Albanian colleague, explicit critique may feel unnecessarily harsh, even when delivered privately.
-
-Positive feedback is welcome and often shared openly, particularly when framed as recognition of effort or contribution to the team. Public praise can strengthen group cohesion and reinforce mutual respect. Negative feedback, by contrast, should always be delivered privately and framed gently. Managers may preface criticism with affirmation, speak in general terms, or use a question to invite reflection rather than state a problem outright. This softer framing protects dignity and keeps the relationship intact. If you need to raise an issue, consider framing it as a shared challenge or asking how the person sees the situation, rather than stating what went wrong.
-
-Formal performance review systems can feel impersonal or overly rigid. Many Albanians find ongoing, relationship-based conversations more meaningful than written assessments. Feedback that arrives through a form, without accompanying human contact, may be received as distant or disconnected. Building trust through regular, informal check-ins will make any guidance you offer more likely to be heard and acted upon.

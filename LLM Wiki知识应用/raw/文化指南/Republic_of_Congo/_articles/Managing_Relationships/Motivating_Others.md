@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Recognition in Republic of Congo means being seen and acknowledged as a person, not simply as a role. In a communal culture shaped by family obligation and collective identity, people work hardest for managers who know them and take their lives seriously. A manager who asks about a family member by name, who understands when a team member is supporting elderly parents or distant relatives, or who publicly acknowledges someone's contribution in front of the group builds commitment that financial incentives alone cannot. Being valued within the team is a deep motivator, and people respond to managers who demonstrate that they belong and that what they do is noticed.
-
-Job security matters deeply in a country that has lived through civil conflict, prolonged political uncertainty, and economic instability. Reliability from an employer is not assumed. When a manager demonstrates loyalty through difficult periods, or offers clear, realistic expectations and consistent support, people respond with sustained effort. Close supervision paired with empathy works better than distant target-setting. A strong manager who listens, helps people develop their skills, and offers guidance builds trust that translates into performance.
-
-La Sape, the highly visible culture of elegant dress among Brazzaville's sapeurs, reflects a broader value: the drive to maintain and demonstrate worth even in difficult circumstances. Dignity and self-expression matter. People are motivated by the ability to present themselves well, to contribute meaningfully, and to protect their standing within their network. Purely transactional approaches miss this relational dimension entirely, and managers who treat work as only an exchange of time for money will see weaker engagement than those who recognize the whole person and the broader context they carry.

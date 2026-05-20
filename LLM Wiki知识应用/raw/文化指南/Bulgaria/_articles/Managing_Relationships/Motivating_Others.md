@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Many Bulgarians describe what they want from work as *da zhiveem normalno*, to live normally: steady income, time with family, decent holidays, enough to help those close to them without constant stress. This aim is more than modest. It reflects decades of instability, broken promises from politicians and employers, and the hard-won understanding that grand visions often evaporate. When you frame rewards around tangible, immediate improvements to daily life—reliable pay, reasonable hours, good tools, predictable conditions—you are speaking to what actually drives sustained effort. Abstract mission statements or talk of hyper-growth can land as empty rhetoric unless they connect to something concrete people can see and use.
-
-Recognition works best when it honors what people have genuinely mastered. There is real pride in being known as the person who truly understands a system, the sharpest accountant, the most reliable technician. Creating visible paths for craft excellence, not only managerial promotion, taps into this. A colleague from a culture where upward mobility is the main marker of success might read this as lack of ambition, while a Bulgarian professional might view relentless promotion-chasing as hollow if it means abandoning the work you do well and the respect that comes with it.
-
-Trust is fragile, and over-promising accelerates cynicism. Each fulfilled commitment, however small, rebuilds credibility. Each unmet one multiplies doubt. Make your promises carefully, and when you deliver, do so visibly. The memory of what was promised and what actually happened stays sharp, and people will measure you by the gap between the two.

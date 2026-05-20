@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-In Åland, feedback tends to be given quietly and with restraint. The Swedish-speaking culture values modesty and dislikes anything that feels like showing off or drawing unnecessary attention. This extends to how praise is offered and how shortcomings are addressed. A manager might acknowledge good work with a brief comment rather than effusive praise, and even that is more likely to happen in private or in passing than in front of a group. Public recognition can feel uncomfortable, both for the person giving it and the person receiving it, because it breaks the expectation of staying on level ground with colleagues.
-
-Negative feedback follows a similarly understated path. It will almost always be delivered one-to-one, often in neutral language that avoids direct criticism. A manager might frame an issue as something to consider or adjust, rather than as a failure. The goal is to guide without creating confrontation or embarrassment. For someone from a culture where feedback is expected to be explicit and immediate, this indirectness can feel vague or incomplete. From the Åland perspective, a colleague who delivers criticism bluntly may come across as tactless or unnecessarily harsh, even if the intention is simply to be clear.
-
-Coaching conversations are often pragmatic and grounded in the work itself. There is less emphasis on personal development plans or formal review structures, and more on solving problems together as they arise. Trust builds through steady, reliable interaction rather than through scheduled check-ins or performance frameworks.

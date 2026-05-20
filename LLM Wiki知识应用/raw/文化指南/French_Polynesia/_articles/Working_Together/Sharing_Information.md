@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information moves through well-established personal networks in French Polynesia, and these networks form along lines of family, island origin, and longstanding friendship. People share openly within trusted circles but remain more guarded with outsiders until a relationship has been proven. This caution reflects the small scale of island communities, where reputations are visible and permanent, and where what you say can reach unintended ears quickly. A colleague from a culture where information is shared widely in formal channels may find the selectivity frustrating, while a French Polynesian counterpart may perceive that openness as careless or naive about the consequences of disclosure.
-
-In professional settings, French Polynesians often prefer face-to-face conversation over written communication when the topic is sensitive or requires nuance. Email may be used for logistics, but decisions and explanations that affect relationships or status are handled in person, where tone and intent can be read more clearly. This means that what is formally documented may not reflect the full picture. If you rely only on written records, you risk missing the context that shapes how decisions were actually reached.
-
-Building trust takes time and consistency. Showing respect for local protocol, following through on commitments, and demonstrating discretion will gradually open access to information that would otherwise remain within the inner circle. Once trust is established, colleagues become more forthcoming, and the flow of information becomes more reciprocal and reliable.

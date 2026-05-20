@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Presentations in South Africa work best when they combine clear structure with lived context. The country's public discourse has long drawn on narrative and ethical framing, rooted partly in the Truth and Reconciliation Commission era when testimony and personal experience established legitimacy alongside formal argument. Audiences today still respond to presenters who bring both data and story. A proposal that shows only technical capability can feel detached; one that includes real examples and acknowledges who will be affected earns credibility. If you are presenting a change initiative, name the trade-offs. If you are proposing a partnership, show what you understand about local realities, not just what you can deliver in principle.
-
-Moral clarity resonates. South Africa's constitutional culture — built on dignity, equality and freedom — shapes how people evaluate proposals. Audiences often ask not only whether something works, but whether it is fair. Be explicit about impact and who benefits. This is especially true in settings where parallel realities are present: the same room can hold people with very different access to infrastructure, transport and institutional trust. Assumptions about what is "standard" or "obvious" can quickly sound tone-deaf. Keep language accessible and define terms that may carry different meanings across sectors or backgrounds.
-
-Plan for uneven infrastructure. Share materials in advance, keep offline-friendly backups and build in time for questions. Connectivity and power interruptions are everyday realities, and audiences should not be disadvantaged by them. Multilingual processing also affects how directness and certainty land, even when the presentation is in English. Polish matters less than cultural awareness and a collaborative tone that positions the work as something to be built together, not delivered to.

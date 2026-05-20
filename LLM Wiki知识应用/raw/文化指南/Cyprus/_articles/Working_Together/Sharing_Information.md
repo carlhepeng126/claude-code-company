@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-In Cyprus, information flows most readily through trusted personal relationships built over time. People tend to share more cautiously with new contacts until they have a clear sense of who you are and whether you can be relied on. This stems from a culture where personal networks form the bedrock of professional life and discretion protects both reputation and relationships. A Cypriot colleague may hold back details in early meetings, not out of reluctance to collaborate, but because trust develops through repeated interactions. Once established, that trust opens the door to more candid exchanges and stronger working relationships.
-
-Within organizations, information can stay within teams rather than circulating freely across departments. This reflects a preference for limiting exposure to internal friction and avoiding situations where errors might become visible beyond those directly involved. Having a trusted local contact who knows the organization well often makes a measurable difference. Personal introductions and recommendations unlock conversations that might otherwise move slowly or remain surface-level.
-
-Building trust requires consistency and reciprocity. Show that you listen carefully, respect confidences, and follow through on commitments. Informal settings such as coffee breaks or after-work gatherings provide natural opportunities for more open exchange. A colleague from a culture where information is shared widely from the outset may find the gradual pace slower than expected, while a Cypriot counterpart may view immediate openness as premature or lacking the foundation that makes sharing safe.

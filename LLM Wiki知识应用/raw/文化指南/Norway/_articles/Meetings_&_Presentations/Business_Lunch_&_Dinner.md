@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Norway tend to reflect an egalitarian distaste for hierarchy made visible through consumption. Food culture here emphasizes straightforwardness over display, and there is often social comfort in meals that feel normal and unshowy. Choosing a restaurant that feels too ostentatious or ordering conspicuously expensive items can come across as socially clumsy rather than generous. If you are organizing a meal, aim for somewhere that prioritizes quality without spectacle. A colleague from a culture where hosting status is demonstrated through lavish dining may read Norwegian restraint as a lack of hospitality, while a Norwegian counterpart may interpret elaborate hosting as an uncomfortable assertion of rank.
-
-Conversation at meals is often warm but boundary-respecting. People may engage openly on work topics or shared interests while keeping personal life private. This allows for genuine friendliness without the expectation of deep disclosure. Coffee breaks, more than formal dinners, often serve as reliable social infrastructure: small, steady, low-pressure contact that builds relationship without forced intimacy. If you are hoping to strengthen ties, repeated informal coffee meetings may achieve more than a single elaborate dinner.
-
-Alcohol sits within a state-regulated system shaped by a long temperance legacy, so drinking can involve more social interpretation than in places where it is fully casual. Context, generation, and specific workplace culture matter considerably. Some groups may drink moderately at business dinners, while others avoid it entirely. Watch for cues from your Norwegian colleagues rather than assuming a single national norm. If you are hosting, offering alcohol is fine, but ensure non-alcoholic options are equally available and equally easy to choose.

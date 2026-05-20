@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional presentation in Namibia often communicates dignity and social seriousness rather than personal style alone. In many contexts, how you appear in public reflects self-respect and regard for the people and setting around you. This logic runs especially strong in formal business environments, church events, and community gatherings, where neat, considered dress functions as a visible sign of maturity and responsibility. If you arrive underdressed to an initial meeting or public occasion, colleagues may read this as a lack of commitment to the relationship rather than a preference for informality.
-
-Business settings typically expect formal tailoring. Men usually wear suits or smart jackets with ties, though lighter fabrics like linen are common in summer heat. Women choose business suits, tailored skirts or trousers, and blouses, keeping coverage conservative. Once a working relationship is established, dress may ease slightly, but the opening tone remains formal. In rural areas and smaller towns outside Windhoek, visual respectability is judged more through neatness and appropriateness to the occasion than through international corporate style. Practicality shaped by Namibia's climate and long travel distances can also read as competence rather than casualness, especially when dust and heat are part of the working day.
-
-Heritage dress, particularly the Victorian-style gowns and horn-shaped headdresses worn by Herero women, remains visible in daily life and at ceremonies. These garments represent community identity and historical memory, functioning as living tradition rather than performance. Treating them as costume risks creating distance. Recognizing them as markers of continuity and belonging opens more grounded conversation.

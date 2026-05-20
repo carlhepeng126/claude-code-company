@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Australians mix casual language with serious content in ways that can surprise international colleagues. First names are used across levels from day one, meetings might include swearing and self-deprecating humor, yet the same colleagues will hold firm boundaries around safety, fairness and basic decency. The informality is real, but it doesn't mean anything goes. A colleague from a culture where formality signals respect might read the tone as careless or disrespectful, while Australians working elsewhere may find formal registers unnecessarily stiff or evasive. The bluntness is deliberate. Evasion and spin irritate far more than honest bad news, so colleagues often say plainly when something is "rubbish" or "won't fly out bush," then soften the edge with a joke or a grin.
-
-Bragging or acting superior violates a deeply held norm. Competence is expected, but trumpeting it too loudly invites informal policing. People use humor or silence to cut down "tall poppies," so share achievements by crediting the team and balancing success with some humility. If you claim too much or position yourself above others, you risk being quietly sidelined rather than openly challenged.
-
-Banter and teasing function as bonding tools, especially in male-dominated or blue-collar settings, but the same behavior can exclude women, migrants, Indigenous colleagues or quieter team members if not managed carefully. Join light humor where you can, but stay alert to lines around race, gender, sexuality or mental health. Stepping in calmly when banter crosses a boundary builds trust across diverse groups.

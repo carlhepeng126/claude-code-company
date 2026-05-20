@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Hungarians often express frustration indirectly before it surfaces openly. Rising levels of sarcasm, cynical jokes, or "of course, because this is Hungary" comments usually mean someone has been quietly unhappy for a while. By the time anger shows, the issue has already been simmering. These remarks are diagnostic, revealing obstacles or resentments that haven't yet been named directly. Treating them as mood or personality misses the point. If you hear repeated irony about a process, decision, or person, that's the moment to ask what's actually wrong.
-
-Historical instinct also shapes how people handle conflict, especially where power is uneven. Many Hungarians grew up with family stories from the socialist era, when challenging the wrong person could bring real consequences. That reflex to avoid direct confrontation with authority figures hasn't disappeared. Instead of arguing openly, people may slow down their work, comply minimally, or complain to colleagues rather than to the person who holds power. If you're managing upward disagreement, forcing a face-to-face discussion can backfire. Use smaller conversations, intermediaries, or written channels to allow people to speak without standing out.
-
-In some workplaces, the source of conflict is more political than operational. Disagreements about procedures or workload can quietly track party loyalties, attitudes toward the EU, or views on migration and NGOs. When two people clash repeatedly and the stated reasons don't fully explain the tension, consider whether national narratives are playing out in the background. Naming this gently, "this feels more political than practical," can sometimes shift the conversation or at least make the real divide visible.

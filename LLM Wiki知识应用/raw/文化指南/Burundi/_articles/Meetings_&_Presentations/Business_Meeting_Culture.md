@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Burundi are shaped by a preference for face-to-face interaction and careful relationship building, particularly in a society where personal trust forms the foundation of professional exchange. Written invitations are rare outside of large organizations or government. Instead, meetings are typically arranged through phone calls or personal visits, with timing often confirmed closer to the day itself. This flexibility reflects a relational rather than transactional approach to business. Pressing for commitments too early or relying heavily on email can come across as impersonal, while taking time to speak directly demonstrates respect and seriousness.
-
-Formality is expected throughout. Titles and proper greetings set the tone, and hierarchy is consistently observed. The most senior person present will generally lead the conversation, and deference to authority is both assumed and visible. Meetings may begin with extended greetings and inquiries about family or wellbeing, which are not idle gestures but necessary groundwork. Skipping this phase to move straight into business may be read as dismissive. Conversations tend to be measured and indirect, with decisions rarely made on the spot. Agreement is more likely to emerge over several meetings, once trust has been established and all parties feel secure in the outcome.
-
-Silence and pauses are common and should be respected. They often signal reflection rather than disagreement. A colleague from a culture where decisions are made quickly and openly debated may interpret this as avoidance, while a Burundian counterpart may view rapid decision-making as reckless or lacking in respect for process. Bringing documentation and being prepared to revisit points across multiple sessions will support progress without forcing it.

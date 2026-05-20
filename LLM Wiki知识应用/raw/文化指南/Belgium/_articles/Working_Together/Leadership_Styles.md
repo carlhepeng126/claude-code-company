@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Many effective Belgian leaders operate in at least two languages and three contexts at once: region, federal, and European. Their authority comes less from hierarchy or charisma and more from their ability to read and reconcile these worlds. A leader in Brussels might need to brief Flemish stakeholders, manage Walloon partners, and report to a European board, often within the same week. This means credibility is built through preparation, linguistic range, and the capacity to translate concerns across settings without flattening regional or institutional sensitivities.
-
-Leaders are expected to let people talk and air concerns thoroughly in meetings before decisions solidify. Cutting discussion too fast feels risky and un-Belgian, especially if it seems to favor one region or level over another. A colleague from a culture where decisions are made quickly might read this as slow or evasive, while Belgian team members may see rushed closure as reckless or dismissive. When working with Belgian leaders, provide narratives and data they can use in different arenas: how a proposal plays in Flanders, in Wallonia, in Brussels, in Europe. If you lead Belgians, combine inclusive discussion with clear, timely decisions. Show that you have really heard people before you move forward.
-
-The preferred style is competent, slightly low-key stewardship. Leaders who are modest, prepared, and visibly know their material are appreciated. Obvious self-promotion or savior behavior is quickly side-eyed. In some Walloon and Flemish family businesses, leadership succession and access can still be shaped by family and local networks as much as by formal merit. In large corporates and EU spaces, meritocratic norms are stronger, but personal networks, including party, pillar, and EU circles, still shape influence. Work with that reality instead of assuming a purely formal hierarchy.

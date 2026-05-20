@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Building professional contacts in Burundi begins with personal introduction and trusted intermediaries. The country's recent history of conflict and the legacy of disrupted institutions mean formal channels alone rarely open doors. People rely on known connections to assess credibility and intent before engaging. A colleague or mutual acquaintance who can vouch for you makes the difference between a polite deflection and genuine interest. If you're entering a new context, ask someone already established to make the introduction. Cold outreach by email or phone will rarely yield results without that foundation.
-
-Once contact is made, expect the first interaction to focus more on building rapport than advancing business. Questions about your background, how you came to work in the region, or your impressions of Burundi itself help establish trust. These conversations are not preamble. They're the groundwork for everything that follows. Moving too quickly to transactional topics can signal that the relationship itself holds little value for you, which weakens your standing.
-
-Scheduling appointments requires flexibility. Confirm meetings a few days in advance and reconfirm on the day. Timing can shift without notice due to competing priorities, family obligations, or logistical challenges. Building buffer time into your schedule avoids the frustration of overlapping commitments. A colleague from a setting where punctuality is tightly managed may read these shifts as disorganization. From the Burundian side, rigid adherence to a fixed schedule can seem impersonal, especially when relationships and context demand adjustment in the moment.

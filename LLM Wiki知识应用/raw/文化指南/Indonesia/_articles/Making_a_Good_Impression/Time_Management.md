@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Indonesians describe their approach to time as *jam karet* (rubber time), a phrase that reflects the expectation that schedules will stretch around traffic, weather, competing obligations, and the relational greetings that open every encounter. This flexibility is tied to a present-focused culture where relationships and the quality of interaction take precedence over rigid timetables. If something takes longer than expected, the logic is that it took as long as it needed to be done well and respectfully. This doesn't mean time is unimportant. Punctuality increases sharply with status, and a meeting with a minister or senior executive will see people arrive on time, while an internal check-in among peers may begin 15 to 30 minutes late.
-
-Different arenas operate on different clocks. Factories, flights, retail operations, and anything customer-facing typically run on strict time. Community events, receptions, and lower-stakes internal meetings allow more give. Knowing which clock applies to a given situation is often more useful than assuming one standard across all settings. A colleague from a culture where meetings start at the scheduled time may read moderate lateness as disorganization, while an Indonesian counterpart may read insistence on strict timing in a relational setting as coldness or a lack of respect for the human context shaping the day.
-
-Much of the micro-coordination around time now happens through WhatsApp. Messages saying "on the way," "we're starting a bit late," or quick reschedules flow through group chats rather than formal calendar updates. These real-time adjustments keep everyone aligned when traffic or obligations shift unexpectedly. When timing is genuinely critical, state that clearly and early, and use a WhatsApp check-in on the day to confirm everyone is still aligned.

@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Slovenia's cuisine reflects the country's geographic diversity in ways that go beyond taste. The coast, the Karst plateau, the Alpine regions, and the Pannonian plain each have distinct culinary identities shaped by landscape, neighbouring influences, and historical patterns of work and stewardship. When a Slovenian colleague mentions regional food at a business meal, they are often pointing to something deeper than preference — they are connecting place, memory, and identity. A lunch featuring Karst prosciutto, for example, references a centuries-old production method tied to a specific microclimate and terrain. The Karst region lends its name to the global geological term, and its food traditions reflect a similar precision about what belongs where.
-
-Business meals in Slovenia are relationship time, but with a measured pace. Conversation unfolds gradually rather than rushing toward conclusions. Colleagues from cultures where meals serve mainly as efficient networking moments may read this slower rhythm as indirectness, while Slovenian counterparts may find rapid-fire self-promotion at the table uncomfortable or overly transactional. The meal is a space to listen, ask curious questions about the region or the food, and let trust develop without forcing it. Modest warmth tends to open doors more reliably than high-energy salesmanship.
-
-If you are choosing the venue, consider what the location communicates. A coastal restaurant, a Karst tavern, or a central Ljubljana spot each set a different tone. Matching the setting to the context of the meeting often matters more than selecting the most prestigious name. Small gestures of sincerity — acknowledging a local specialty, thanking your host genuinely, respecting the tempo of the meal — build credibility more effectively than trying to close the deal over dessert.

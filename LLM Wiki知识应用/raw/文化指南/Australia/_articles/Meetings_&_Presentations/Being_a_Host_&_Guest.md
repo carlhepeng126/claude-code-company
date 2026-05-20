@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Australian hosting tends toward informal and practical rather than polished. The common phrases are "grab a plate," "help yourself to the esky" (a portable cooler), or ordering shared plates at a pub. The warmth is real, but the presentation is low-key. Over-formality can make people uncomfortable, as if the host is working too hard or creating unnecessary distance. Colleagues from cultures where hosting involves careful staging or formal service may read this informality as underprepared or even dismissive. From the Australian side, elaborate arrangements can feel stiff or performative, as though the relationship requires decoration.
-
-Being invited to someone's home for a barbecue, pool party, or casual dinner is relatively common, especially outside the largest cities, and signals genuine personal warmth and trust. It's relational capital, not routine hospitality. Guests are usually expected to contribute, whether wine, dessert, or a dish. A "bring a plate" barbecue means everyone pitches in, reinforcing the collective ethic that underpins much of Australian social life. You may be asked to remove your shoes, and pets and children are often part of the scene. The boundary between work and home life is more permeable at these gatherings than in cultures where professional and private spheres remain separate.
-
-Arrive on time but not early. Follow up with a brief thank you afterward. If you're not comfortable with certain foods or drinks, say so directly rather than silently navigating around it. Australians generally prefer clear communication to unspoken discomfort, and straightforwardness won't cause offense when delivered without fuss.

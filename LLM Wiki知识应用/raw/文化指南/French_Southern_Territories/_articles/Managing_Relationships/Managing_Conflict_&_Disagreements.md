@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-The French Southern Territories host no permanent civilian population and no traditional workplace culture. The islands function as rotating scientific research stations governed by French administrative law, where personnel are seconded from metropolitan France or other nations for fixed terms. Conflict management in this context follows the protocols of the institutions that deploy staff, typically French research agencies or military logistics units, rather than any locally evolved norms.
-
-Disagreements on station are usually managed through the hierarchical structures of the sending organizations. A station chief or mission leader holds formal authority to resolve disputes, and personnel are expected to escalate issues through established channels rather than negotiate directly. This reflects the operational necessity of maintaining discipline and safety in isolated, high-risk environments where interpersonal tension can escalate quickly. The small size of teams and the intensity of close quarters mean that unresolved friction has immediate consequences for morale and mission effectiveness.
-
-For international researchers or contractors joining a French-led mission, understanding the chain of command is essential. Raising a concern informally with a peer may be seen as bypassing the structure, while failing to document an issue in writing can mean it is not treated as formal. The emphasis is on procedural clarity, which serves to depersonalize conflict in an environment where personal space is limited and roles are strictly defined.

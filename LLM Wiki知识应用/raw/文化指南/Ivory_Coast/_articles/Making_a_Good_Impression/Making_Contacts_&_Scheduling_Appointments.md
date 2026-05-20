@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-In Ivory Coast, where social relationships follow deeply traditional patterns and hierarchy shapes most interactions, who you know often opens more doors than what you know. A personal introduction from a trusted contact or mutual acquaintance can set the tone for a productive relationship. Without that connection, credibility takes longer to establish. If you're entering a new sector or city, consider working with a trusted local agent to make initial introductions, but verify credentials carefully as scams targeting foreign business visitors do occur.
-
-Arrange appointments in writing several weeks ahead and reconfirm by phone once you're in the country. This double confirmation respects both the formality of the request and the reality of shifting schedules. When planning your visit, avoid the rainy season from May to November if possible, as heavy rain and flooding can disrupt travel across Abidjan and beyond. Be mindful of the Muslim calendar too. Business continues during Ramadan, but everyone takes time off for Eid.
-
-Time moves differently here than in cultures where punctuality anchors the working day. You should arrive on time, but your counterpart may be an hour or two late, and seniority often extends that window further. This reflects a view of time that prioritizes people and circumstances over the clock. Once the meeting begins, expect generosity with time and a willingness to talk beyond the agenda. Never schedule back-to-back appointments, especially in Abidjan where traffic alone can absorb an hour. Leave room for invitations to socialize, which are common and build the trust that underpins future work.

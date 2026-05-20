@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Afghanistan is grounded in Islamic tradition and Pashtunwali, the ethical code followed widely among Pashtuns, and extends far beyond politeness. Receiving a guest well is a moral obligation, and the host's honor rests on how generously and attentively they treat visitors. This means food will be abundant, tea will be offered repeatedly, and the host will often insist you stay longer or eat more, even if resources are limited. Declining too quickly can suggest the host has failed in their duty. If you are visiting an Afghan colleague's office or home, accept what is offered at least once, and express genuine appreciation. Your willingness to receive hospitality affirms the relationship and allows the host to fulfill their role.
-
-When Afghans visit another workplace or country, they may expect a similar level of attention and personal care. A colleague from a culture where hosts provide less direction or leave guests to manage their own time might assume this signals independence or respect for autonomy. An Afghan guest may read the same behavior as indifference or a lack of welcome. Being clear about practical arrangements while also checking in personally can help bridge this gap.
-
-Gender norms shape hosting roles, especially in more conservative or rural settings. Women may not be visible during formal visits, and mixed gatherings are uncommon unless the context is clearly professional and appropriate. If you are hosting Afghan colleagues, consider the setting carefully and confirm what will make everyone comfortable before the meeting.

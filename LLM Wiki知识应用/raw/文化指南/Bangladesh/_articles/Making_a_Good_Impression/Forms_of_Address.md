@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Formal titles are used consistently in Bangladeshi professional settings, especially when seniority or age difference is present. Colleagues typically address managers and senior staff by their designation — "Sir" or "Madam" is common, as is the job title itself. This reflects the importance placed on respecting hierarchy and acknowledging social position. Using a first name without invitation, particularly with someone older or more senior, risks causing discomfort or appearing disrespectful. The formality extends beyond spoken address: emails and written correspondence also begin with titles, and signatures often include full designations.
-
-The honorific "Sir" is widely used, even in casual workplace exchanges, and does not imply servility. It functions as a marker of respect rooted in both age and position. Women in senior roles are addressed as "Madam" or by their title, though younger female colleagues may use first names among peers. The shift to first names typically happens once a relationship has been established and the senior person has signaled openness, often by using the junior colleague's first name first.
-
-Visitors from cultures where first names are adopted quickly may find the sustained formality slow to adjust to, and may worry it creates distance. Colleagues from Bangladesh working in less formal environments may initially perceive the rapid shift to first names as premature or overly casual, though many adapt over time. The key is to follow the lead of Bangladeshi colleagues and wait for explicit or implicit permission before moving to informal address. Observing how peers interact with a particular individual offers reliable guidance on when and how to adjust.

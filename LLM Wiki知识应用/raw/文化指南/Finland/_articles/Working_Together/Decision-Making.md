@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Many Finnish decisions are prepared before the formal session begins. Proposals circulate in writing, key people are briefed individually, and potential concerns are quietly tested. The meeting itself is used to air final questions, refine details and record what has already been largely shaped. A colleague accustomed to debating options live in the room may feel the conversation is strangely subdued or already settled. From a Finnish perspective, arriving unprepared and expecting to improvise risks wasting everyone's time and suggests the issue has not been thought through.
-
-This approach reflects deep institutional familiarity. Much of the population has served on housing co-op boards, school councils or sports club committees, all of which follow a similar rhythm: a written proposal, structured discussion and a clear resolution. The expectation is that decisions are visible and documented. A hallway remark or vague verbal commitment does not count. If you want something decided, send materials in advance, structure your ask like a board item, and brief stakeholders where appropriate. Presenting your proposal as "Here's the problem, the options considered, why we recommend this one, and what it will cost or risk" matches how Finns have been trained to decide since childhood.
-
-Consensus is valued, but not at the cost of endlessly circling. A good chair will call time when arguments have been heard, and the group will usually accept the outcome if the process felt fair. Risk assessments, pilots and impact analyses are routine, especially in engineering, infrastructure and public sectors. These are not bureaucratic obstacles. They reflect a rational response to a tightly regulated environment and a climate that does not forgive poorly considered choices. Offering your own risk matrix or pilot plan shows you understand Finnish caution as practical judgment, not delay.

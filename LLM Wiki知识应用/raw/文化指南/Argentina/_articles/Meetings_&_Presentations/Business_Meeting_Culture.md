@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Argentina are occasions for engagement, expression, and the kind of intellectual sparring that signals interest rather than conflict. Overlapping speech is normal. People interrupt, talk over each other, and pile on with stories or counterpoints. This reflects a conversational style where participation means joining the flow, not waiting for silence. In Buenos Aires especially, meetings can feel like debate tournaments, with arguments about politics, history, or macroeconomics woven into business discussions. Being able to argue your case with passion, but also humor, earns respect. Someone from a culture where turn-taking is expected and silence signals respect may read this as disorder or rudeness. From the Argentine side, quiet restraint can be interpreted as disinterest, detachment, or even arrogance. If you present facts without story or conviction, you risk seeming uninvested. Join the debate with both data and narrative, and work with the rhythm rather than against it.
-
-Part of the meeting is often used to vent about the latest crisis: the Central Bank, the government, the dollar. This is emotional processing, and it clears the way for real work. Cutting it off too soon can create resistance later. Budget time at the start, acknowledge the frustrations, then guide the group back to the agenda without dismissing what was said.
-
-Decision-making is concentrated, so hierarchy matters, but not all influence sits with the person holding the title. Union representatives, senior operators, or long-serving staff may shape outcomes through side comments, glances, or informal alliances visible only if you're watching. Learn quickly who the informal leaders are and engage them directly. Their opinions often carry more weight than formal authority suggests.

@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Mongolia is structured as much by season and environment as by the clock. The country's year divides sharply between a severe winter and a mobile summer, and this rhythm shapes availability, planning, and attention in ways that often surprise colleagues from cultures where schedules are written independently of weather. Winter concentrates hardship and limits movement, particularly in rural areas and in Ulaanbaatar's ger districts, where heating needs and commuting realities add friction to daily routines. Summer brings travel, festivals, and the possibility of gathering, and the social calendar shifts accordingly.
-
-Dzud, a recurring winter crisis in which severe conditions block grazing and lead to widespread livestock loss, is not an exceptional disaster but a familiar disruption with real household and economic consequences. When dzud occurs, priorities can shift suddenly, and availability may change in ways that feel abrupt to outsiders but are culturally legible within Mongolia. Similarly, Naadam, the national festival held annually in mid-July, functions as a rhythm-setter. Attention, travel, and social energy realign around it, and timelines planned through this period often need to account for the change in focus.
-
-This seasonal structuring does not mean schedules are ignored, but it does mean that timing is contextual. A colleague from a culture where deadlines are treated as fixed commitments may read flexibility as a lack of urgency, while a Mongolian counterpart may read rigid adherence to a timeline as insensitivity to conditions that genuinely affect delivery. The practical implication is to plan with margins that acknowledge environmental and social realities, and to confirm availability and feasibility well in advance of key dates, particularly around Naadam and the winter months.

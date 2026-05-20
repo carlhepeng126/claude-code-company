@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decision-making in Bosnia and Herzegovina is shaped by a history of occupation, conflict, and ethnic division that has left deep wariness about whose interests a decision serves and who holds the authority behind it. Layers of approval are common, and agreement often needs to reflect more than operational logic. A decision that doesn't account for ethnic sensitivities, regional affiliations, or informal power structures is likely to stall or be quietly undermined. Titles are respected, but the real influence may lie with someone outside the formal hierarchy, and decisions are rarely final until that person has weighed in.
-
-Consultation happens, but it is often selective and trust-based. Managers consult people they know personally or who share their background, not necessarily everyone affected by the decision. Consensus is valued, but it can mean different things in different settings. In ethnically mixed environments, consensus may require explicit balancing between groups. In more homogeneous teams, it may simply mean avoiding open disagreement. Either way, pushing for a quick decision without visible buy-in can be read as disrespectful or politically naive.
-
-A colleague from a culture where decisions are made quickly and by designated individuals may find the consultation process slow or unclear. From a Bosnian perspective, that speed can look reckless, as though relationships and consequences don't count. What looks like delay is often careful positioning, making sure no one with real influence has been overlooked. If you need a decision, identify who actually needs to agree, not just who has the formal role, and allow time for that conversation to happen.

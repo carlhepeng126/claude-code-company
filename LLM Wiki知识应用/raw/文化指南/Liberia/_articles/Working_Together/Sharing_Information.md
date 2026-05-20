@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-In many Liberian communities, information flows through relationships rather than open channels, and what gets shared depends on who you are and how you're known. Words can affect someone's dignity, their standing in the group, or how safe they feel, so people choose their audience and phrasing carefully. In areas where traditional institutions like Poro and Sande societies remain influential, certain knowledge is understood to belong to specific people or groups, and routing sensitive matters through the right channels shows respect for those boundaries. A colleague from a culture where all information is considered company property may read this selectivity as withholding, while a Liberian counterpart may see the same colleague's open-door approach as indiscriminate and potentially disrespectful.
-
-Language register often signals what's shareable. Switching between formal English and Kolokwa (Liberian colloquial English) can mark whether a conversation is official business or something more personal, what's safe to joke about, and what's meant to stay inside a smaller circle. If a colleague shifts register mid-conversation, they're often adjusting the level of intimacy or exposure, and it's worth noticing which topics prompt the change.
-
-Recent history has heightened sensitivity around public communication. The Ebola outbreak left lasting associations between information sharing and stigma, blame, and fear. In contexts where past crises shaped how people talk about risk or difficulty, creating non-blaming channels for sharing problems often works better than simply asking more directly. Trust and psychological safety open up information flow more reliably than repeated requests.

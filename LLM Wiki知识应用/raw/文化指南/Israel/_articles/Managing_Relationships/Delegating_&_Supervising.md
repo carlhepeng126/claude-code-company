@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Israeli professionals expect autonomy once the objective is clear. The cultural ideal of rosh gadol, literally "big head," values the ability to think independently, improvise, and find your own route to the goal. This expectation is reinforced by military experience, where soldiers are trained to adapt quickly to changing conditions rather than wait for detailed instructions. Over-supervising or checking in on process rather than outcome can feel like a lack of confidence in someone's competence, and the response is often frustration or disengagement.
-
-This same self-reliance means Israeli team members will often expand beyond their original brief. They may solve problems adjacent to the task you set, propose changes to the plan midway through, or take initiative in areas you haven't explicitly delegated. This reflects engagement and resourcefulness, shaped by the sabra ideal of self-sufficiency. A manager from a culture where staying within defined boundaries is valued might read this as overreach or a challenge to their authority. From the Israeli side, being asked to stick rigidly to a narrow remit can feel like being treated as a functionary rather than a contributor.
-
-What makes this work is clarity at the handoff. Without a well-defined objective, Israeli teams can move quickly in the wrong direction, each member interpreting the goal differently and improvising their own solution. The brief needs to be explicit about what success looks like. How it's achieved can be left open. In practice, this means focusing follow-up conversations on results and obstacles, not on whether someone followed the expected steps.

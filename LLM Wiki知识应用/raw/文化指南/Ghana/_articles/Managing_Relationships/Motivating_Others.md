@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Salary is more than personal income in Ghana. Many staff are supporting siblings' senior high school fees, parents' hospital bills, cousins' rent, plus ongoing contributions to funerals and church projects. A small delay in pay can ripple across entire extended families, and people are often juggling serious obligations well beyond what shows up on their own budget. Timely, predictable pay demonstrates that an employer understands this reality, and when challenges arise, communicating early and honestly matters far more than offering apologies after the fact.
-
-Recognition works best when it elevates someone's standing, not just within the organization but in their wider circles. Being selected for foreign training, invited to represent the company at a conference, or asked to speak on television or radio on behalf of the organization boosts a person's status at church, in their hometown, and among peers. These prestige opportunities function as powerful motivators and retention tools, so making selection criteria transparent helps prevent the perception that they are awarded through favoritism rather than merit.
-
-Appeals to national pride run deep. Projects framed as improving electricity reliability, helping farmers in Techiman, or building schools in Bongo resonate strongly, especially when people can see the concrete impact of their work. Framing goals only in terms of internal KPIs or shareholder value misses what many staff care about most: the sense that they are doing something meaningful for Ghana and for future generations. That connection to service fuels sustained commitment in ways that purely transactional incentives often do not.

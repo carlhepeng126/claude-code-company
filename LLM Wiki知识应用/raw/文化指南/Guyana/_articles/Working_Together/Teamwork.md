@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Guyana forms around personal relationships and long-standing ties rather than formal structures. Colleagues often know each other through family, church, school, or community networks, and these connections shape how trust is built and how contributions are recognized. People work more comfortably alongside those they know, and new team members from outside these circles may find it takes time to be included in the informal exchanges where real coordination happens. The strength of this approach is loyalty and mutual support once trust is established. The challenge for international managers is that team cohesion can feel insular, and formal team-building exercises designed to accelerate bonding may be met with polite participation but limited enthusiasm.
-
-Hierarchy matters, but it operates alongside a quiet expectation of care. Senior team members are expected to guide and protect, not just direct. A manager who distributes tasks without checking in on workload or personal circumstances may be seen as distant or unconcerned. Colleagues from cultures where efficiency and clarity of role take priority might read this relational attention as inefficiency or over-involvement. From a Guyanese perspective, a manager who focuses only on output without acknowledging the person risks losing respect and engagement over time.
-
-Praise works best when it acknowledges the group, not just the individual. Singling someone out publicly can create discomfort or envy, particularly in settings where relationships are closely watched. Criticism should always be delivered privately and with care to preserve dignity. A direct critique in front of others, even if framed constructively, can damage trust in ways that are difficult to repair.

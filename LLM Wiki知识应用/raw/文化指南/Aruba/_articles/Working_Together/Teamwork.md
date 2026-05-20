@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Collaboration in Aruba is built on personal connection and flexible informality rather than formal structures. Teams function well when people know each other beyond their roles, and that familiarity is developed through regular interaction, shared meals, and relaxed conversation. Work relationships are expected to be warm, and colleagues often know about each other's families, personal commitments, and life outside the office. This relational foundation means that trust and cooperation emerge organically, and team cohesion is maintained through ongoing personal contact rather than scheduled exercises or explicit team-building events.
-
-Hierarchy exists but is rarely rigid. Senior colleagues guide and support rather than direct, and feedback flows informally. A manager might offer direction through a side conversation or by quietly adjusting course rather than issuing corrections in a meeting. This approach protects dignity and keeps the team atmosphere cooperative. Praise is shared broadly, and if something needs addressing, it will be done privately. A colleague from a culture where feedback is given directly in group settings may find this indirectness unclear, while an Aruban team member may read public correction as unnecessarily harsh or disrespectful.
-
-In practice, this means allowing time for relationships to develop before expecting smooth collaboration, and recognizing that informal channels often move decisions forward more effectively than formal ones. Team members respond well to leaders who show genuine interest in their well-being and who balance guidance with flexibility.

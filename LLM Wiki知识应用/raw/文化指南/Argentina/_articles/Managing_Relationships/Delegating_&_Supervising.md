@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Argentine managers are expected to lead with authority and give clear direction. Consulting subordinates on decisions can read as uncertainty rather than inclusiveness, and teams lose confidence when managers appear vague or lack conviction. Direction should come from the top, though professionals may have considerable freedom in how they carry out their work once trust is established. This distinction runs through the workplace: autonomy in execution does not mean autonomy in deciding what to do or when to shift course. If you are used to involving team members in decision-making as a way to build commitment, be aware that in Argentina this can undermine your standing. Conversely, an Argentine team member transferred to a more consultative environment may interpret requests for input as signs that their manager lacks clarity or control.
-
-At the same time, the management style is often paternalistic and relationship-driven. The bond between manager and team can be close and personal, resembling a parent-child dynamic more than a peer relationship. Loyalty runs strong when this relationship is well-managed, and once trust is in place, Argentine professionals can be highly creative, energetic, and committed. The investment in the personal side is what unlocks this.
-
-Failure carries a heavy social cost. The fear of exposure or embarrassment means employees need to feel genuinely safe before they will flag problems or take initiative. Verbal agreement does not always signal real commitment. In a culture where saying no to a manager is uncomfortable, "yes" can mask doubt or confusion. Follow up in person, check progress early, and create opportunities for concerns to surface in private rather than in front of the group.

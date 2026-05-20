@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in French Guiana moves to more than one rhythm. French administrative culture emphasizes formal schedules and punctuality, a legacy of the departmental structure that ties the territory directly to Paris. Government offices, healthcare facilities, and French-managed companies typically follow metropolitan norms: meetings start on time, deadlines are tracked, and delays require justification. For professionals arriving from France or working within formalized institutions, this familiarity can be reassuring.
-
-Outside these settings, time becomes more elastic. In Creole communities and among colleagues with roots in the Caribbean or Amazonian interior, relationships and context shape when things happen. A meeting might wait for a senior figure to arrive, or a decision might unfold over several conversations rather than one scheduled session. This reflects a social order where respect, inclusiveness, and the quality of the exchange outweigh the ticking clock. A colleague from a culture where efficiency is measured in speed may read this as lack of discipline. A French Guianese colleague may, in turn, see rigid timekeeping as dismissive of the human side of collaboration.
-
-Younger professionals in Cayenne's private sector, particularly those in technology or logistics, increasingly align with global standards. Yet even here, flexibility surfaces when personal ties or community obligations enter the picture. Arriving on time to a formal appointment shows respect. Expecting every interaction to follow the same tempo does not. Acknowledge the rhythm of the setting, confirm expectations early, and recognize that time given to relationship-building is rarely wasted.

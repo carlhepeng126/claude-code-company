@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Kiribati, formal titles and structured address are rarely used in daily life, and this extends into many professional settings. The culture is informal and relational, shaped by close-knit island communities where people are often known by their first name or a family connection rather than by title or role. Even in workplaces, colleagues typically address each other by first name from the outset, and this approach reflects a broader cultural emphasis on equality and personal connection over hierarchy or status signaling.
-
-That informality can feel disarming to colleagues accustomed to more formal address conventions, particularly in early meetings or written correspondence. Where a colleague from a culture with structured title use might read the absence of honorifics as overly casual or lacking professionalism, someone from Kiribati may find the use of titles distant or unnecessary. The informality is not carelessness. It reflects a social structure where respect is shown through attentiveness, tone, and time given, not through coded language or rank.
-
-In government or more formal institutional contexts, particularly when dealing with senior officials or elders, some use of titles such as "Mr." or "Mrs." may appear, but even then, first names often follow quickly. If you are working with a team in Kiribati, match the level of formality used by your counterparts rather than imposing a more structured approach. In written communication, keep openings straightforward and warm rather than elaborate, and avoid assumptions that formality will signal professionalism more effectively than clarity and genuine engagement.

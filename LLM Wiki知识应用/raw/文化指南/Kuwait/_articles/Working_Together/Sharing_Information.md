@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Kuwait travels along two very different tracks. Official channels can be slow, sparse and formal. Meanwhile, diwaniyas and WhatsApp groups hum with early signals about ministerial reshuffles, regulatory shifts and parliamentary moves long before any formal announcement appears. Kuwaiti colleagues often know what is coming because they heard it during evening conversations over coffee, seated on carpets in someone's majlis. When your colleague references something they picked up at a diwaniya, treat it as serious intelligence. These informal channels often foreshadow changes that will affect hiring decisions, investment timing and regulatory compliance.
-
-The gap between formal opacity and social transparency is striking. Official communication may arrive late or say little, but everyone knows who visited whose diwaniya, which tribal primary went which way, and who was seen at which gathering. Your own movements become part of this visible network. A lunch meeting or a visit to a particular majlis will be noticed, and that visibility becomes data for others trying to read relationships and alliances.
-
-Both citizens and expats exercise caution, though for different reasons. Kuwaitis may avoid putting criticism of the ruling family, other tribes or certain MPs on record. Expats worry about jeopardizing their visa or their relationship with their employer. As a result, sensitive topics are often discussed verbally rather than in email. If you need documentation for compliance, work with colleagues to find language that meets formal requirements without exposing anyone. For particularly delicate subjects, such as labor practices or the status of the Bidoon, use neutral written language and save detailed discussion for trusted, offline conversations.

@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Guinea-Bissau's workplace flows through relationships and the strength of personal connection more than through systems or targets. People commit when they trust the person they are working with and feel that their contribution will be recognized in human terms. A manager who takes time to greet each person individually, who asks about family, and who acknowledges effort in front of the group builds loyalty far more effectively than a performance bonus announced by email. The expectation is that authority figures will lead with care, not just competence, and will see their team as people first.
-
-Financial reward alone rarely sustains engagement. What matters more is whether the work environment feels supportive and whether someone's role enhances their standing within their community. Being chosen to represent the organization at a meeting, or being publicly thanked for resolving a problem, strengthens reputation in ways that resonate beyond the office. When recognition comes through a visible gesture rather than a private note, it affirms status and dignity in a way colleagues and family will notice.
-
-Rigid deadlines and fixed schedules can deflate rather than inspire. Time in Guinea-Bissau moves around people and events, and family responsibilities take precedence over arbitrary cutoffs. Pushing for late hours to meet a target risks disengagement, especially when the reasoning behind the deadline is not shared or understood. Managers who frame goals in terms of collective benefit and who adjust timelines when circumstances shift will see stronger follow-through than those who impose structure without flexibility.

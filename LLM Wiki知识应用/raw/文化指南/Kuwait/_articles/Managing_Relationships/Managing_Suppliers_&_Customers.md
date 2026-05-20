@@ -1,9 +1,0 @@
-# Managing Suppliers & Customers
-
-## Managing Relationships
-
-Many major suppliers in Kuwait are family-owned conglomerates holding multiple franchises and contracts. Decisions often reflect conversations in family councils and diwaniya gatherings, not just the commercial logic of a procurement team. When selecting a supplier, look beyond operational capability to family reputation, political exposure, and standing in the diwaniya network. These factors determine how a supplier responds under pressure, whether they can navigate bureaucratic delays, and how resilient they will be if a crisis arises. A capable firm without those connections may struggle when things go wrong.
-
-The state and state-linked entities are often the biggest customers, and suppliers anticipate slow payment cycles, bureaucratic uncertainty, and political risk. Many factor these realities into their pricing or by prioritising clients who pay faster. If you work with government clients, build realistic cash-flow plans for your suppliers and avoid pushing them into unsustainable risk just to secure your contract. Relationships built on mutual understanding of these pressures tend to last longer than those driven solely by cost efficiency.
-
-Kuwaiti citizens expect responsiveness and fairness. They are used to subsidised services and strong consumer protections, and they can escalate issues quickly through wasta, parliamentary channels, or public complaint. Design service that feels respectful and efficient, and assume they have avenues to escalate well beyond a call center. Expat and Bidoon customers may be more cautious in formal complaints, but they share experiences widely through social networks. Inequitable treatment can damage your brand and conflict with inclusion commitments, even if it never appears in official complaint data.

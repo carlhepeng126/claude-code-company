@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Singaporeans typically preserve surface calm at work, but tensions rarely vanish on their own. When disagreement arises, people tend to escalate through formal channels rather than raise their voice in the corridor. A colleague might go straight to a manager, HR, or even a union representative rather than confront the issue face to face. This reflects a workplace culture where harmony is valued publicly but where people also expect systems and structures to resolve what individuals cannot. The result is a "complain officially" culture that exists alongside everyday politeness.
-
-Policy and procedure serve as neutral ground. When two people disagree, it is common to hear "company policy says…" or "the SOP is clear on this." This approach depersonalizes the conflict and protects both parties from losing face. For someone working in a setting where disputes are usually hashed out directly between colleagues, this reliance on rules can feel bureaucratic or evasive. From a Singaporean perspective, a colleague who bypasses policy and pushes for a quick verbal resolution may seem reckless or dismissive of agreed structures. If you sense friction building, invite a one-on-one conversation before the issue becomes formal. Frame disagreements around process where possible, asking "which procedure fits here?" rather than "who is right?"
-
-A colleague who stays quiet in meetings may speak more openly in private chats or anonymous forums. Internal frustration sometimes surfaces only once it has escalated outside the team. If something does reach HR or a union, treat the process seriously. Stay factual, avoid emotional outbursts, and remember that formal escalation is seen as legitimate, not a breakdown of trust.

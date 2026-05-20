@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Many Pākehā New Zealanders are raised to avoid making a fuss, and that shows up clearly in how they receive feedback. Harsh critique may land deeply, but you won't always see it in the moment. Instead, expect humor, a quiet "yeah, no worries," or polite withdrawal. The feelings go inward. Someone might nod, say it's fine, and then quietly recalibrate how much they trust you. If you need to address performance concerns, frame them around specific behaviors rather than sweeping judgments, and do it privately. Separate the issue from the person, keep the tone matter-of-fact, and don't make it dramatic.
-
-Tall poppy thinking also shapes how people talk about their own work. Many New Zealanders are uncomfortable singling themselves out or claiming credit individually. They'll downplay their strengths and attribute success to the team. A coach who spends time celebrating one person as "the star" or talks a lot about their own achievements can trigger quiet resistance. Use we-language when coaching, share credit widely, and be ready to draw out people's contributions gently rather than expecting them to volunteer their wins.
-
-For Māori colleagues, feedback that damages mana in front of others can cause lasting harm. The question isn't only about individual performance but about what this says to whānau, hapū, or iwi. Frame coaching as strengthening someone's ability to serve their people and uphold commitments, not just as hitting targets. For Pasifika colleagues, public contradiction or critique can feel like disrespect to family or community, not just the individual. Deliver tough messages privately, with warmth, and invite their perspective rather than issuing a verdict. A nod doesn't always mean agreement.

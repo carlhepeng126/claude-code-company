@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Workplace disagreements in Guinea often unfold quietly. Open confrontation can threaten dignity and trigger recrimination, so many colleagues choose avoidance instead. Information gets redirected, cooperation slows, and certain people stop appearing in the same rooms. These patterns are not procrastination or inefficiency; they are deliberate strategies to manage conflict without public rupture. If you notice shifts in who joins the attaya circle or who suddenly works through breaks alone, you are likely seeing the early stages of a dispute that has not yet been named aloud.
-
-In Forest Guinea, where memories of war, displacement and being blamed during the Ebola outbreak remain close, conflicts around land, health projects or NGO work can tap into deeper wounds. A disagreement that looks routine may carry an undercurrent of "we are always treated as the dangerous ones." Understanding this history helps explain why certain disputes escalate or why trust is harder to rebuild in some contexts than others. Ask trusted insiders how current tensions connect to older experiences, and adjust your response accordingly.
-
-When conflict touches ethnic, regional or community identity, formal HR processes alone rarely resolve it. Imams, marabouts, chiefs and secret-society elders hold moral authority that can calm anger and restore relationships in ways that official letters cannot. Involving these mediators alongside internal procedures shows respect for the social fabric people rely on. Use informal settings like tea breaks or corridor conversations to surface concerns early, before positions harden and avoidance becomes entrenched.

@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Swedish workplace dress follows the principle of lagom, a local term meaning "just right" or "not too much." Clothes are meant to be neat, functional, and understated rather than attention-grabbing. In most sectors, smart casual is the default: think clean knitwear, shirts, dark jeans, or tailored trousers. Full suits still appear in finance, law, and some formal public settings, but in many offices, dressing too formally can make you look out of touch. The goal is to blend in competently, not stand out. Very conspicuous luxury branding clashes with Jantelagen, the cultural expectation that no one should act or appear superior to others. Showing off through clothes is frowned upon, and colleagues may quietly judge someone who dresses in ways that signal wealth or status too loudly.
-
-Practicality shapes what people wear as much as professionalism does. Sweden's climate and strong outdoor culture mean that good outerwear, layers, and shoes you can actually walk or cycle in matter more than formal sharpness. Arriving soaked, freezing, or in impractical footwear suggests poor planning and a lack of preparation for basic Swedish realities. People dress for the weather and the commute, then adjust once inside. What looks casual from the outside is often carefully chosen to function across contexts.
-
-For colleagues coming from cultures where formal business dress signals respect or seriousness, the relaxed Swedish standard can feel surprisingly informal at first. A Swedish colleague visiting a more formal environment abroad may, in turn, find the emphasis on suits and polished accessories unnecessary or performative. Neither side is being careless. The difference lies in what each culture uses clothing to communicate: in Sweden, it's competence and modesty, not hierarchy or ambition.

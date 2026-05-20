@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in French Guiana reflects the complexity of a deeply multicultural society where Creole, Hmong, Maroon, Amerindian, Metropolitan French, and other communities live side by side. Collaboration often depends less on formal team structures and more on personal relationships built across these divides. Trust develops through informal connection and demonstrated reliability rather than shared professional identity alone. In practice, this means that teams may take time to cohere, especially when members come from different cultural backgrounds or have varying levels of familiarity with one another. A colleague accustomed to fast-forming task groups may find this gradual layering of trust slow, while someone from French Guiana working in a setting where teams form and disband quickly may feel the lack of grounding.
-
-Language adds another layer. French is the official working language, but many professionals also speak Creole, and some communities use their heritage languages in daily life. Code-switching is common, and the language used in a meeting or informal exchange can signal inclusion or distance. Teams that acknowledge this multilingual reality and allow space for clarification tend to function more smoothly than those that assume linguistic uniformity.
-
-Hierarchy shapes how contributions are made. Respect for seniority and formal roles runs through most workplaces, and junior team members may wait to be invited to speak rather than volunteering ideas openly. Managers who misread this as disengagement risk overlooking valuable input. Creating room for quieter voices through one-on-one check-ins or smaller group discussions often brings out contributions that remain unspoken in larger settings.

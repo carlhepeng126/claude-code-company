@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Jamaica moves primarily through people, shaped by the dense networks of family, church, alumni ties, and neighborhood connections that anchor professional life. Who says something and who vouches for it often matters as much as the content itself. In practical terms, this means that formal communications gain traction more quickly when accompanied by personal endorsement. A strategy document sent without prior conversation may sit unread, while the same content shared over coffee with a trusted colleague gets immediate attention and circulation.
-
-Discretion plays a central role in how people manage what they share and where. In a society where talk travels quickly and reputations can shift based on what is said, people calibrate carefully, especially in public or mixed settings. This is risk management rooted in social intelligence. In some environments shaped by historic political polarization, particularly in Kingston, people may be cautious about being quoted or visibly attributed to sensitive statements. Building trust increases openness, so creating space for one-on-one or smaller conversations often yields more candid updates than asking for transparency in front of a large group.
-
-The choice between Standard English and Patwa also shapes what can be said and how it lands. Standard English often signals official seriousness, while Patwa conveys warmth, honesty, or insider trust. Colleagues may switch register mid-conversation to shift tone or signal where the real message lies. Noticing these shifts can reveal how safe someone feels in the exchange and where the emphasis actually sits.

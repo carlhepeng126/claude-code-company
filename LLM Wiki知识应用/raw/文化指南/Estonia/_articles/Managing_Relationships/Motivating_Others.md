@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Estonian professionals generally respond best when they understand why the work is needed and how it contributes to something meaningful. Autonomy is a strong driver. People expect to be trusted to organize their own work, make decisions within their scope, and solve problems without constant supervision. A manager who sets a clear goal, provides the necessary resources, and then steps back will usually see higher engagement than one who checks in frequently or prescribes methods. Micromanagement drains motivation quickly, while space to work independently builds it.
-
-Recognition works best when it is specific and understated. Public praise, especially if it feels overblown or effusive, can make people uncomfortable. A quiet acknowledgment of what someone achieved, or how they helped the team move forward, tends to land better than a formal announcement. Singling someone out too dramatically can feel awkward in a culture where equality and competence are valued more than individual stardom. Financial rewards are respected, but they work best when paired with a sense that the contribution itself was noticed and valued.
-
-Inspiration in Estonia is tied less to grand vision and more to competence, fairness, and practical results. People are motivated by working with colleagues who know what they are doing, by managers who treat everyone equally, and by projects that solve real problems rather than chase abstract goals. A manager who can articulate a clear, logical direction and then deliver on commitments will build more trust and energy than one who relies on enthusiasm or rhetoric alone.

@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Lebanese professionals respond to recognition that honors competence and resilience. After years of instability, from infrastructure collapse to currency crisis, people have built an identity around making things work despite severe strain. When managers acknowledge this capacity, not just the output but the endurance behind it, the validation runs deep. A specific comment about how someone kept a project moving during power cuts or currency fluctuations registers far more than a generic thank you.
-
-Belonging motivates strongly because networks in Lebanon are real safety structures, not social preferences. Where state institutions have faltered, people depend on relationships for access, protection, and dignity. This means team members often work hardest for circles where loyalty runs both ways and dignity is reliably safe. A manager who creates genuine inclusion, who checks in naturally and makes space for people to be seen, is tapping into a core driver. Conversely, someone in a culture where individual performance bonuses outweigh team cohesion might underestimate how much a Lebanese colleague values being part of a trusted group. From the other side, a Lebanese team member might read a purely transactional approach as cold or even unsafe.
-
-Financial incentive matters, especially where family obligations sit in the background. Remittances often flow across borders, and many professionals carry transnational responsibility that shapes capacity and priorities. Compensation alone, however, rarely sustains motivation if the environment feels unstable or dignity is at risk. Combine fair pay with respect, clear communication, and the sense that someone's effort is genuinely valued, and commitment rises.

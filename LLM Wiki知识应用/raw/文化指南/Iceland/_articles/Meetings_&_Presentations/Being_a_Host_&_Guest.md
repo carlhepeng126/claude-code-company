@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-An invitation to an Icelandic home, particularly a summer house, offers more than a meal. Homes here tell a story through bookshelves filled with crime novels and sagas, photos of storms and hikes, gear for fishing or skiing stacked near the door. Being invited in means your host is sharing that story of a life lived in the North. Accept the invitation if you can, and bring a bottle of good wine or flowers. Arrive on time, remove your shoes at the door, and treat the space with the respect you would show someone's personal archive.
-
-The dugnadur tradition, where small communities come together for volunteer work like painting a school or cleaning a beach, shapes how people behave in private homes too. Everyone helps. Guests who offer to carry wood, stack dishes, or fetch water fit naturally into this ethic. Sitting back and waiting to be served reads as oddly formal, even disengaged. A colleague from a culture where guests are treated as honored visitors might see this as being put to work, while an Icelandic host might read reluctance to help as standoffishness. Pitching in signals you understand the unspoken script.
-
-Hosts pay close attention to whether you will get home safely. They check the forecast, monitor road apps, and may gently insist you stay over if conditions deteriorate. This concern is practical, rooted in the unpredictability of Icelandic weather and terrain, and taking it seriously builds trust. Demonstrating that you prioritize safety over schedule shows you recognize the seriousness of the environment, and the care behind the offer.

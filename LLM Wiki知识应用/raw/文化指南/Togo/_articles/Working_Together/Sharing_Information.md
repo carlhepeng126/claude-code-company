@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information flows through established relationships in Togo, not simply through job titles or organizational charts. French colonial structures left behind formal hierarchies and bureaucratic processes, but much of what actually gets decided or shared still moves through personal networks built on trust, family ties, and long-standing connections. People are careful about what they say to whom, particularly when visibility or reputations are involved. Sharing too openly with someone you do not know well can create risk, so colleagues often wait to see whether you will respect confidences and handle sensitive matters with discretion before speaking freely.
-
-Within organizations, information frequently stays within teams rather than circulating widely across departments. Preserving harmony and avoiding public embarrassment shape this tendency. Raising problems openly, especially in front of senior figures or across divisions, can feel like an exposure rather than a contribution. A colleague from a culture where transparency and early escalation are expected may read this as withholding or inefficiency. From a Togolese perspective, the same colleague's directness might seem tactless or even risky, bypassing the relational groundwork that makes open exchange safe.
-
-Building trust takes time and consistency. Demonstrating reliability, keeping promises, and showing genuine interest in your colleagues' lives and concerns all matter. Informal settings like shared meals or casual conversations often reveal more than formal meetings. Once trust is established, information flows more readily and relationships deepen, but pushing for openness before that foundation is in place rarely succeeds.

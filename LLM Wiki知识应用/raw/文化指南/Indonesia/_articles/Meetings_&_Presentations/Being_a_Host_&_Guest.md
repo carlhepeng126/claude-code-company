@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Being invited into a colleague's home or to a family celebration such as a wedding, *syukuran* (a thanksgiving gathering), or *selamatan* (a communal blessing ceremony) reflects a shift in how you're seen. You're being welcomed as *kekeluargaan* — treated like family, rather than as a purely professional contact. Hosts may offer you their own bed, cook for hours, and introduce you to extended relatives across several generations. This level of generosity reflects a relational worldview where time, effort, and shared presence strengthen trust more than transactional courtesy ever could. Reciprocate by making time for the occasion and engaging warmly with those introduced, especially elders.
-
-Bringing a small gift when you visit is expected and appreciated. Fruit, snacks, or something modest from your own country works well. Indonesians also practice *oleh-oleh*, the custom of bringing back small gifts from trips for colleagues, neighbors, or family. These aren't expensive tokens but gestures that keep relationships alive across distance. Giving and receiving should be done with the right hand, as the left hand is considered unclean in Muslim practice. Watch for cues around when to begin eating or drinking, and avoid finishing everything on your plate unless you want more, as an empty plate signals you're still hungry.
-
-Homes often follow prayer schedules, modesty norms, and spatial boundaries. Shoes are removed at the door. Certain areas may be reserved for women or for guests. Prayer times may shape the rhythm of the visit. Following these quietly, without needing explanation, shows respect. A colleague accustomed to informal, boundary-free hosting may read these practices as overly formal or restrictive, while an Indonesian host may view a guest's casual disregard for household rhythms as insensitive or unaware.

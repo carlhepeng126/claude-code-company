@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Kiribati are shaped by the country's deeply communal culture, where relationships and group harmony matter more than speed or efficiency. Decisions are rarely made in a single sitting. This reflects the traditional approach of *te maroro* (communal deliberation), where extended discussion ensures everyone's voice has been heard and consensus has truly been reached. For a colleague from a culture where decisions are expected at the end of the first meeting, this can feel unclear. From the Kiribati side, pushing for closure too soon can seem aggressive and dismissive of the group's need to process together. If you're planning a meeting, build in time for follow-up and expect that clarity will emerge across multiple conversations, often informal ones.
-
-The meeting itself may not follow a rigid agenda. Conversation can move in unexpected directions as participants test the relationship and build a sense of comfort with you. Senior figures may speak less than you expect, as their role is often to listen and observe rather than dominate the discussion. Silence during a meeting is common and should be respected. It often means people are thinking, not disengaging. Rushing to fill quiet moments or pressing for immediate responses can close down dialogue before trust has formed.
-
-Meetings in the capital or in government settings may follow more structured formats, but even there, the priority remains relational. If the interpersonal foundation is weak, progress will stall regardless of how well the agenda is organized.

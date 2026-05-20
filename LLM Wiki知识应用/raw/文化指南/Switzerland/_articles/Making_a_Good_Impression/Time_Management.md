@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Punctuality in Switzerland reflects a particular view of fairness. Being on time shows respect for others' schedules and for the shared order that lets complex systems work. This goes beyond efficiency. When someone arrives late or misses a deadline, it disrupts not just the schedule but the basic agreement that people will do what they said they would. That breach reads as a lack of seriousness, a term that in this context means reliable and respectable as much as earnest. If you arrive on time, end when you said you would, and give early notice when plans shift, you protect your professional credibility. If you don't, word travels.
-
-Federalism shapes the practical rhythm. Public holidays vary by canton, so a date that works in Zurich may fall on a holiday in Lucerne. A colleague scheduling a rollout across Swiss offices without checking cantonal calendars will meet confusion or silence. The same applies to daily life. Quiet hours are regulated locally, often covering late evenings and Sundays, reinforcing the idea that time has social meaning beyond the working day. Planning events or calls without respecting these rest periods can create friction, especially in smaller towns or residential settings.
-
-A colleague from a culture where decisions are made quickly and schedules flex around urgency may read this precision as rigidity. From the Swiss side, the same flexibility can look like poor planning or a disregard for commitments already made. Both are reading the clock through different logics. One prioritizes responsiveness, the other reliability. Neither is wrong, but the misalignment becomes visible when deadlines slip or meetings stretch without warning.

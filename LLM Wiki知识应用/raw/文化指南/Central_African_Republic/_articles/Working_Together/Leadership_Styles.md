@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in the Central African Republic is shaped by deep respect for hierarchy and elder authority, rooted in both traditional governance structures and the legacy of French colonial administration. Formal titles and visible markers of seniority command deference in professional settings. Decisions rest firmly with those at the top, and questioning a leader's judgment openly can be read as disrespectful, even destabilizing. This does not mean leaders ignore input, but the final word belongs to them, and that expectation is widely shared.
-
-At the same time, consultation happens, particularly with trusted advisors or senior members of the group. A manager may gather views before deciding, but the process is selective and relational rather than open or procedural. Input is more likely to be sought privately than in a formal meeting, and it flows along lines of personal trust rather than organizational role. A colleague from a culture where teams expect transparent decision-making processes may find this opaque or exclusionary. From a Central African perspective, the same colleague's expectation of equal voice in decisions may appear to disregard the leader's responsibility and standing.
-
-In practice, this means that if you are leading, your authority will be respected, but it also needs to be visibly exercised. Delegation without clear instruction can create uncertainty. If you are not the leader, your influence will depend on the relationship you build with the person who is, and on showing respect for their position in every interaction.

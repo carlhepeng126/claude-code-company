@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Portuguese professional attire favors restraint and careful finishing over obvious displays of status or wealth. Decades of Estado Novo rule shaped public-facing norms around "properness" and not drawing excessive attention to oneself. That legacy persists today as a preference for neat, composed presentation in formal settings. Business dress is typically European in style, but credibility is read through subtle markers—grooming, well-maintained fabrics, and understated tailoring—rather than bold statements or showy branding. Someone arriving in an expensive but flashy outfit may register as slightly out of tune with local sensibilities.
-
-The practical baseline for first meetings is clean, neutral, and well-finished. Men wear dark suits with plain ties, women opt for dresses, tailored suits, or blouses with skirts or trousers. Hemlines are often above the knee, and open-toed shoes are common. The quality of fabric and cut speaks more than the label. A tailor-made suit in a conservative color will feel more at home than something visibly expensive but less carefully considered. For men, smart leather shoes and a good belt matter; ties with short sleeves do not.
-
-Context varies by sector and city. Government offices and traditional industries maintain formal expectations, while younger sectors like tech or creative fields allow business casual or well-chosen jeans with a blazer. Lisbon's cosmopolitan environment, Porto's distinct civic pride, and quieter interior regions can shift what reads as "appropriate" even within the same country. If you're moving between settings—corporate, public sector, informal creative spaces—start with neutral professionalism and adjust as you observe what others do. Familiarity brings informality; the first impression should signal respect for the context, not assert dominance through dress.

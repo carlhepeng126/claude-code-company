@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-In Malawi, hosting is an act of care rooted in the principle of *umunthu*, the interconnectedness that defines social belonging. A good host ensures that guests are greeted warmly, seated comfortably, and fed well. Being offered food or drink goes beyond refreshment; it places someone inside the circle of acknowledgment and welcome. To decline without good reason can feel like a rejection of the relationship itself, which is why accepting what is offered, even in small amounts, is read as a sign of respect. If you are invited to a colleague's home, bring something modest such as fruit, cake, or sweets for the hostess. The gesture recognizes the effort and honor involved in hosting you.
-
-Prayers before a meal are common in many households, reflecting Malawi's Christian-majority population and significant Muslim presence. Faith expressions, including words of blessing or thanks, may sit naturally inside moments of welcome. Meals may be eaten with hands, using *nsima* (a maize-based staple) to scoop sauce or relish. If utensils are not provided, use your right hand only; the left is considered unclean for eating and passing items. Trying what is served, even a small portion, shows appreciation.
-
-Respect also includes knowing when not to cross a line. In some contexts, such as initiation rites or community traditions, access is earned through belonging or permission, and curiosity should be paired with tact. A guest who asks before probing, or who waits to be invited deeper, demonstrates understanding that not all cultural space is open to tour.

@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Many Ticos draw energy from work that reflects values they identify with: fairness, environmental care, social responsibility. Costa Rica's pride in public health, education, and conservation runs deep, even as concern about rising inequality and debt grows. When an organization's mission aligns with what feels like the Costa Rican model—sustainable, decent, contributing to the common good—people engage more fully. Framing your team's purpose in those terms, rather than purely around profit or expansion, taps into something genuine.
-
-The Pura Vida ideal is more than a tourism slogan. It speaks to a real commitment to balance, to time with family, to space for nature and life outside the office. A culture of permanent overtime or last-minute weekend demands runs directly counter to what people here value. Flexibility matters: reasonable working hours, respect for personal commitments, the option to work remotely where the role allows. When someone feels their life outside work is understood and protected, loyalty and effort follow.
-
-Recognition works best when it emphasizes reliability, responsibility, and contribution to the team, not individual stardom. Public praise that highlights someone's *seriedad* (seriousness) and *responsabilidad* (responsibility) fits the cultural script. Singling out one person as the hero while others fade into the background creates discomfort. A manager from a culture that celebrates individual high performers may read Costa Rican modesty as lack of ambition; a Tico colleague may read that same celebration as self-promotion that undermines group harmony. Acknowledge effort, be specific, and make sure the recognition reflects teamwork, not ego.

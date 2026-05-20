@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Mauritanian leadership draws authority from sources that can stretch beyond the formal organisation. Where a culture shaped by Islamic scholarship, desert reform narratives, and long lineages of learning meets contemporary workplace structures, credibility often flows from moral seriousness and intellectual standing as much as from job title. Leaders with ties to scholarly traditions or reformist lineage backgrounds can command quiet prestige, even in modern settings. Restraint and disciplined presence read as strength because these qualities echo historical narratives of desert discipline generating political power, notably in movements like the Almoravids.
-
-Hierarchy itself is layered. People move across state institutions, tribal and lineage networks, religious authority, and local moral communities, treating legitimacy as plural rather than singular. This means a manager's formal authority may coexist with other, socially inherited forms of standing. Status categories and lineage positioning shape who is expected to lead and who to serve, making leadership politically charged where it crosses contested social boundaries, particularly affecting Haratin communities. A leader who ignores these inherited hierarchies may face passive resistance that is never openly stated.
-
-Language becomes a tool of authority. In a culture where praise traditions give words reputational force, leaders demonstrate power through how they affirm, place, or diminish others. Speech that exposes or humiliates can undermine a leader's standing, while carefully chosen words build loyalty. A colleague from a culture where directness signals transparency might read this careful language as evasive, while a Mauritanian counterpart might see blunt feedback as reckless and dignity-blind. Effective leaders know that what they say, and how publicly they say it, can shape acceptance as much as the decision itself.

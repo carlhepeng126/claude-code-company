@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Commercial negotiations in Norway are treated as a practical route to stable, equitable agreement. The cultural preference is for reasoning over performance. Where colleagues from cultures that value visible intensity or elaborate persuasion may interpret Norwegian calm as lack of engagement, Norwegians often read high-energy rhetoric as suspect or manipulative. Both sides can be aiming for the same outcome, but one sees plainness as honest and the other as emotionally flat. Framing your position with clear evidence and defensible logic tends to be more credible than emphasizing urgency or status.
-
-Egalitarian norms rooted in Janteloven make aggressive self-positioning feel socially clumsy. Dominance signaling or opening with extreme positions can undermine trust rather than create negotiating space. The expectation is that you present a fair offer and argue its merits, not that you start high and concede your way down. A handshake or verbal agreement often holds real weight, reflecting a wider cultural logic of autonomy paired with responsibility. Agreements are understood as commitments people are expected to honor without constant oversight, much like the allemannsretten principle of broad freedoms maintained through self-regulation.
-
-The pace may feel measured because decisions often emerge through inclusive discussion rather than executive decree. Norwegians typically probe details and test assumptions before committing, and the process can take longer than in more hierarchical or fast-moving environments. In highly globalized sectors, negotiation styles can sharpen, but even there, the baseline usually favors calm, well-supported reasoning over pressure tactics. Bringing a lawyer to early discussions can read as distrust rather than due diligence, signaling that you expect conflict rather than cooperation.

@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Dutch teams function on the principle that good ideas can come from anyone, regardless of title or tenure. This expectation flows from a deeply rooted egalitarian culture where being treated with respect is universal, not earned through rank. In practice, it means team members speak up freely, often disagreeing openly with colleagues or managers if they believe a different approach has merit. The debate itself is seen as healthy and necessary. Dutch professionals don't view a challenge to their thinking as a challenge to their authority or competence. A manager who discourages input or expects deference risks being seen as out of touch or unwilling to collaborate.
-
-This openness also shapes how teams arrive at decisions. Consensus is the expected outcome, which often requires extended discussion. Meetings are structured with clear agendas and the goal of reaching agreement, but reaching that agreement takes time because everyone's view is given consideration. For a colleague from a culture where decisions are made quickly by a senior leader, this process can feel unnecessarily drawn out. From the Dutch side, a decision imposed without consulting the team may seem arbitrary or disrespectful, even if it's efficient.
-
-Dutch teams tend to be informal in tone. Humor and directness coexist comfortably, and the atmosphere is often relaxed even when the stakes are high. Team members expect autonomy once a direction is set, but they also expect transparency about expectations. Singling out individuals for special recognition can create discomfort, as it disrupts the group's sense of shared responsibility and equal standing. Recognition is more often collective, and open competition between colleagues is generally avoided.

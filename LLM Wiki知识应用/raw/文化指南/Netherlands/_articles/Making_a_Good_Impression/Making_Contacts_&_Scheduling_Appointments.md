@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-In the Netherlands, reaching out to a new professional contact works best when it's direct, clear, and purposeful. The Dutch approach reflects a commercial history built on trade and a Protestant tradition that values efficiency and clarity. You don't need a warm introduction to make contact, though one can help. What matters more is your credibility and the substance of what you bring. A concise email explaining who you are, what you want to discuss, and why it's relevant will usually get a response. Excessive formality can feel stiff or unnecessarily distant. State your purpose plainly and include your qualifications in your email signature — academic credentials like PhD or MSc are noticed and respected.
-
-Scheduling follows the same preference for structure and planning. Appointments should be made at least two weeks in advance and confirmed in writing. Dutch professionals organize their time carefully, and last-minute requests can read as poor planning. Changing an appointment close to the scheduled time is bad manners and suggests you're disorganized. If you're running late, call ahead and explain clearly. Meetings start on time and move quickly to the agenda, so expect little small talk before business begins. For a colleague from a culture where relationship-building precedes formal discussion, this can feel abrupt. From a Dutch perspective, though, diving straight into the topic shows respect for everyone's schedule.
-
-Avoid scheduling during July and August, when many people take extended holidays tied to school breaks, or in late December around Christmas and New Year. First meetings typically happen in your counterpart's office, not over breakfast or drinks. Socializing usually waits until a working relationship is established.

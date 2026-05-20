@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Belize is shaped by a workplace culture where relationships come first and open criticism can damage trust. Managers tend to soften delivery, especially when correcting mistakes or raising concerns. Direct criticism, even when well-intentioned, can be received as a personal slight rather than professional guidance. This comes from a broader social pattern where maintaining harmony and preserving dignity are more valued than immediate transparency. If you need to address underperformance, frame it conversationally and avoid formal language. A quiet word after a meeting or a casual check-in works better than a scheduled sit-down framed as a performance review.
-
-Positive feedback is more openly shared, though even here there is care not to single someone out in a way that creates distance from the group. Praising someone publicly is generally welcome, but it should feel inclusive rather than competitive. Recognize contributions without implying that others fell short. In team settings, highlighting collective effort while acknowledging individual input tends to land well.
-
-Coaching works best when it feels relational rather than transactional. Belizeans may be cautious around feedback systems that feel impersonal or overly structured, such as rating scales or templated reviews. These can come across as disconnected from the real working relationship. Build trust through informal conversation before introducing developmental feedback. If a colleague seems to agree in the moment but follow-through is slow, the issue may not be understanding but comfort. Revisit the topic gently, and check whether they need more context or simply more time to act without feeling pressured.

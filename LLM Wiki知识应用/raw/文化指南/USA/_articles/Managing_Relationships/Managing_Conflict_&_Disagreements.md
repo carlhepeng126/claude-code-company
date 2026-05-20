@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Americans are raised to speak up for themselves, and that expectation follows them into the workplace. Direct communication is valued, and going through a third party to raise a conflict is often seen as avoidance or even weakness. If there's a problem, people are expected to address it face to face with the person involved. This reflects a broader cultural emphasis on individual agency and self-reliance. For colleagues from cultures where saving face or preserving group harmony through indirect channels is preferred, this approach can feel uncomfortably blunt or even aggressive. From the American side, reluctance to raise an issue directly may be read as passivity or a lack of investment in resolving the problem.
-
-When conflict does surface, the focus is typically on solving the issue rather than processing the emotions around it. Acknowledging the other person's concern and listening carefully are both important, but the conversation is expected to move quickly toward practical next steps. Staying calm and solution-focused is seen as professional. Bringing emotion into the discussion, especially anger or visible frustration, can undermine credibility and shift attention away from the substance of the disagreement.
-
-If a conflict escalates or becomes disruptive, a manager may intervene. The usual approach is to give both sides a chance to speak, ideally in a private setting, and then work together to identify a resolution. In more serious cases, formal mediation may be used before any legal action is considered. The goal throughout is to restore function and forward movement, not to assign blame or revisit grievances once a solution is agreed.

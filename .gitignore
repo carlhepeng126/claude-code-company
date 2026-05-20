@@ -4,6 +4,14 @@
 .obsidian/plugins/
 .obsidian/themes/
 
+# Obsidian Synced folders (do NOT track in git — Obsidian Sync handles these)
+收件箱：同步助手/
+收件箱：需求模拟/
+ACT笔记-深度思考/
+image-cards/
+LLM Wiki知识应用/
+outputs/
+
 # System
 .DS_Store
 Thumbs.db

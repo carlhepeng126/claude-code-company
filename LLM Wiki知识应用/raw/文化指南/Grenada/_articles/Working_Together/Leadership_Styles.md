@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Leadership in Grenada tends to be personal, directive, and relationship-based. Leaders are expected to take charge, make final decisions, and carry responsibility for outcomes. This reflects a cultural preference for clarity of authority and a sense that leadership should be visible and accountable. In practice, this means managers often give clear direction and maintain the final say, even in environments where input is sought. The expectation is less about democratic process and more about a leader who can be relied upon to guide the team and resolve ambiguity when needed.
-
-At the same time, effective leaders rarely lead without listening. There is value placed on being approachable and maintaining personal connection with staff. A manager who consults informally, asks questions in conversation, and takes the time to understand individual circumstances will build trust and loyalty. This does not mean decisions are made collectively, but it does mean that the best leaders balance authority with warmth. A colleague from a culture where consultation is formalized through committees or structured feedback may find this style less transparent than expected. From a Grenadian perspective, a leader who relies heavily on process without personal engagement may seem distant or bureaucratic.
-
-Respect for hierarchy is strong, but it is earned as much as it is granted by position. Leaders who are seen as fair, consistent, and willing to support their team personally will command genuine followership. Those who rely solely on title without building rapport may find their authority quietly undermined or their directives followed more slowly than anticipated.

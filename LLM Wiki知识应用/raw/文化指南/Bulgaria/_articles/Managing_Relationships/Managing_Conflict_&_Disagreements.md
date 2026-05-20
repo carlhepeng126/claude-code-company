@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Conflict in Bulgaria can flare quickly and subside just as fast, often with sharper language than colleagues from more indirect cultures might expect. Sarcasm, raised voices, and blunt critique can surface under pressure, especially when frustration has been building quietly. This directness tends to focus on the issue or the situation rather than the individual, and once the heat passes, relationships often reset without lasting tension, provided no one was publicly humiliated. A colleague from a culture where tone and phrasing are carefully moderated might read this as aggressive or unprofessional, while a Bulgarian colleague might view overly measured responses as evasive or disingenuous.
-
-One common way people protect working relationships is by directing blame toward "the system" — state bureaucracy, unclear rules, or distant ownership — rather than naming individuals. This allows frustration to be voiced without fracturing trust in a small, close-knit environment. When mediating, acknowledge these systemic pressures as genuine while still addressing behavior that crosses a line.
-
-Formal grievance channels are widely mistrusted, and many will choose silence or withdrawal over filing an official complaint. Instead, people may speak quietly to a manager they trust or to a colleague with informal influence. If the only visible options are escalation or staying quiet, most will opt for the latter. Create low-threshold, informal routes for surfacing problems early. A brief one-on-one conversation can prevent issues from compounding into resentment that eventually surfaces in ways that are harder to resolve.

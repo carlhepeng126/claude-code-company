@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Hospitality in Tunisia is a moral and cultural obligation that shapes professional as well as personal relationships. Guests are treated with generosity and care, and home invitations, while less common in business, are meaningful gestures that usually follow relationship-building. When they do come, they reflect trust and an intention to deepen the connection. Simple, sincere gestures hold more value than elaborate ones. A colleague from a culture where business and personal life remain largely separate may read the warmth of a Tunisian host as unexpected intimacy. A Tunisian colleague, in turn, may find a purely transactional hosting style distant or even cold.
-
-As a host, attentiveness and warmth create goodwill. Choose a venue that allows for relaxed conversation, and remain present to how your guests are responding. Business may not be discussed at all, but the relationship is still being observed. As a guest, accept refreshments when offered, acknowledge senior or elder figures first, and avoid rushing the experience. Taking time to connect is understood as respectful. Bring a small gift such as pastries or something from your own country. Avoid alcohol unless you know it is welcome. At a home, removing your shoes is usually expected unless the host indicates otherwise.
-
-When dining, wait for the host to begin the meal. In more traditional settings, a handwashing ritual may precede eating. Use your right hand if no cutlery is provided. Accepting a second helping shows appreciation, but leaving a small amount on your plate signals you are satisfied. Express gratitude both verbally and through follow-up gestures such as a message or small token afterward.

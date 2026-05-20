@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-People in Ireland respond well to leaders who connect work to a shared purpose rather than framing goals as purely individual wins. Success here is understood through relationships, not just performance. An Irish colleague who feels part of a team pulling together for something meaningful will deliver more than one chasing a personal bonus alone. This reflects a culture where community and collective achievement still hold weight, shaped by historical narratives of endurance, emigration and solidarity that remain part of how people see themselves at work.
-
-Recognition works best when it is sincere and understated. Public praise can feel awkward if it is too effusive or formal. A manager who thanks someone directly after a tough deadline, or quietly mentions their contribution in a team meeting, will motivate more effectively than one who stages a grand announcement. Younger professionals especially value progression opportunities, creative input and the chance to take on more responsibility. These matter as much as financial incentives, and often more in the long run.
-
-Respecting life outside work is central to motivation. People do not expect to live for their jobs, and managers who support flexible working or acknowledge family commitments build stronger loyalty. That loyalty often attaches to the team and immediate colleagues rather than to the organization itself. A colleague from a culture where overtime is routine might interpret an Irish person's firm boundary around hours as a lack of ambition. From an Irish perspective, maintaining that boundary is what makes sustained commitment possible. Pushing for constant availability or sacrificing personal time for arbitrary deadlines reduces engagement rather than increasing it.

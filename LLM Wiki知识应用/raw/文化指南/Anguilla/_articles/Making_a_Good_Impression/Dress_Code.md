@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Anguilla's professional settings lean toward smart casual rather than strict formality. Offices in the public sector and established businesses often expect collared shirts and dress trousers for men, and blouses or dresses for women, though full suits are rarely the norm outside of government or legal settings. The tourism and hospitality sectors, which dominate the economy, set a more relaxed tone. Here, neat presentation still matters, but linen shirts, lightweight fabrics, and open collars are common. The tropical climate shapes what people wear, and showing up overdressed in a heavy suit can signal a lack of local awareness. Dressing appropriately means choosing clothes that acknowledge the heat while still looking intentional and put-together.
-
-Visitors sometimes assume that a more casual style means less attention to appearance, but the opposite is true. Anguillans notice grooming, fit, and effort. Turning up to a meeting in crumpled clothes or overly casual beachwear can suggest you're not taking the occasion seriously. Even when the dress code is relaxed, people expect you to look clean, pressed, and thoughtful in what you've chosen. In client-facing roles or when meeting government officials, err toward the more polished end of smart casual. In collaborative or creative settings, you can relax slightly, but never assume that informality equals carelessness.
-
-Regional and sector differences are subtle but present. Larger businesses in The Valley, the capital, tend toward slightly more formal presentation than smaller enterprises in quieter districts. Younger professionals working in digital or creative industries may dress more casually, though still with care. Across all settings, the principle remains the same: your appearance reflects how seriously you take the relationship, and that reflection is noticed.

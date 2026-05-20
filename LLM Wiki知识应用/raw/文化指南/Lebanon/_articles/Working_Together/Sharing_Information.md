@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information moves through relationships before it moves through org charts. In Lebanon's densely networked environment, what you say and to whom can ripple outward quickly, so discretion becomes a way of protecting both yourself and others from social exposure. This guardedness is not secrecy for its own sake. It reflects a lived reality in which statements can embarrass someone, map them onto a sectarian or political side, or simply travel faster than intended in a small country where networks overlap.
-
-That caution has sharpened since the 2019 banking collapse and wider institutional breakdown. Formal systems no longer feel reliable, so many people default to protecting their networks and themselves before speaking openly. When managers or senior colleagues withhold information, it may reflect a habit of treating knowledge as personal capital in a fragile system. Colleagues from cultures where transparency is the baseline may read this as obstructive, while Lebanese professionals may see their counterparts' openness as naive or reckless in a context where exposure has real consequences. If you want fuller information flow, make confidentiality explicit and keep group settings small where sensitive topics are concerned. Larger or mixed-room meetings often raise the reputational stakes.
-
-Language-switching between Arabic, French, and English also serves as a subtle privacy tool. Shifting languages can control who fully understands, how formal something feels, or how emotionally exposed the speaker becomes, all without announcing that the topic is sensitive. Pay attention to when and where the language changes. It may signal a shift in trust, audience, or risk.

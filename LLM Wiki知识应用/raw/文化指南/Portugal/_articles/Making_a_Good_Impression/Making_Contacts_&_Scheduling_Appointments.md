@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Getting in front of the right person in Portugal often depends on who makes the introduction. Personal networks run deep here, shaped partly by a diaspora history that keeps family and professional ties stretched across borders. Many Portuguese professionals maintain connections to relatives or former colleagues in France, Luxembourg, Brazil, or Lusophone Africa, and these transnational loops can quietly determine who knows who. A warm introduction from a trusted contact opens doors faster than a polished cold email, because it anchors you in a web of existing relationships where credibility already exists.
-
-When you reach out, lead with a clear reason but keep the tone understated. Hard-sell energy can feel out of step with a culture where calm credibility tends to register more strongly than urgency. Suggesting coffee as a first meeting works well because it aligns with an everyday social ritual. The *bica* (espresso) stop is less about the drink and more about creating a low-pressure pause where conversation can unfold naturally. If you're already in Lisbon, proposing to meet near their neighborhood signals groundedness, especially in areas where *bairro* (neighborhood) belonging still shapes daily rhythms.
-
-Schedule meetings one to two weeks ahead and reconfirm a few days before. Avoid August, when many people take holidays, and be mindful of local festivals like the June *Santos Populares*, when attention shifts to communal celebrations. Expect meetings to run longer than planned. Leaving immediately after the last agenda item feels abrupt. If coffee or lunch is offered, accept it. That extension is where trust deepens and the relationship becomes more than transactional.

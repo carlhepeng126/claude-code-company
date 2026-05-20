@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Mozambique's long civil war and subsequent peace process left a strong instinct for protecting social cohesion. Many communities learned that disagreements can escalate into lasting ruptures, so conflict is handled with care. This does not mean disagreements are avoided, but rather that maintaining workable relationships often takes priority over airing issues immediately or forcefully. In practice, this means addressing problems discreetly and in ways that allow everyone to preserve their standing. If a team is underperforming, a manager is more likely to address the group as a whole rather than single out one person, framing the conversation around what is working as well as what needs to change.
-
-Public criticism can create durable harm, especially in contexts where respectability is tied to initiation traditions and adult moral standing. Being openly challenged or embarrassed can be read as an attack on character, not simply a work disagreement. This makes quiet, one-to-one conversation the preferred route for resolving interpersonal tension. If direct discussion does not resolve the issue, involving a senior figure often helps, because hierarchy and age command real respect and can mediate without forcing confrontation.
-
-Disputes may also be evaluated through multiple lenses. Depending on the people involved and where they locate legitimacy, a disagreement might be judged by institutional rules, elder or kin obligations, or religious moral frames. Understanding which authority matters most to the individuals involved can make the difference between a resolution that holds and one that unravels. In northern displacement-affected areas, where insecurity is immediate, trust boundaries can be tighter and cautious behavior more pronounced. Building credibility in these settings requires consistency over time, not quick gestures.

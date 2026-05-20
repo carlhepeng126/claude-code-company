@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information moves through relationships in American Samoa, not through formal channels or systems. The culture is rooted in fa'a Samoa, which places the family and community at the center of social life. Sharing what you know is expected among people connected by kinship, church, or village ties, but those same networks can also shape what gets shared beyond the circle. Trust develops through sustained personal connection, and professionals new to the islands should expect that updates, decisions, or context may reach them indirectly or not at all until that trust is earned.
-
-Within organizations, it is common for information to stay within teams or among those with strong relational ties rather than being broadcast widely. This reflects a cultural instinct to protect the group and avoid exposing anyone to embarrassment or conflict. A colleague from a culture where transparency and documentation are central may find this frustrating or interpret it as withholding. From an American Samoan perspective, sharing prematurely, especially with outsiders or across hierarchies, can feel disrespectful or risky if relationships have not been properly established.
-
-Building access to information requires investing in relationships over time. Regular, informal contact, showing respect for elders and titles, and participating in communal activities all demonstrate good faith. Leaders who create environments where sharing is reciprocal and where mistakes are handled privately rather than exposed publicly will find people more willing to open up. Patience and presence, rather than formal requests or escalation, remain the most reliable ways to encourage the flow of knowledge.

@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In Morocco, how you dress in professional settings communicates how you read the occasion and the people in front of you. Appearance functions as a public language of respectability, and the effort you make is understood as a measure of the respect you bring to the encounter. This expectation shifts across city, region, and generation, but the underlying principle holds: what you wear is read socially, not as a purely individual choice. In business contexts, formal and conservative dress is the norm. Men should wear smart, dark-colored suits, and women should choose elegant suits or dresses that cover the knees and upper arms. Overly casual or revealing dress risks signaling that you have misjudged the gravity of the setting.
-
-Traditional garments like the djellaba and kaftan are not costume. They function as living symbols of identity and occasion-marking, and their use can signal belonging, formality, and respect for the setting. For high-ceremony moments such as festivals, weddings, or formal receptions, traditional Moroccan formalwear may be worn by local colleagues as a cultural respect marker. Visitors should avoid wearing these garments themselves, as doing so can be read as mockery rather than appreciation.
-
-Regional and generational variation is significant. Urban centers like Casablanca and Rabat blend contemporary business dress with moments of heritage prestige, while smaller towns and rural areas tend toward more conservative modesty norms. Northern coastal zones, interior towns, and Saharan regions each carry distinct style cues tied to local climate and identity. In globalised sectors or younger industries, business casual may appear more often, but even here, deliberateness in presentation is valued over casualness.

@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Poland often begin with a structured, relatively formal tone. Opening with a clear agenda, defined roles, and a brief statement of purpose signals respect and seriousness. This preference for groundedness has roots in a history where polished performance sometimes masked unreliable intent. Many Poles still look for specifics, internal consistency, and realistic claims before they relax into ease. Overselling or exaggerated promises can quietly undermine credibility, while steady reliability over time tends to build real authority.
-
-Formality at the threshold is not just politeness; it's built into the language itself. Using *Pan* or *Pani* (Mr. or Mrs.) with surnames involves third-person verb forms, which linguistically embeds distance into the interaction. This system keeps respectful boundaries in place until the relationship earns a shift. For colleagues from cultures where first names come quickly, this can feel slow or overly cautious. From a Polish perspective, the same colleague's early informality may seem presumptuous. The transition to first names, when it happens, is meaningful and usually follows an invitation.
-
-Discussions may become substantive without becoming personal. Poland has a civic tradition of structured argument, traceable to its parliamentary history and later to Solidarity's documented demands. This means people are often comfortable with direct, evidence-based disagreement. Keeping challenges focused on the point rather than the person tends to land better than theatrical rhetoric. Silence during meetings is common and should not be filled reflexively; it often means people are considering what's been said. Regional differences exist: Warsaw's rebuilt modernity may feel faster-paced, while Kraków's academic heritage or Gdańsk's civic-labor legacy can lend different social weight to how meetings unfold.

@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Ivory Coast open with individual greetings to everyone present, usually a handshake with eye contact. Relationship building comes before business discussion, so expect time spent on small talk at the start. This is not filler. Trust and connection shape decision-making here, and people want to understand who they are working with before committing to anything. If you skip this phase or push too quickly to the agenda, you may find your counterparts reserved or less forthcoming later. Offering tea or coffee is part of this tone-setting.
-
-Hierarchy runs through every part of the meeting. The most senior person present often opens with a formal speech, and others defer to that person throughout. If you are meeting with a group, watch for who that person is and mirror the respect shown by others in the room. The person with final authority may not speak the most, but they are the one whose approval will move things forward. Responding with your own brief opening remarks, if invited, shows you understand the setting and take the relationship seriously.
-
-Agendas are useful for shared context but rarely followed rigidly. Ivoirians may move between topics, explore ideas through discussion, or shift into unplanned brainstorming. This reflects a preference for dialogue over checklist efficiency. A colleague from a culture where agendas structure the entire meeting may read this as disorganized, while an Ivoirian colleague may read strict time-boxing as inflexible or even disinterested. Once initial formality eases, people express themselves openly, and debate can become animated. If contracts are reached, confirm everything in writing with realistic terms, and follow up afterward with a summary of agreed next steps.

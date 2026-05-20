@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Presentations in Tokelau are shaped by the community's strong oral tradition and collective decision-making culture. Rather than delivering a polished pitch to secure an immediate outcome, approach your presentation as a contribution to a longer conversation. Tokelauans value consensus and careful reflection, which means decisions are rarely made during the session itself. People need to take your ideas back to their communities or working groups, where real discussion happens. If you push for commitment or use hard-sell tactics, you risk being seen as disrespectful of the process that builds agreement. Frame your presentation as an invitation to explore together, not a conclusion to accept.
-
-Storytelling works well here. Tokelau has a deeply rooted oral culture where knowledge and values are passed through narrative. Ground your points in real situations or examples that connect to local experience. Abstract concepts or dense slides with technical jargon may create distance rather than understanding. Keep visuals simple and your tone conversational. If you're working through an interpreter or presenting in a mixed-language setting, allow time for ideas to be discussed informally in Tokelauan before expecting questions in English.
-
-Silence during or after your presentation reflects respect and thoughtfulness, not disengagement. Allow pauses without filling them. People may not ask questions in the moment, especially if they involve disagreement or uncertainty, as public challenge can feel like a breach of group harmony. Follow-up conversations in smaller settings often reveal more honest feedback and open the door to real collaboration.

@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Timor-Leste tend to be modest and relationship-focused rather than formal occasions. Given limited infrastructure outside Dili, choices are often constrained. Within the capital, you may find small local restaurants serving Timorese staples like *batar da'an* (corn with mung beans) or grilled fish, alongside Portuguese-influenced dishes. International hotels offer more variety but remain a small subset of the dining scene. Most business meals take place over lunch rather than dinner, reflecting practical realities around transport and daylight.
-
-Food is frequently shared from communal dishes, an extension of the broader emphasis on connection and collective experience. Meals move at an unhurried pace, and conversation flows across personal and professional topics without sharp division. A colleague from a culture where business discussions begin quickly at the table may find this indirect, while a Timorese counterpart may read a swift pivot to business as transactional or uncomfortable. Allowing time for informal exchange before turning to work-related matters helps build the relational foundation that underpins professional trust here.
-
-Timor-Leste is a predominantly Catholic country, so alcohol may be present at business meals, though it is usually consumed in moderation. Coffee, often locally grown, is a point of pride and a natural conversation starter. If you have dietary needs, mention them ahead of time. Options may be limited, especially outside Dili, but hosts will generally do what they can to accommodate you once they know.

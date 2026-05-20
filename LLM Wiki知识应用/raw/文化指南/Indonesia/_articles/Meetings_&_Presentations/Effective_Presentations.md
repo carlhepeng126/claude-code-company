@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Presentations in Indonesia gain traction through narrative more than raw data. Audiences respond to stories that link outcomes to people and community benefit, a pattern rooted in traditions from wayang shadow plays to Friday sermons. Numbers provide evidence, but the moral undertow of fairness, mutual advantage, and helping the wider community often registers more deeply. A presenter who can frame results as shared success, rather than pure performance metrics, builds credibility with an audience that values collective harmony alongside commercial outcomes.
-
-Public critique is handled carefully. Presentations are rarely the forum for exposing partner or official failures. Doing so risks humiliating someone in front of their peers, a breach that can damage relationships far beyond the meeting room. Difficult feedback is usually coded during the session and addressed privately afterward. A colleague from a culture where direct accountability is delivered in open forums may read this as evasion, while an Indonesian counterpart may view the alternative as needlessly confrontational and disrespectful of social bonds.
-
-Grounding your message in local references builds warmth and shows cultural attentiveness. Terms like gotong royong (communal cooperation), Bhinneka Tunggal Ika (unity in diversity), or light references to jam karet (flexible time) or Jakarta traffic signal that you understand the Indonesian context beyond its economic indicators. Switching briefly into Bahasa Indonesia for key phrases can deepen connection, especially outside purely international settings. Questions may not come at the end; reflecting in silence is common, and many prefer to clarify points privately later rather than risk misunderstanding publicly.

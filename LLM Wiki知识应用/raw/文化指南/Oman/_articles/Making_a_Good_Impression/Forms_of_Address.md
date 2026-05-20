@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-Titles in Oman map a person's place in overlapping hierarchies — tribal, religious, professional, and familial. Sheikh can denote a tribal leader, a religious scholar, or a respected elder, and people notice whether you reserve it for those who genuinely hold that standing. Sayyid or Sayyida hints at descent from the Prophet's family and appears among certain Al Bu Sa'id royals and notable families. Professional titles like Doctor, Engineer, or Hajji (marking completion of the pilgrimage) are used in both literal and honorific senses. Kunya — Abu (father of) or Umm (mother of) followed by a child's name — adds a layer of warmth and acknowledges family ties. Getting these forms right tells colleagues you understand the social order, which matters more than simple politeness.
-
-The register can shift between languages and settings. In Arabic, a colleague might be Sheikh Salim or Abu Rashid, while in English emails he signs simply Salim. Omanis track both registers and expect you to follow the social one, especially in face-to-face settings. Listen carefully to how people introduce each other and mirror the form they use until they invite informality. First names are often fine once rapport is established, but tone makes the difference. Saying Ahmed warmly is not the same as barking it like a command.
-
-In group settings, greet the most senior or eldest person first. Everyone else observes how you rank people from those opening seconds. If you are unsure of seniority, wait for cues from the host or others before moving through the room. When switching between languages — meeting in English, then shifting to Arabic small talk — check with a colleague which titles and kunya apply in the Arabic layer of the relationship, where formality often runs deeper than the English conversation suggests.

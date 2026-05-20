@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Collaboration in Cyprus centers on relationship and informality. Teams function through personal bonds built over time, often reinforced by shared meals, coffee breaks, and conversation that weaves work and social life together. Trust forms the foundation of how people cooperate, and that trust emerges through repeated interaction rather than formal structures or assigned roles. This means that team effectiveness depends less on systems and more on the quality of connection between individuals. A colleague who invests in these relationships will find cooperation more fluid and communication more open.
-
-Hierarchy shapes teamwork, but it operates with care. Senior colleagues guide more than direct, and feedback is given privately to protect dignity. Public criticism can fracture relationships and undermine group cohesion, so managers tend to address issues one-on-one or use indirect language in group settings. Praise, when offered, is often directed at the team rather than singling out individuals, which reflects a preference for collective recognition over individual spotlight. International team members from cultures where direct feedback or public acknowledgment of performance is standard may find this approach understated, while Cypriot colleagues may view overt individual recognition as uncomfortable or potentially divisive.
-
-Urban and multinational environments, particularly in Nicosia and Limassol, are introducing more structured team practices, but these are adapted rather than imported wholesale. Formal team-building activities exist, but they tend to lean toward shared meals, outings, or low-key social events rather than high-energy exercises. The goal remains relational: to deepen connection, not to perform collaboration.

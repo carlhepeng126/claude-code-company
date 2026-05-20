@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business meals in Cameroon are less about formal ceremony and more about creating the conditions for trust. Entertaining happens once a working relationship begins to take shape, and the purpose is relational rather than transactional. A lunch or dinner invitation suggests that the professional connection has moved beyond surface exchanges, and that your counterpart is interested in understanding who you are outside the meeting room.
-
-Restaurants are the usual choice, though the formality of the setting depends on the seniority of the guest and the nature of the relationship. The host typically chooses the venue and may opt for something familiar or something that reflects regional pride. Business may come up late in the meal or not at all, and it's the host who signals when that shift is appropriate. Raising work topics too early can seem as though you are treating the occasion as a continuation of negotiations, rather than recognizing it as a gesture of relationship-building. The meal itself is the investment.
-
-Reciprocating an invitation is noticed and valued. Offering to host in return, whether during the same visit or on a later trip, shows that you understand the effort involved and that the relationship is not one-sided. If you are visiting from a culture where business meals are brief and agenda-driven, it may be worth adjusting your expectations around timing and pace. For Cameroonian colleagues working with counterparts who skip these occasions or treat them as optional, the absence of shared meals can suggest that the partnership lacks depth or long-term intent.

@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information in Russia often moves through trusted relationships rather than open channels. A legacy of navigating uncertainty through personal networks, sometimes called *blat* (a Soviet-era system of informal favours and connections), has shaped how people approach what to share and with whom. Information can feel like currency, something to be exchanged strategically. Within that logic, holding back sensitive details until trust is established makes sense. It reduces risk and preserves influence in environments where being exposed, or wrong, can have real consequences.
-
-The boundary between public and private conversation is culturally active. A colleague may appear reserved in a broad forum but speak with striking candour in a smaller, more trusted setting. Seniority, institutional role, and relationship history all shape what feels safe to say. A manager from a culture where transparency is rewarded across hierarchy may find this selective sharing frustrating, while a Russian colleague working in a culture where everyone is expected to contribute openly in meetings may feel uncomfortably exposed. Each side reads the other's approach differently: one as withholding, the other as reckless.
-
-To work with this, offer disclosure in layers. Start with what's necessary, then deepen as the relationship grows, and don't assume early caution reflects unwillingness or distrust. Written clarity can reduce uncertainty: short summaries, explicit questions, and stated purpose create a safer frame than improvising live. For difficult issues, smaller groups and explicit permission to follow up privately let people speak without unnecessary exposure. Trust remains the foundation.

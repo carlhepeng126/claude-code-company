@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-In Botswana, motivation builds most naturally when people feel they are contributing to something collective rather than pursuing individual recognition alone. The cultural value of *botho*, roughly translated as shared humanity and respect, shapes how people understand their role at work. Someone who performs well reflects positively on their family, their community, and the relationships that supported them. A manager who acknowledges this wider context, who thanks the team publicly or includes someone in a decision that shows trust, taps into something deeper than task completion. The recognition itself becomes meaningful because it honors connection, not just output.
-
-Financial incentives do play a role, but they rarely inspire sustained effort on their own. What tends to generate real commitment is a combination of fair compensation and a work environment where people feel seen and valued as individuals. A manager who asks after someone's family, who remembers a previous conversation, or who adjusts a deadline when a personal obligation arises, demonstrates respect in a way that formal rewards do not. That kind of attention fosters loyalty and discretionary effort far more reliably than a bonus structure alone.
-
-Tight deadlines and rigid performance metrics can feel disconnected from the relational rhythm that underpins most professional life in Botswana. Time moves more fluidly here, and family or community responsibilities often take precedence over work schedules. Expecting someone to work late repeatedly without acknowledgment of what that disrupts will not produce the result a manager hopes for. Allowing flexibility where possible, and framing goals in ways that leave room for adjustment, will generate far more energy than pressure alone.

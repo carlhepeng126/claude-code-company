@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In Conakry's ministries, banks and larger firms, people aim to look clean, ironed and respectable even when the heat and humidity press down and the electricity cuts out. Rumpled or dirty clothing gets read as lack of self-respect and disrespect toward everyone you meet. The standard for men is a collared shirt and pressed trousers, though rarely a jacket. Women dress smartly and modestly, with shoulders, upper arms and legs covered, reflecting the country's predominantly Muslim identity. High-tech fabrics that handle sweat and quick washing work better than heavy cottons. If you show up looking careless, colleagues and counterparts will wonder whether you take the relationship seriously.
-
-Regional clothing can quietly signal origin, status and sometimes religious affiliation. A Fulani boubou and cap from Fouta or a Mandé grand boubou in Kankan tells people where you belong and what networks matter to you. If given local fabric or an outfit as a gift, wear it at culturally appropriate moments like ceremonies or community gatherings, where it will be noticed and appreciated.
-
-Outside the capital, the setting shifts. Around Boké or Sangaredi, you will see high-visibility vests and steel-toed boots alongside villagers in flip-flops on laterite roads. Arriving at a muddy mining plateau in fragile office shoes, or showing up in full protective gear for a village meeting, shows you have not thought about where you are. Choose practical, modest clothing and proper footwear that match the terrain, and people will see you as someone who understands the ground beneath your feet.

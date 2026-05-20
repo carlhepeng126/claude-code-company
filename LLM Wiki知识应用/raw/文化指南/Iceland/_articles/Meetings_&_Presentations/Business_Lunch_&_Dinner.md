@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Traditional Icelandic food grew from necessity. Centuries of isolation and limited resources shaped a cuisine built on lamb, fish, root vegetables, rye bread, dairy, and preserved items. What began as making the most of what the land and sea offered has become a source of pride. Even in modern restaurants, dishes arrive with a story attached: this cod came from that fjord, this lamb from a specific farm in the north, this tomato from a greenhouse powered by geothermal heat. The pride is quiet but real, and it anchors the meal to place in a way that international menus cannot.
-
-Meals unfold without elaborate formal etiquette, but there is a rhythm. Bread is shared. Glasses are raised once or twice. Conversations drift toward stories of past storms, eruptions, or the quirks of running a business on an island where everyone knows everyone. These moments are not detours from the business discussion; they embed you in the local narrative. A colleague from a culture where meals are tightly structured around agenda milestones may read this as meandering. From the Icelandic side, a visitor who steers too quickly back to contract terms may seem transactional, missing the relational work the meal is doing.
-
-When you host, choose places that highlight local ingredients and their origins. Asking where the fish was caught or how the lamb was raised shows you understand that a plate is more than fuel; it reflects the quota system, the weather, the farmer's choices. In Reykjavík, expect new Nordic touches. In rural areas, dishes may be more traditional, fish straight from the harbor. Join lightly in whatever small toasts or stories emerge, and resist the urge to treat the meal as a formality to move through. The connection being built is as concrete as any agreement signed later.

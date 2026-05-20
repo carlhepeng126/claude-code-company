@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Malawi gain legitimacy through consultation, not only from formal authority. The shift from one-party rule to multiparty democracy in the early 1990s embedded a collective memory that proper process brings credibility, and that authority alone is rarely enough. In professional settings, senior figures hold the final say, but extensive consultation with colleagues, external specialists, and sometimes family or community networks precedes most decisions. This reflects a group-oriented approach where spreading risk and building shared understanding take precedence over speed. If you are accustomed to environments where decisions are made quickly by individuals, expect more rounds of discussion and more voices in the room before a conclusion is reached.
-
-Kinship and social structures shape whose agreement genuinely counts. In matrilineal regions, for example, the nkhoswe (maternal uncle acting as family guardian) may hold unexpected influence over personal or even professional commitments. Authority does not always sit where an organizational chart suggests. Before assuming who can decide, map the real influencers, including those whose approval operates outside the formal hierarchy. Recognizing these networks early prevents later delays or reversals.
-
-Seasonal realities and household obligations influence when people have the capacity to engage in decisions. In a society where smallholder agriculture remains central, the timing of planting, harvest, and food security concerns can shape availability and readiness in ways that do not appear on a project calendar. A request that arrives during a critical agricultural period may receive less attention than the same request at another time of year. Timing your asks with these rhythms, rather than against them, increases the likelihood of meaningful engagement and follow-through.

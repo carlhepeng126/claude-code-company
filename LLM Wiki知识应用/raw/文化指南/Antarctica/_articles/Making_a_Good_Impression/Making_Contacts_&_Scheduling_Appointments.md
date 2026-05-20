@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Antarctica has no indigenous population and no local business community in the traditional sense. The continent hosts rotating teams of researchers, support staff, and seasonal workers employed by national Antarctic programs, research institutes, and logistics contractors. Making contact here means navigating institutional channels, not personal networks. Research stations operate under distinct national protocols, and access is tightly controlled by program managers in home countries, often thousands of miles away. If you need to connect with someone on the ice, your first approach will usually be to their program's administrative office, not to the individual directly.
-
-Scheduling follows the rhythms of the field season, which runs roughly from October to February in most sectors. Outside this window, many stations operate with skeleton crews or close entirely. Appointments are planned months ahead, coordinated around flight schedules, weather windows, and competing operational priorities. A colleague from a setting where meetings can be arranged within days may find the lead time frustrating. From the Antarctic side, someone expecting a quick confirmation from a counterpart in a fast-moving commercial environment may interpret the delay as disengagement when it simply reflects different planning realities.
-
-Flexibility matters more than punctuality. Storms, equipment failures, and logistical constraints routinely push meetings back or cancel them altogether. Confirm details shortly before travel, and build buffer time into any visit. Face-to-face contact, when it happens, tends to be direct and pragmatic, with little room for extended relationship-building in the moment.

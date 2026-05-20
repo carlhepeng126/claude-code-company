@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Sweden typically move through two distinct phases: broad consultation followed by formal approval. Major decisions, especially in municipalities, agencies and larger companies, pass through teams, unions and expert groups before landing on the desk of a board, steering group or political committee. Once a decision clears that formal body, it is expected to hold. Revisiting a group decision without clear cause can feel like an insult to the process and everyone who contributed to it, so plans agreed through consensus tend to stay agreed.
-
-The Swedish preference for inquiries, test projects and pilot schemes reflects a wider commitment to evidence and reversibility in a high-trust system. Before committing to system-wide change, organizations often commission investigations, run limited trials, and evaluate results. This approach can seem slow to colleagues from cultures where decisions are made quickly and adjusted as you go. From the Swedish side, launching without sufficient groundwork can look reckless. What shapes the timeline is not indecision but a deliberate effort to manage risk through evidence rather than hierarchy or instinct.
-
-Union co-determination rights add another layer to the approval path. Big restructurings, layoffs and changes to the work environment require formal dialogue with union representatives before decisions become final. Ignoring this step will almost guarantee delay or pushback later. When planning timelines, ask your counterpart to map the real approval path: who must be heard, who must sign, and which committees meet when. Build your plan around that reality, not just the org chart. Once a decision arrives, it will be stable and implementable, so design your own commitments accordingly.

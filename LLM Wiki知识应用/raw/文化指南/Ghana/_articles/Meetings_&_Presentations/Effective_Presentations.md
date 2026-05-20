@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Presentations in Ghana land best when they feel rooted in local life. Audiences respond more warmly to examples drawn from everyday Ghanaian scenes — a tro-tro mate collecting fares, a cocoa farmer managing yield, a waakye seller at the market — than to abstract global case studies. These anchors do more than illustrate a point. They show that you understand the context your audience lives in. Where possible, build your slides around Ghanaian data and visuals rather than generic references to "Africa" or "emerging markets."
-
-Delivery style shifts depending on the room. Many Ghanaian audiences are familiar with a preacher-style cadence: rising intonation, storytelling, even moments of call-and-response. This works well at staff gatherings, regional trainings, or community-facing events. But in more formal settings — central bank reviews, senior corporate boardrooms — a calmer, lecture-style tone may be expected. Reading which "ears" are in the room helps you calibrate. In mixed or less formal settings, switching mid-talk into a local language such as Twi, Ewe, Ga, or Dagbani can shift the emotional temperature and bring people closer to the message. Partnering with a local co-presenter who can make those shifts naturally can be especially effective.
-
-Audiences listen attentively and may not interrupt. Junior colleagues often wait for senior figures to ask the first question. If someone does speak up, take time with their point. Rushing through a query or cutting discussion short can feel dismissive. Expect mobile phone calls during the session and people joining late. These are routine, and reacting visibly can create awkwardness. Keep the tone people-focused, give space for exchange, and let the conversation breathe.

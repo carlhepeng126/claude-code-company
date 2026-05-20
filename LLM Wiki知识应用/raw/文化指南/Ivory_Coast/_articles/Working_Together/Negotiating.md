@@ -1,9 +1,0 @@
-# Negotiating
-
-## Working Together
-
-Trust comes before terms in Ivory Coast, and you will need several meetings to establish a relationship before serious negotiation begins. Ivoirians do business with people more than with companies, so keeping your negotiating team consistent helps. Changing faces mid-process can reset trust and slow progress. Make sure the decision maker is present or closely involved from the start, as they can overrule agreements made by subordinates without warning, even late in the process.
-
-The goal is a package that works for everyone. Ivoirians value group harmony and aim for outcomes that benefit both sides, so a win-lose result will not feel like success. Expect some haggling, which is standard practice, and be ready to make concessions. Holding back your best offer at the outset gives you room to negotiate without weakening your position. At the same time, avoid pushing for quick or sweeping change. Risk aversion runs deep, and proposals that feel too ambitious or disruptive may meet resistance, not because they lack merit but because they feel unsafe.
-
-Conversations can become animated and emotional, especially when stakes are high. This reflects engagement, and you should respond calmly without withdrawing. At the same time, protecting face is essential. Publicly contradicting someone or forcing them into a corner will humiliate them and may damage the relationship beyond repair. Frame disagreements carefully, and give people a way to shift position without losing dignity. For counterparts from cultures where directness and speed are valued, this can feel slow or indirect. For Ivoirians working with partners who prioritize efficiency over rapport, the relational groundwork may seem undervalued, even though it underpins everything that follows.

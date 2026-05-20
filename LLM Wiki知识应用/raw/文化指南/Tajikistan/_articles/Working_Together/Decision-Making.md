@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decision-making in Tajikistan is shaped by hierarchy, personal networks, and the social consequences of getting things wrong. Formal authority rests with senior leaders, and their approval is expected before significant action is taken. This reflects both Soviet administrative legacy and deeply rooted respect for age and position. Decisions are rarely announced without prior consultation, but that consultation happens selectively and often informally, through trusted circles rather than open forums.
-
-Managers balance their formal role with the need to protect relationships and avoid public disagreement. They will seek input from people they trust before finalizing a decision, but this does not mean consensus in the sense of equal voice. It means ensuring that key people are aligned and that the decision will not create visible friction. Junior colleagues may be asked for their view, but challenging a senior figure directly, especially in a group setting, risks causing offense. If you are working with a Tajik team and pushing for transparent debate in meetings, you may find that real input comes later, in private conversations, or not at all.
-
-Regional and family considerations can influence both timing and implementation. A decision that looks final may shift if it affects someone's standing within their community or extended network. Colleagues from cultures where decisions are made quickly and then executed without revision may read this as inconsistency. From a Tajik perspective, a colleague who moves ahead without checking how a decision affects key relationships may appear disconnected or even reckless.

@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-In Tonga, professional life is shaped by a social order rooted in the centuries-old *fāmili* (family) structure and the influence of the monarchy and church. Respect for rank, age, and kinship runs through every workplace interaction. The most senior person present, whether by title, age, or family connection, guides how conversations unfold and decisions are made. Interrupting or directly contradicting someone older or more senior can be read as dismissive. A colleague from a culture where debate is seen as productive may find meetings slower or less direct than expected, while a Tongan colleague may see that same directness as abrupt or disrespectful of hierarchy.
-
-Greetings set the tone. Use formal titles and surnames unless invited otherwise. A handshake is common, though physical contact between men and women in professional settings is more reserved. Dress modestly. For men, this usually means long trousers and a collared shirt; for women, clothing that covers the shoulders and knees. In more formal or community-linked settings, men may wear a *taʻovala* (woven mat worn around the waist as a sign of respect), and women a *kiekie* (decorative waistband). These are markers of respect, especially in the presence of elders or at events tied to church or ceremony.
-
-Gift-giving is not expected in business, but small, thoughtful gestures, particularly from overseas visitors, are warmly received. Avoid anything overly personal or expensive, which can create discomfort. Present and receive items with both hands. Time moves to relationship, not schedule. Meetings may start later than planned, and small talk about family or church is a natural part of building trust before business begins.

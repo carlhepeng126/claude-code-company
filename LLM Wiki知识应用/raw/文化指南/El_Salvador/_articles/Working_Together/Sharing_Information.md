@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-In El Salvador, information often moves through trusted personal connections rather than formal channels. Relationships form the core of professional life, and people typically share openly with those they know well, while remaining more cautious with new contacts. This comes from a deeply relational culture where personal loyalty and trust define how business gets done. A Salvadoran colleague may hold back detailed information in early meetings, not from secrecy but because the relationship has not yet been established. Once trust develops, information flows more freely and colleagues become willing to share insights, concerns, and updates that would not appear in official reports.
-
-Hierarchies also shape how information moves. Employees may hesitate to share problems or concerns openly with senior leaders, particularly if doing so risks appearing critical or disrespectful. This reflects a broader cultural emphasis on maintaining harmony and showing respect to authority. A colleague from a culture where direct reporting of issues is expected might read this as evasiveness, while a Salvadoran colleague might see overly blunt updates as tactless or aggressive. Building regular, informal touchpoints with team members creates safer opportunities for honest exchange without putting anyone on the spot.
-
-Personal rapport unlocks access. Taking time to talk informally, showing genuine interest in people's lives, and demonstrating reliability will open channels that formal requests cannot. Information in El Salvador is less about documentation and more about who you know and how much they trust you.

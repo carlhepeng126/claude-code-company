@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Tokelau's approach to dress in professional or formal settings grows directly from the values of respect, modesty, and community cohesion that shape daily life across the three atolls. The population is small and deeply interconnected, and what you wear conveys your awareness of social relationships and your willingness to honor the occasion. Clothing is rarely a personal statement detached from context. It reflects how seriously you take the setting and the people in it.
-
-In most work-related situations, particularly those involving elders, village councils, or formal delegations, conservative dress is expected. Men typically wear collared shirts, often long-sleeved, with trousers. Women wear modest dresses or skirts that cover the knees, paired with blouses that cover the shoulders. The standard is not elaborate, but it is deliberate. Showing up in casual beachwear or overly relaxed clothing to a meeting with community leaders would suggest a misunderstanding of the social weight these interactions hold. For visitors from cultures where business casual leans heavily toward comfort or individual style, this level of consistency can feel surprisingly formal given the remote island setting. From a Tokelauan perspective, the reverse, arriving underdressed, may read as dismissive or unaware.
-
-Bright patterns and traditional Pacific motifs do appear, especially during cultural events or community gatherings, and wearing local attire when invited is usually welcomed. The key is to follow the lead of your hosts and match the formality of the occasion, not the temperature.

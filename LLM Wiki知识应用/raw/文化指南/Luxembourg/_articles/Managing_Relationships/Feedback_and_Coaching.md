@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Luxembourg is shaped by a quiet awareness that nearly half the population is foreign-born and that professional circles overlap constantly. Giving input means balancing clarity with discretion, knowing that today's junior colleague may be tomorrow's client, neighbor, or co-parent at the school gate. Protecting someone's public image is a practical courtesy in a place where you will almost certainly meet again.
-
-Language choice changes the emotional register of a conversation. French can sound official and slightly sharper, suited to formal feedback tied to performance or compliance. English often serves as a neutral bridge, especially in international teams. Luxembourgish, by contrast, signals insider familiarity and can make a difficult message feel more supportive, though it can also exclude non-speakers. Switching language mid-conversation is common and deliberate. A manager might open in English to keep things procedural, then shift to French or Luxembourgish to soften tone or rebuild rapport. If you are coaching someone and the language suddenly changes, read it as a recalibration, not evasion.
-
-Tone also shifts by setting. In Luxembourg City's institutional and finance sectors, feedback tends to be measured and process-oriented, shaped by regulatory culture and multicultural fluency. In the southern Minett region, where industrial heritage still influences workplace norms, directness and solidarity can run closer to the surface. A manager from the capital may find feedback there more blunt than expected, while a southerner working in Kirchberg may read institutional politeness as distant. Understanding which world you are in helps you pitch feedback at the right temperature and avoid misreading reserve as coldness or frankness as aggression.

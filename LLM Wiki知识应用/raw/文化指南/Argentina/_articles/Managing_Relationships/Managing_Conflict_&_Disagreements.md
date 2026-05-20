@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Raised voices, overlapping accusations, and dramatic gestures are normal tools in Argentine conflict. A heated argument doesn't necessarily mean the relationship is broken; sometimes it's how people clear the air. What can look like a crisis to a colleague from a culture where disagreements are resolved quietly may be, for Argentines, a necessary airing of grievance. From the Argentine side, a calm procedural response to a genuine complaint can feel cold or dismissive, as though the emotional weight of the issue hasn't been recognized. Listening deeply to the grievance and reflecting back what you've heard before moving to process will do more to de-escalate than following procedure alone.
-
-Conflicts are quickly framed in moral terms: who is abusing whom, who stands with the people and who represents entrenched power, who is brave and who is cowardly. Disagreements aren't just technical; they become questions of justice. If you need to address a problem, frame your response in fairness language: explain how you're aiming to be equitable between groups, protect the vulnerable, and correct past mistakes, rather than simply enforcing rules or pointing to contract clauses.
-
-Unions and informal leaders shape whether conflict escalates or resolves. Trying to bypass them guarantees they'll mobilize harder and more publicly later. Bring trusted representatives in early when you sense tension. After a blow-up, create space for post-conflict repair, whether a mediated meeting or a shared meal, where people can re-humanize each other and reframe the story away from pure villain and victim.

@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Delegation in Taiwan reflects Confucian ethics that position the manager-employee relationship as a source of stability and order. Managers provide direction and protection; employees respond with loyalty and precise execution. This is not blind compliance. It reflects a genuine conviction that clear hierarchy produces better outcomes for everyone. When you delegate a task, expect your instructions to be followed closely. Employees will deliver exactly what was asked for, not an interpretation of it. If you want creative input or an alternative approach, you must invite it explicitly. Otherwise, proposing changes unasked can read as a suggestion that the original instruction was flawed, which risks undermining the manager's authority.
-
-The concept of face shapes all feedback and correction. Public criticism does not just embarrass an individual. It damages the social fabric of the team and makes future openness less likely. A manager from a culture where direct, real-time feedback is valued as a development tool may see this as inefficiency. From a Taiwanese perspective, a colleague who corrects others in front of the group may appear insensitive and poorly suited to leadership. If something needs to be addressed, create a private channel. Silence in meetings is social courtesy, not agreement, and concerns will not surface in group settings.
-
-Physical presence remains culturally significant. Long hours and visibility are read as commitment to the team and respect for the manager. Remote or outcome-focused management can feel impersonal until trust is well established. If you manage output rather than attendance, explain the approach clearly and give it time to take root.

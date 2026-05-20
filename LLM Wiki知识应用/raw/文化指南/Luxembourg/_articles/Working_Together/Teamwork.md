@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Luxembourg's survival story has long relied on negotiated structures rather than scale. The 1867 settlement that neutralised the country and dismantled its fortress set a pattern: order, alignment, and agreed rules became the way diverse interests moved together. That same logic shapes how teams function today. Groups cohere around clear frameworks and agreed processes, and alignment typically strengthens when people know what structure they are working within. When roles, procedures, and expectations are well defined, collaboration moves more smoothly.
-
-With 47.2% foreign nationals in the population and 47% of employees crossing borders daily from France, Belgium, and Germany, teams are routinely built from multiple cultural backgrounds. The Portuguese community forms a particularly significant presence. This plural reality means that togetherness is rarely assumed; it has to be built through sensitivity to different conversational rhythms, time commitments, and comfort zones. Language switching is a core teamwork skill. Luxembourg's official trilingualism, anchored in the 1984 language regime, normalises reading context and adjusting which language you use. Code-switching becomes a way of signalling inclusion and responsiveness to the group's composition.
-
-Regional memory also shapes team instincts. The Minett region in the south carries a working-class, industrial legacy tied to steel and iron ore, with stronger habits of solidarity and collective voice. Kirchberg, by contrast, reflects the international, institutional professional milieu of the capital. Both are Luxembourg, but they bring different social memories to how cohesion is built and maintained. Teams that acknowledge these internal differences, rather than assuming a single national baseline, tend to function with fewer unspoken tensions.

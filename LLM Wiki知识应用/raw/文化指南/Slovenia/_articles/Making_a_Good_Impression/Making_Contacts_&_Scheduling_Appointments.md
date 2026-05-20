@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Slovenia's small scale means professional networks overlap more than you might expect. People often place new contacts through mutual acquaintances, shared institutions, or regional ties, and that closeness extends across borders into neighbouring Italy, Austria, Hungary, Croatia, and the wider post-Yugoslav region. When you're making first contact, a warm introduction from someone already trusted speeds things up and signals you're serious. If you don't have a mutual connection, written contact by email works well, but follow up by phone once there's interest. Offer a clear purpose, realistic timing, and a choice of dates. Slovenians appreciate preparation, so share background on your company and let them know who's attending so they can bring people of appropriate seniority.
-
-The memory of independence in 1991, achieved through broad civic mobilisation, sits quietly in the background. It shapes a preference for being treated as Slovenia, not as an afterthought to a larger neighbour or a generic "Eastern European" add-on. Small, specific homework goes a long way: mention the place, the institution, the local context. Avoid framing your outreach as "basically Italy" or "part of the Balkans." Slovenia sits at the crossroads of Alpine, Adriatic, Pannonian, and Balkan worlds, but it's its own centre.
-
-Diversity is easy to miss but present. The Italian and Hungarian national communities and the Roma community are constitutionally protected, and their presence is most visible in border and coastal areas. Migration from Bosnia and Herzegovina, Serbia, Kosovo, North Macedonia, and Croatia also shapes everyday networks, especially in cities and certain industries. If you're scheduling across regions or working with diverse teams, ask rather than assume, and allow for different relationship rhythms.

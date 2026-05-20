@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information often travels carefully in Taiwan, shaped by Confucian respect for hierarchy and a strong concern for face. People may avoid sharing bad news or open disagreement, especially with senior colleagues, to preserve harmony and protect relationships. Silence in a meeting does not always mean agreement. Concerns may exist but remain unspoken, particularly when voicing them could embarrass someone or disrupt group cohesion. If you need honest input, consider creating confidential channels or following up one-on-one after formal discussions, where the pressure to maintain face is lower.
-
-Within organizations, information may stay concentrated in individual teams rather than flowing freely across departments. This pattern reflects both hierarchy and a preference for sharing only what is necessary. A colleague from a culture where transparency is expected across roles may find this frustrating and interpret it as withholding. From a Taiwanese perspective, the same colleague's habit of broadcasting updates widely may seem careless or a failure to respect boundaries. Building strong personal relationships and demonstrating reliability over time can open access to information that formal requests alone will not.
-
-In technical and industrial sectors, written documentation and project management tools are standard practice, sitting comfortably alongside relational communication. Combining clear written records with informal discussion fits local habits well. Storytelling, metaphor and example-based explanation often color how context is shared, particularly outside highly technical exchanges. Giving time for this kind of framing can reveal important background and help you understand not just the facts, but why they matter.

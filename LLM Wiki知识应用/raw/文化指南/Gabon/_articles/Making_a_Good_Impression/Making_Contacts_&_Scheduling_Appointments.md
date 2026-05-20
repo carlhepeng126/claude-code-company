@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Building professional contacts in Gabon begins with recognizing that trust develops through personal connection, not just correspondence. The country's professional culture, shaped by close social networks and the importance of face-to-face interaction, means that people prefer to assess commitment and character directly. Email and phone calls can open dialogue, but credibility builds in person. A contact made through a mutual acquaintance, colleague, or business partner shifts the tone immediately. The introduction acts as a form of endorsement, shortening the path to collaboration. In practice, this might mean asking a trusted colleague to arrange an informal introduction over lunch, or being invited to a social event before any formal meeting takes place.
-
-When scheduling appointments, book well ahead and confirm a day or two before the meeting. Allow breathing room in your calendar. Meetings may start later than planned, run beyond their scheduled time, or include colleagues who weren't originally listed. A colleague accustomed to tightly sequenced back-to-back meetings may find this disorienting, while a Gabonese counterpart might view rigid scheduling as inflexible or disconnected from how work actually unfolds.
-
-In Libreville and other urban centers, younger professionals and those working in international firms may move more quickly to business and respond promptly to digital communication. Outside the capital, introductions still tend to come through established networks, and the rhythm of contact-making slows. Regional and generational differences are real, and adjusting your approach based on context will make initial outreach more effective.

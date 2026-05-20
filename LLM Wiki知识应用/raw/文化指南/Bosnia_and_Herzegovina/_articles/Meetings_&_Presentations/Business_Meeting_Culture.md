@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in Bosnia and Herzegovina can appear improvised to visitors used to fixed agendas, but the informality reflects a relational logic shaped by decades of navigating uncertainty. Decisions are rarely made in the meeting itself. The room is a place to exchange views, test trust, and gauge intentions. Real agreement often happens afterward, in smaller settings or one-to-one conversations with the person who holds authority. This means what looks like indecision during a formal session may simply be the visible part of a longer, less visible process.
-
-Hierarchy shapes who speaks and when. Senior figures are present to signal the relationship has standing, but they may say little during the discussion. Defer to them at the opening and closing of the meeting, and direct key points their way even if others are doing most of the talking. Younger or more junior colleagues may offer detail and handle logistics, but they rarely commit without checking upward first. If you push for a decision in the room, expect polite deflection or a conditional yes that unravels later.
-
-Small talk before business is expected and functional. It gives both sides time to assess credibility and build the personal connection that underpins everything else. Rushing this phase to get to the agenda can make you seem transactional or untrustworthy. Similarly, follow-up after the meeting often happens informally. A coffee invitation or a call a few days later may be where the real clarity emerges. If you treat the meeting as the full transaction, you may miss where the work actually begins.

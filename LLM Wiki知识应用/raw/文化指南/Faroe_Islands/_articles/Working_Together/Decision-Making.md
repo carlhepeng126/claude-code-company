@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decision-making in the Faroe Islands often involves more people than formal hierarchy would suggest. Consensus is valued over speed. This reflects a close-knit society where relationships extend beyond the workplace and where decisions that affect one area of life often ripple into others. The smallness of the islands means people expect to be consulted, not because they hold a particular title, but because they will be affected by the outcome or because their knowledge is trusted. A manager who announces a decision without prior soundings may find quiet resistance or a slower rollout than expected.
-
-Consultation tends to happen informally before any formal meeting. Key conversations take place in hallways, over coffee, or outside work entirely. By the time a decision reaches a meeting room, agreement has usually been built. A colleague from a culture where decisions are made quickly in structured sessions may read this as inefficiency or avoidance. From a Faroese perspective, the informal groundwork is the decision-making process. Skipping it risks overlooking practical concerns or damaging relationships that matter beyond the immediate task.
-
-Authority exists but is exercised with care. Senior figures are respected, and their approval is often needed before action proceeds. However, that approval is rarely given without prior alignment across the group. If you are leading a project, allow time for this layered consultation. Present your proposal early, listen to feedback outside formal channels, and be prepared to adjust before seeking final sign-off. Decisions that feel socially right are more likely to move forward than those that are technically optimal but relationally awkward.

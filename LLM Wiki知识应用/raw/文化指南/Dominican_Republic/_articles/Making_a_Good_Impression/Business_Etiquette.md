@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Dominican meetings often begin with hugs, jokes, and questions about family, creating an atmosphere that can feel genuinely warm and inclusive. Yet beneath this visible friendliness sits a clear vertical hierarchy. The ease of the opening moments doesn't mean everyone has equal voice in the decision. Pay attention to who people defer to, even subtly, and adjust your pitch or proposal accordingly. A colleague from a culture where informal tone signals flat structure might misread the warmth as consensus-driven decision-making, while Dominicans may find such assumptions naive or tone-deaf to power.
-
-To earn trust, you need to be seen as both serio and slightly street-smart. Being serio means you are honourable, reliable, someone who keeps their word. But you also need a measure of tigueraje, the ability to navigate a system shaped by bureaucracy, shifting rules, and personal favours without proposing anything shady. Show that you understand local constraints and can move pragmatically within them, without losing your integrity. This balance is what makes you credible.
-
-Arguments often take the form of stories rather than abstract frameworks. People share anecdotes from past deals, crises, or "mira lo que pasó cuando…" to make their point. These narratives carry more persuasive weight than slides alone. If you want to build traction for an idea, anchor it in real examples from the region and invite your counterparts to share their own. Older or more conservative leaders may also open with "Primero, gracias a Dios" or reference God's will. This isn't decorative; it frames business outcomes within a moral universe. Respond with respectful language, even if you are personally secular.

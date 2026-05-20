@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Guam is rooted in the principle of *inafa'maolek* (roughly, "to make good"), a cultural commitment to social harmony and collective wellbeing. This means that team success is measured not only by the task outcome but by whether relationships remain intact and everyone feels included. Decisions are often talked through informally before formal meetings, giving space for agreement to build quietly and avoiding public disagreement that might cause embarrassment or fracture group cohesion. A colleague from a culture where decisions are made quickly in open debate may read this as avoidance or inefficiency, while someone from Guam may perceive the faster approach as dismissive of relationship and dignity.
-
-Senior team members tend to lead through guidance and example rather than direct instruction. Mentorship is often indirect, expressed through side conversations, modeled behavior, or gently worded suggestions rather than overt critique. This reflects the cultural importance of respect, humility, and face-saving. Feedback is rarely given in front of the group. If something needs to be raised, it will usually be done one-on-one and framed with care. If you need to address performance, plan to do so privately and with attention to tone, not as a reprimand but as a way to support the person's role in the team.
-
-Praise is typically directed at the group rather than singling out individuals, which protects balance and morale. Public recognition of one person can create discomfort, both for the individual and for others. Instead, acknowledge the team's collective effort. This doesn't mean individual contribution goes unnoticed, but it is honored within the relational fabric, not above it.

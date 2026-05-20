@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Benin is deeply relational. People respond best when they feel personally valued and when their work strengthens their standing within the team and the wider community. Public recognition from a respected leader carries real meaning, particularly when it acknowledges specific contributions in front of peers. A manager who takes time to thank someone individually, or who involves them in a visible project, shows that their effort has been noticed. That recognition builds loyalty and encourages sustained engagement in ways that formal incentive structures alone rarely achieve.
-
-Financial reward matters, but it works best when paired with a supportive, human-centered environment. A salary increase or bonus will be appreciated, but it will not compensate for a workplace that feels impersonal or where relationships with superiors are distant. Managers who check in personally, who show interest in someone's family or wellbeing, and who create a sense of shared purpose will see stronger commitment. People want to feel they belong to something, and that what they contribute is part of a collective effort that reflects well on everyone involved.
-
-Rigid targets and tight deadlines, by contrast, often have the opposite effect. Time in Benin is more fluid, and family or community obligations take precedence over work schedules. Pushing for strict adherence to timelines, especially when it conflicts with personal commitments, can create resentment rather than urgency. Managers who allow flexibility while keeping momentum, and who frame deadlines as goals rather than fixed mandates, will find people more willing to engage. What looks like a lack of discipline to a colleague from a culture where schedules are fixed may simply reflect a different set of priorities, where relationships and immediate needs come first.

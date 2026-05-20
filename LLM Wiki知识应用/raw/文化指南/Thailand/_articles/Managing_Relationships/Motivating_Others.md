@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Thailand grows from relationship, not reward alone. People work hard to maintain harmony, to reciprocate care, and to avoid letting the group down. When a manager protects someone through a difficult period, helps with a family matter, or steadily supports their development, it can create *bunkhun*, a deep moral tie that drives loyalty and effort over time. Someone might stay with a team, or follow a manager to a new role, because of this relational commitment rather than a better package elsewhere. Financial comfort matters, but once a certain level is reached, many people prioritize balance and family over further advancement.
-
-Recognition works best when it is warm, specific, and delivered in a way that does not embarrass. Singling someone out in front of the group can create discomfort rather than pride. Acknowledging contributions quietly, or framing success as shared, preserves face and keeps motivation intact. A colleague from a culture where public individual praise is expected may read this quieter approach as lack of appreciation, while a Thai colleague may find the spotlighting itself awkward or socially unsafe.
-
-*Sanuk*, often translated as fun or enjoyment, keeps the emotional climate workable. It is less about organized activities and more about maintaining lightness and ease in daily interaction. When the atmosphere becomes tense, shaming, or overly pressured, commitment tends to drop without visible protest. Managers who can adapt timelines, stay steady under pressure, and keep the tone supportive will see stronger engagement than those who rely on aggressive targets or public accountability.

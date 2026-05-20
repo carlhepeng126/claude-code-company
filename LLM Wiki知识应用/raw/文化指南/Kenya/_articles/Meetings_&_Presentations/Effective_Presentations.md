@@ -1,9 +1,0 @@
-# Effective Presentations
-
-## Meetings & Presentations
-
-Presentations in Kenya work best when they balance polish with warmth. Urban professional audiences expect visual quality, clear structure and confident delivery, but they also respond to storytelling and references that connect your message to wider themes of progress, community benefit or national innovation. A purely data-driven approach can feel cold, while an overly emotional one may lack credibility. Skilled presenters weave in anecdotes or examples that anchor abstract ideas to real situations, and they reference shared touchpoints like athletics, resilience or unity when building rapport. Humor is welcome if it fits the audience, and enthusiasm in delivery is appreciated more than detachment.
-
-The way directness is received varies across the room. Audiences with strong Bantu cultural influences may prefer diplomatically framed arguments and indirect critiques, while those from Nilotic backgrounds often engage more readily with frank statements and open challenge. Cushitic-influenced colleagues may bring a negotiation-oriented style that tests proposals assertively. In mixed settings, aim for balanced delivery: clear enough to avoid ambiguity, but warm enough to maintain relational goodwill. If you push too hard or too fast, you risk being seen as transactional or dismissive of group input.
-
-Kenyans are attentive listeners and rarely interrupt. Silence during your presentation reflects respect, not disengagement. Question time, however, can be expansive. Respondents may frame their questions with context or stories of their own, and cutting this short feels disrespectful. Build in generous time for dialogue and resist the urge to control pacing tightly. Bring printed handouts and supporting statistics, and if using technology, confirm connectivity in advance rather than assuming it will work seamlessly on the day.

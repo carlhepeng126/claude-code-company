@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-A respected Icelandic leader is someone you could picture standing next to you in a storm at three in the morning: calm, practical, willing to do unglamorous work. This expectation comes from a culture where survival has historically depended on everyone pitching in regardless of rank, and where hierarchies flatten quickly under real pressure. Distance does not inspire confidence. The leader who retreats into formality or stays removed from the messy realities of the work will struggle to build credibility. Instead, credibility comes from being visible in ordinary situations and remaining grounded in the same daily routines as everyone else.
-
-Icelandic leaders are often seen queueing at the same pool or shopping at the same supermarket as their team. There is no VIP bubble, and attempts to create one are read as disconnection or pretension. This accessibility is not just symbolic. It reflects a culture where status is shared, not concentrated, and where leadership is earned through competence and reliability, not asserted through separation. For a manager from a culture where seniority brings distinct privileges or visible markers of rank, this can feel uncomfortably exposed. From the Icelandic side, a leader who avoids shared spaces or insists on different treatment may seem insecure or out of touch.
-
-Decisions involving the environment or small communities are watched closely. Leaders are expected to weigh economic opportunity against social and environmental limits, and those judgments shape long-term reputation. A project that benefits the business but harms the land or sidelines a community will be remembered, and not favorably. Explain your reasoning on these fronts clearly, and make environmental and social considerations central, not secondary.

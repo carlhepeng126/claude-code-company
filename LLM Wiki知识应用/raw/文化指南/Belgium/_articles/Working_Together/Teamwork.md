@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Belgian teams function as ongoing exercises in micro-compromise. Many bring together French- and Dutch-speakers, colleagues with different political leanings, EU and local backgrounds, and people whose working languages may not align. Getting things done means constant, small-scale adjustment. A Flemish colleague may prefer English or Dutch with short, direct exchanges. A Walloon colleague may favour French and richer discussion. Brussels colleagues often toggle between three languages. People can feel more or less capable depending on which language is used, so rotating the working language and using written follow-up to support those operating in a second or third tongue is a practical way to keep contribution balanced.
-
-Many Belgians grew up in youth movements like Chiro, scouts, or Patro, or in sports clubs and union branches. This background shows up in teams as shared responsibility, informal leadership, and comfort with committee work. Meetings often reflect those habits. Rounds, small groups, and consensus checks feel familiar and effective. Top-down directives without space for input can feel jarring, especially in Flemish contexts where participation is expected, though Walloon teams may lean more readily toward formal leadership and clear direction from above.
-
-The person who holds a team together is often not the highest title holder. It's usually the quiet organiser who knows how things really work across language, region, and administrative rules. This glue work, connecting stakeholders, translating, navigating systems, often goes unnoticed. Recognising and valuing it matters. When leading mixed teams, build in explicit check-in moments: what would make this work for Liège, for Ghent, for Brussels? That multi-regional perspective is a strength, not a complication, but it needs deliberate space to surface.

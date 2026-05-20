@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Bhutan often take place at hotel restaurants in Thimphu or Paro, especially when international colleagues are involved. The setting is usually informal, but the meal itself reflects a wider cultural preference for building connection before diving into business. Meals are rarely short or purely functional. Bhutanese colleagues may take time to ask about your impressions of the country, your journey, or your family. These questions reflect genuine interest and help establish the relational foundation that shapes how business proceeds later.
-
-Food is typically Bhutanese unless otherwise arranged. Expect rice served with ema datshi, a dish of chili and cheese, along with side dishes that might include meat, vegetables, or lentils. Meals are often spicy, and it's acceptable to ask for milder versions or alternatives. Tea, often butter tea in more traditional settings, may be offered. Alcohol is available in many restaurants, though preferences vary. Buddhist values are influential, and some colleagues may choose not to drink. Following their lead is a practical way to avoid missteps.
-
-Conversation during the meal tends to be indirect when it touches on work. A colleague from a culture where business points are addressed quickly and explicitly may find it hard to know when negotiation or planning has actually begun. From a Bhutanese perspective, a colleague who shifts too quickly to contract terms or timelines may seem impatient or disconnected from the relationship being built. Letting the conversation develop at its own pace, and recognizing that agreement may emerge gradually rather than in a single exchange, helps align expectations on both sides.

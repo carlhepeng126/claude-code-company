@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Zimbabwean teamwork is grounded in *hunhu* (or *unhu*), a shared ethic that frames character through how someone protects dignity and supports others. In group settings, trust builds less through individual performance than through how people behave when others are under pressure. Offering practical help, such as unblocking a problem, sharing access to a resource, or stepping in during a difficult moment, functions as credibility in contexts shaped by constraint. This reflects older logics like *zunde raMambo*, a communal provision tradition in some Shona contexts where communities protected members in hardship. Though rarely active in modern urban workplaces, the underlying expectation of mutual responsibility still shapes how collaboration is understood.
-
-Harmony across seniority lines is treated as a functional strategy, not a preference. Public disagreement, especially with senior colleagues, risks damaging relationships that must remain workable over time. Concern may be expressed indirectly or moved into private channels. A colleague from a culture where open debate is encouraged might read this as avoidance or lack of engagement. From the other direction, Zimbabwean colleagues may see rapid public challenges to authority as reckless or disrespectful, particularly when the issue could have been resolved privately without exposing anyone.
-
-Differences in class background, schooling access, and rural or urban experience shape who feels confident speaking first. People may contribute through quieter routes before speaking publicly, especially in mixed-status rooms. Creating multiple channels for input, such as smaller pre-meetings or written feedback, improves idea flow and problem detection without forcing exposure.

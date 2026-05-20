@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teams in Bonaire, Sint Eustatius and Saba operate within a framework shaped by their Dutch Caribbean identity, where collaboration blends informality with clarity of role. The islands are small, interconnected communities where most people know each other across professional and personal contexts. This means teamwork often depends on existing relationships and social trust rather than formal structures alone. A colleague who grew up on the same island or whose family is known carries an inherent credibility that newcomers must build gradually. For international professionals joining a team, this can feel like entering a circle that is already tightly woven. Building your place within it requires time, consistency, and genuine interest in the people around you, not just the work itself.
-
-Hierarchy exists but is not rigidly enforced. Leaders are expected to guide and involve, not simply direct. Team members appreciate clarity about roles and responsibilities, but they also expect space to contribute ideas and raise concerns without formality. Participation is often invited rather than demanded, and the tone is warm rather than transactional. A colleague from a culture where decisions are made quickly and roles are strictly defined may find this approach slow or unclear, while someone from Bonaire, Sint Eustatius and Saba working in a more direct environment may feel their input is not valued if it is not explicitly invited.
-
-Feedback should be delivered privately and with care. Public correction risks damaging trust and disrupting the relational foundation that holds teams together. Praise can be shared more openly, but it should feel genuine and specific rather than performative. Teams function best when relationships are maintained alongside results.

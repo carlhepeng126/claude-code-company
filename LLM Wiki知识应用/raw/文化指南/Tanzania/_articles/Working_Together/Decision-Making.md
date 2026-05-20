@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Tanzania are shaped by more than immediate outcomes. Because identity is strongly communal and reputation matters across family, work, and community life, choices are assessed for their relational and social implications, not just their technical logic. A decision that makes sense on paper but unsettles standing or creates embarrassment can feel riskier than one that takes longer but protects dignity and relationships. This is why a measured pace often reflects responsibility rather than hesitation. Taking time allows for careful thought, reduces the chance of public error, and gives space for wider obligations to be factored in.
-
-Authority is clear, and senior figures hold final say, but consensus is built quietly before anything is confirmed. Public disagreement can destabilize the group, so alignment often happens through private conversations and follow-up rather than open debate. A colleague from a culture where decisions are debated in meetings may read this as evasion or delay, while a Tanzanian counterpart may find the directness of that approach socially abrupt and procedurally rushed. Each side may misread the other's rhythm as either inefficiency or recklessness.
-
-Urban settings can move more quickly and show more hybrid styles, but in other contexts, community rhythms and local obligations can influence when and how decisions can be finalized. Don't assume silence means agreement or that a meeting outcome is final. Allow time for quiet alignment, ask open-ended follow-up questions, and provide the rationale behind a request so colleagues can assess not just the task but the social fit. Written confirmation helps, but expect some flexibility as circumstances shift.

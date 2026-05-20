@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Building business contacts in Georgia often begins through personal networks. Trust develops gradually, and an introduction from a mutual colleague or friend opens doors more quickly than a cold approach. These intermediaries provide social credibility and signal that you're worth knowing. If you're introduced by someone respected, the initial conversation shifts from cautious to collaborative much faster. Without that link, expect to invest more time in early meetings before practical discussions move forward.
-
-Younger professionals in Tbilisi, particularly those in international companies or the tech sector, may be comfortable with direct email contact and scheduling through digital calendars. In more traditional industries, or outside the capital, appointments still tend to flow from face-to-face encounters or phone calls. The personal touch confirms intent in a way that a message alone does not. When scheduling, give at least a week's notice for formal meetings and confirm a day or two before. Reconfirmation shows respect for the other person's time and acknowledges that schedules can shift.
-
-Flexibility matters. Meetings may start later than agreed or extend beyond the planned time, especially if rapport is building or an unexpected colleague joins. For a Georgian counterpart, these adjustments reflect responsiveness and the priority placed on the relationship itself. A manager from a culture where punctuality signals professionalism may read this as disorganization, while the Georgian colleague may view rigid timekeeping as a lack of genuine interest. Leaving buffer time between appointments and staying open to unplanned extensions helps both sides engage without friction.

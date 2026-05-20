@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Austrians prefer to avoid open confrontation in the workplace and are far more likely to seek a compromise than escalate a disagreement. Although they complain readily about systems or processes in general terms, personal anger directed at an individual is rare. This preference reflects a broader social expectation that relationships should remain civil and that public conflict threatens the smooth functioning of the group. The result is that many Austrian colleagues will cover up a problem or give indirect signals rather than voice dissatisfaction openly, especially when dealing with customers or suppliers.
-
-At the same time, Austrians can be strikingly blunt in everyday conversation. Direct comments that colleagues from more indirect cultures might interpret as hostile are often simply straightforward observations, delivered without softening language and considered socially acceptable. A manager from a culture where feedback is typically cushioned may read this bluntness as aggression when it reflects frankness rather than anger. Conversely, an Austrian colleague may interpret careful, indirect phrasing as evasive or even dishonest. If you sense something is wrong, ask politely and be prepared to listen for what is not being said.
-
-When resolving a disagreement, rely on facts rather than emotion and always discuss the issue in private to avoid public embarrassment. If a manager cannot resolve the matter, a superior is typically brought in before considering external mediation. Where interests genuinely diverge, disputes can become intense, but the first instinct is still to work together in a spirit of mutual trust rather than escalate quickly to litigation.

@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Gabon is relational, shaped by people and context rather than the clock alone. While formal appointments are made and schedules exist, they often bend to accommodate greetings, hierarchies, or unexpected arrivals. Starting a meeting without acknowledging a senior colleague or rushing past social rituals can signal disrespect, even when everyone is technically on time. The rhythm reflects a broader cultural priority: relationships anchor professional life, and time is adjusted to honor them.
-
-This flexibility shows up differently depending on the setting. In multinational firms, oil and gas companies, or sectors with international clients, punctuality is understood as a professional standard and meetings typically start close to the scheduled hour. In government offices, smaller family businesses, or contexts where personal ties shape decisions, schedules are more fluid. A meeting might begin half an hour late, not from inefficiency, but because someone senior arrived and required proper acknowledgment, or because a visitor from the same home region needed attention first.
-
-For a colleague from a culture where meetings begin precisely at the stated time and agendas drive structure, this can feel unpredictable or unfocused. From a Gabonese perspective, the reverse can seem abrupt: moving straight to business without attending to people feels transactional and cold. What looks like delay often reflects a deliberate investment in the relationship that will support the work ahead. Scheduling buffer time, confirming plans shortly before, and allowing space for social exchanges at the start of meetings all help align expectations without forcing a single pace.

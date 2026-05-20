@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Meetings in the United States are built around outcomes. The expectation is that time together produces decisions, actions, or both. An agenda distributed in advance is standard practice, and participants come prepared to move through it efficiently. A meeting that ends without clarity on next steps or ownership will often be seen as poorly run. The same goes for meetings convened just to talk through ideas without arriving at a decision. That kind of open-ended discussion is better suited to informal channels or pre-meeting preparation, not the scheduled hour itself.
-
-This efficiency reflects a broader cultural comfort with individual accountability and a linear approach to problem-solving. Meetings typically conclude with assignments, timelines, and named owners. Minutes or follow-up notes confirm who is doing what and by when. The tone is practical rather than personal. The conversation may be collaborative and even warm, but the relationship serves the task, and once the meeting ends, people shift quickly back to their own work. For a colleague from a culture where decisions emerge slowly or require broader consultation, the pace can feel abrupt, as though consensus was assumed rather than built. From the American side, a slower or more exploratory process may read as indecisive or lacking urgency.
-
-Empirical data often drives the conversation. If customer feedback or performance metrics are available, those will shape the discussion more than opinion or seniority. This reflects a preference for facts over hierarchy when it comes to making a case. Technology has also made remote participation common, whether by video call or conference line, and the same expectations around preparation and output apply.

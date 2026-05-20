@@ -1,9 +1,0 @@
-# Leadership Styles
-
-## Working Together
-
-Guernsey's leadership culture reflects the island's small size, long history of self-governance, and deeply embedded egalitarian instincts. Authority exists, but it tends to be understated. Leaders are expected to be competent and credible rather than commanding. Status comes from expertise, track record, or community standing, not from title alone. In practice, this means managers are more likely to persuade than instruct, and decision-making often involves informal soundings rather than visible consultation. The style can appear collaborative, but it is usually pragmatic rather than participative by design.
-
-This informality can be misleading. A colleague from a culture where leaders give clear direction and expect prompt execution may find Guernsey managers indirect or reluctant to take charge. From the other direction, a Guernsey leader working with teams accustomed to more visible hierarchy may be seen as indecisive or overly casual. In reality, decisions are being made, but the process is often relational and quiet, shaped by the island's tight social fabric where reputations travel quickly and public disagreement is avoided.
-
-Generational shifts are starting to surface. Younger professionals, particularly those who have worked off-island, may expect more structured feedback and clearer accountability. But the broader culture still favors restraint over assertion. If you are leading in Guernsey, influence will come from building trust through consistency and discretion, not from asserting authority. If you are being led, understand that direction may arrive through suggestion rather than instruction, and that silence does not mean absence of opinion.

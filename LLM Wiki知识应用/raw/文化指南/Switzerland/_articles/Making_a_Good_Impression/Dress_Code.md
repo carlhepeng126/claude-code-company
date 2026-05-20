@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Swiss professional culture prizes quiet competence. The country's pride narratives center on precision, reliability, and standards without spectacle, and that aesthetic extends to how people present themselves at work. The preference is for understated quality over flashy display: clean lines, good fit, neutral colors, and high-quality basics. In sectors like banking and corporate finance, men wear suits and ties, women wear suits or tailored separates, and shoes are polished. Nothing shouts for attention. The message is credibility, not costume.
-
-Region and setting shape expectations more than outsiders expect. A bank in Basel or Geneva may hold to a more formal, institution-oriented feel, while Zürich's tech and finance sectors skew slightly more relaxed, and smaller cantons may have their own unspoken codes. Media and IT sectors may accept jeans and casual dress, but even there, people tend to dress deliberately rather than carelessly. If you're visiting or starting work in a new Swiss context, ask what's typical in that canton, industry, and team rather than assuming one national norm applies everywhere.
-
-The same cultural logic that frames rules as mutual respect applies to appearance. Swiss everyday culture often treats shared norms as a way of saying "I won't make this harder for others," and how you present yourself can be read as part of that ethic. Dressing well is a form of care, showing you've thought about the setting and the people in it. Ostentatious branding or status displays land awkwardly in a culture that expects competence to do the talking. Let the work speak, and keep accessories subtle.

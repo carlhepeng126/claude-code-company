@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Burkina Faso follows social and relational logic more than clock discipline. Rooted in agrarian and community-centered traditions, time bends to accommodate relationships, respect for hierarchy, and the flow of group life. Meetings often begin after greetings are exchanged and social connections affirmed, even when a formal start time was set. This reflects a worldview in which people and collective harmony come before schedules. Arriving late to a meeting is rarely interpreted as disrespect if the delay stems from attending to a senior figure, a family obligation, or another social priority.
-
-The approach varies by context. In international firms, NGOs with external donors, or sectors tied to global supply chains, punctuality and deadlines are taken more seriously and treated as markers of professionalism. In government offices, family-run businesses, or rural settings, flexibility remains the norm. Decisions may slow when they involve extended family interests or require broad consensus, particularly in enterprises where kinship and business overlap.
-
-A colleague from a culture where efficiency is measured in minutes may read this flexibility as disorganization or lack of commitment. From a Burkinabé perspective, the same colleague's insistence on rigid timelines can seem impersonal or dismissive of the relationships that sustain collaboration. If you need a firm deadline met, state it clearly and explain why it matters to the partnership, rather than assuming shared urgency. Build time into your planning for consultation and social exchanges, which are not delays but part of how trust and agreement are built.

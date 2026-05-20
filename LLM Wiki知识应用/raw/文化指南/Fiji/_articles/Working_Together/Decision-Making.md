@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Fiji rarely move in a straight line. Authority is respected, but it does not work in isolation. Senior figures hold formal power and are expected to lead, yet they consult widely before committing to a course of action. This reflects the enduring influence of communal structures, where decisions affecting a group have always required broader input to maintain cohesion. In professional settings, this means a manager may hold formal responsibility but will sound out trusted colleagues, elders in the organization, or those with personal ties to the issue before finalizing a choice. The goal is not just to arrive at a sound decision, but to ensure it will be accepted and sustained across relationships that matter.
-
-This process takes time, and colleagues from cultures where decisions are made quickly and individually may interpret the delays as indecisiveness or avoidance of accountability. From a Fijian perspective, the opposite may be true: a decision made too fast, without consultation, can appear reckless or disrespectful, as though relationships and social consequences were overlooked. If you are leading a project with Fijian colleagues, build time into your planning for this consultation phase. Pressing for a quick answer may yield agreement in the moment, but it risks a decision that lacks real commitment or follow-through.
-
-Flexibility is also expected after a decision is made. Family obligations, community events, or regional considerations can prompt adjustments to timelines or priorities. This is not seen as inconsistency but as responsiveness to the lived realities that shape people's ability to deliver.

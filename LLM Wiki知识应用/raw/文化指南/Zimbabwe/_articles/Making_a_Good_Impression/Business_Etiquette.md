@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Greetings in Zimbabwe often function as a form of relational recognition before any task begins. They acknowledge the person, affirm wellbeing, and signal that the interaction will be built on respect rather than pure transactionality. This stems in part from *hunhu/unhu* (a moral framework that defines personhood through decency, care, and how you treat others), which quietly underpins many workplace expectations. Rushing through a greeting or skipping it altogether can suggest that you see the person as a function rather than a human being, reducing openness and willingness to collaborate. Take time to ask after someone's health or home, especially when the relationship is new or when working with someone senior.
-
-Directness is often avoided when it risks causing embarrassment or loss of face, particularly in group settings or hierarchical contexts. People may soften refusals, use third-person references, or wrap sensitive topics in metaphor or narrative to preserve dignity. A colleague from a culture where feedback is delivered quickly and explicitly might read this as evasiveness or lack of clarity. From a Zimbabwean perspective, the same colleague's bluntness might seem dismissive or disrespectful, especially if delivered publicly. If you need clarity, ask open-ended questions privately rather than pressing for a direct answer in front of others.
-
-Hospitality, even when resources are limited, often reflects a deeper message: you are safe here, and we still know how to care. Accepting tea or food when offered is more than politeness. It acknowledges the gesture and the relationship it represents. Refusing can seem dismissive. Similarly, gift-giving is culturally significant and refusing a gift is considered taboo. When offering or receiving, use your right hand or both hands, and accept graciously even if the item is modest.

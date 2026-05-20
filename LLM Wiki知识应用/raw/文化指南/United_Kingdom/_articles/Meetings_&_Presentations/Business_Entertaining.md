@@ -1,9 +1,0 @@
-# Business Entertaining
-
-## Meetings & Presentations
-
-Business entertaining in the UK favors low ceremony and high informality. The setting is often a pub, a curry house, or a simple restaurant rather than anywhere elaborate. There are no scripted toasts or formal rituals. The point is to build rapport through shared time, banter, and a loosened atmosphere. Serious decisions are rarely made in these settings. Instead, they offer a way to read team dynamics, strengthen relationships, and pick up on things that wouldn't surface in meetings.
-
-The pub has long functioned as a neutral meeting ground where hierarchy softens a bit and people bond over a pint. The ritual of "just one drink" after work remains central in some teams, though it can easily stretch to two or three. But this is no longer a universal norm. Many people skip drinks entirely, leaving quickly for trains or childcare. Regional, generational, and personal variation means that drinking-centered socializing now sits uneasily alongside more inclusive expectations. Not everyone drinks, and not everyone feels at home in pub culture, particularly those from some faith backgrounds, parents juggling school runs, or colleagues outside city centers with limited transport options.
-
-Lunch offers a more productive setting for serious discussion, though the long, alcohol-fueled City lunch has disappeared. A working lunch now means exactly that: food and focus, usually without drinks unless the purpose is purely social. Dinner is more celebratory, sometimes including spouses, and less suited to detailed business talk. When hosting or being hosted, follow the informal tone but offer formats that work for a wider group. Coffee meetings, early-evening meals, or alcohol-optional gatherings make it easier for everyone to participate without feeling excluded or having to explain personal boundaries.

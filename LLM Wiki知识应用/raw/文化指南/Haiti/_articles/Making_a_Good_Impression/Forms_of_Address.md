@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-In Haiti, using proper titles and formal address is fundamental to showing respect in professional settings. Colleagues and business contacts expect to be addressed by title and family name until a more personal relationship has been established. Titles such as Monsieur (Mr.), Madame (Mrs.), or professional titles like Docteur or Ingénieur are the norm. Using a first name too early can come across as presumptuous or dismissive of the other person's status, so wait for an explicit invitation to shift to a less formal style. This formality reflects the value placed on dignity and social standing, particularly in a society where professional credentials and position often define how someone is perceived and treated.
-
-Greetings typically involve a handshake, often accompanied by direct eye contact and a warm verbal exchange. Among colleagues who know each other well, a kiss on each cheek may follow, though this is more common in social settings than in strictly professional ones. The greeting itself is rarely rushed. Taking time to acknowledge someone properly, ask after their well-being, and exchange a few courteous words before turning to business demonstrates respect and helps establish trust.
-
-In written communication, formality remains important. Opening an email with "Cher Monsieur [Last Name]" or "Chère Madame [Last Name]" and closing with phrases like "Cordialement" or "Respectueusement" sets the right tone. Even in digital exchanges, maintaining this structure signals professionalism and awareness of social expectations, particularly when initiating contact or addressing someone senior.

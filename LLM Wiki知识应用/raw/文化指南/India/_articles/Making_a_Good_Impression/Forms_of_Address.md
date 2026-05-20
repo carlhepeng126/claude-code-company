@@ -1,9 +1,0 @@
-# Forms of Address
-
-## Making a Good Impression
-
-The traditional Indian greeting, *namaste* (a gesture made by holding the hands together as if in prayer, while slightly nodding the head and looking down), remains widely used, particularly when greeting older people or members of the opposite gender. The gesture conveys respect through its formality and restraint, acknowledging hierarchy and social boundaries without requiring physical contact. In business meetings, however, a firm handshake is generally appropriate among men. When greeting a woman, wait for her to offer her hand. If she does not, a *namaste* or a verbal greeting with a slight nod works well.
-
-Titles and formal address are expected in professional settings. Using a person's professional title followed by their surname shows respect for their position and experience. First names are used only after an invitation to do so, and this invitation may take time to extend. In parts of Southern India, naming conventions differ from the North: both men and unmarried women often place their native town and surname or father's name first, with their given name at the end. The surname or father's name may appear as initials, so M.R. Krishna would be Mysore (his town), R for Ramchandra (his father's given name), and Krishna as his own name. Understanding this helps avoid confusion when addressing colleagues or reading business cards.
-
-For someone accustomed to moving to first names quickly, this level of formality can feel slower than expected. From an Indian perspective, a too-early shift to informality might suggest a lack of awareness of seniority or a disregard for the relationship-building process that underpins trust.

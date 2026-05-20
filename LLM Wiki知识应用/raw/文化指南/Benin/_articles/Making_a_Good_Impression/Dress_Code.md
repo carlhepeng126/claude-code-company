@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional appearance in Benin reflects something deeper than style. How you present yourself is understood as a visible measure of your seriousness and your respect for the relationship. In business settings, men typically wear suits or tailored trousers with long-sleeved shirts, often keeping jackets on even in the heat. Women favor dresses, skirts, or tailored trousers with blouses. The standard leans formal, and the effort you put into your appearance signals that the partnership matters enough to warrant care.
-
-Formality shifts by sector and setting, but the underlying expectation of intentional presentation remains steady. In government offices, banks, and established businesses, full suits are common. In younger sectors like tech or NGOs, business casual may be acceptable, but even here, clothes are well-maintained and pressed. Casual wear risks being read as a lack of investment in the interaction, particularly in early meetings where trust is still being built.
-
-Regional and generational differences also play a role. In Cotonou and other urban centers, dress codes can feel slightly more relaxed compared to smaller towns or rural areas, where formality tends to hold stronger. Younger professionals may adopt a slightly more flexible approach, but they still pay close attention to how they are perceived by senior colleagues and partners. For international collaborators, matching the level of formality you observe in your counterparts will help establish credibility from the first meeting. If your host arrives in a suit, doing the same shows you understand the cultural weight of appearance.

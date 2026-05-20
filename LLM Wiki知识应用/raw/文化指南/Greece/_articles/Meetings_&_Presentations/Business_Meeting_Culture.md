@@ -1,9 +1,0 @@
-# Business Meeting Culture
-
-## Meetings & Presentations
-
-Greeks often request everything "in writing," yet trust is built on what happened in the room: the tone, who looked at whom, the off-the-record comment made between agenda items. A dry written summary without the texture of the conversation feels incomplete. This reflects an oral culture layered onto formal process. The document anchors things, but the real meaning lives in how it was discussed. If you are used to written minutes as the final record, you may find yourself surprised when a Greek colleague revisits points you thought were settled. From their side, someone who treats a document as definitive without reference to what was said may seem detached or dismissive of the relationship.
-
-Hierarchy is still visible in most Greek meeting rooms. People instinctively leave a seat for the *proedros* (chair), and even in participative settings, contributions are filtered through what participants think that person wants to hear. Symbolic authority still shapes who speaks and when. If you run a flat workshop and expect equal input, you may notice that people glance toward the senior person before offering a view. Recognizing who holds that authority and working with them, rather than around them, will keep the meeting grounded.
-
-The meeting after the meeting often happens on the pavement or a balcony. This is where someone might say, "Officially it's fine, but the union will never accept this," or "This depends on what the minister wants next month." Budget time for these informal debriefs. They are not gossip. They are where feasibility is tested and the real constraints surface. Pay attention to gestures, side-comments, and glances during the formal session. They signal where friction lies before anyone says so directly.

@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Motivation in Kazakhstan is rooted in belonging and standing. Being included, being trusted with responsibility, and being seen as someone whose contribution matters often inspires more sustained commitment than financial incentives alone. In a culture where networks and social proof shape opportunity and reputation, the sense of being "one of us" can fuel real engagement. Recognition that strengthens someone's respectability—publicly acknowledging their contribution in a way that raises their profile or earns them greater trust—often works better than celebrating individual achievement in isolation.
-
-Stability has deep resonance. Economic turbulence in the post-Soviet years and ongoing regional volatility mean that clear expectations, consistent follow-through, and fair treatment build loyalty in ways that excitement or short-term perks may not. Managers who deliver what they promise and who treat people reliably, even when the news is difficult, earn credibility. In practical terms, this means avoiding abrupt changes in direction without explanation, and making sure that responsibilities are distributed visibly and equitably.
-
-The relationship between material reward and motivation is real but not straightforward. Salaries, bonuses, and benefits matter, particularly as aspirations have shifted with greater exposure to global consumer culture. But money without inclusion or respect does not sustain commitment. A manager who combines financial recognition with expressions of trust, such as inviting someone into a high-visibility project or offering them more autonomy, will see stronger results than one who relies on compensation alone. What drives someone may also vary by generation and setting, with younger professionals in international firms often seeking development opportunities while others may prioritize security and standing within the organization.

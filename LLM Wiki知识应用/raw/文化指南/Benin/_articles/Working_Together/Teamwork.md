@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Teamwork in Benin is shaped by respect for hierarchy and personal connection. Teams typically function through relationships rather than through formal structures or processes laid out in advance. Senior members guide junior colleagues, and decisions often wait until the person with authority has given clear direction. This means that collaboration depends less on distributed ownership and more on understanding who holds responsibility at each stage. For colleagues from settings where teams are expected to self-organize or move forward without explicit approval, this can feel like progress is stalled. From a Beninese perspective, moving ahead without senior input can seem presumptuous or risky, bypassing the relational order that keeps the team stable.
-
-Trust within a team grows through repeated interaction and demonstrated care, not simply through shared tasks. A manager who checks in on a colleague's family or offers support during a personal difficulty builds the relational foundation that makes collaboration possible. Teams expect leaders to show interest in their well-being, and this expectation shapes how feedback is given. Praise is often directed toward the group rather than singling out individuals, which protects collective harmony. Criticism, when necessary, should be delivered privately and with care to avoid public embarrassment, which can fracture trust and make future collaboration harder.
-
-Younger professionals and those in urban centers, particularly in sectors exposed to international practices, may engage more openly in shared decision-making or express opinions without waiting for seniority to speak first. Even so, the underlying expectation remains: relationships and respect for authority anchor how teams function day to day.

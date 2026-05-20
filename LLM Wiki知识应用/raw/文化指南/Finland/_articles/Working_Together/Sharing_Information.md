@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information flows openly in Finnish workplaces, but the style is grounded in a specific cultural logic: documentation matters as much as discussion. Finland's public sector operates under strong freedom-of-information laws that make most documents publicly accessible by default. This has shaped expectations across organizations, public and private. Decisions should have traceable minutes, clear criteria, and a written record that people can refer back to. The assumption is that good processes create transparency, and transparency protects everyone. When information is written down and accessible, trust follows.
-
-This means that email and intranet systems function as living records, and people expect to be able to check what was decided and why. Saying something once in a meeting holds less weight than circulating a memo or summary that people can revisit. If you roll out a change or announce a decision, provide written explanations and space for questions, alongside any verbal briefing. A colleague from a culture where announcements are made orally and reinforced through personal follow-up may find the Finnish approach impersonal or bureaucratic. From the Finnish side, relying only on spoken communication can feel unclear or even evasive, as though there is no formal commitment behind the words.
-
-The tone of communication is calm and factual, even when the news is difficult. Announcements about restructuring, setbacks, or failures are delivered in a sober, almost dry style, with room for clarification. Overly emotional language or "spinning" bad news feels manipulative. People expect honesty delivered plainly, and they respond better to specifics about what happens next than to reassurance framed in broad terms. Write with clarity and consistency, and assume your messages will be saved, forwarded, and used as reference later.

@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Australian managers are expected to be accessible, not elevated. The cultural wariness known as tall poppy syndrome, where anyone who places themselves above others invites suspicion, shapes how authority works in practice. A manager who keeps visible distance or leads from the front without engaging across ranks will lose credibility quickly. Rolling up your sleeves and working as part of the team is not a nice-to-have gesture. It's the basis of respect.
-
-Autonomy matters deeply here. Once you delegate, employees expect to be trusted to manage their own process and deliver the outcome. Checking in on how they're doing the work, rather than whether they've achieved what was agreed, reads as micromanagement and a lack of confidence in their ability. Australians are self-directed and pragmatic, and they will resist close supervision. For a manager accustomed to regular progress updates or detailed oversight, this can feel uncomfortably hands-off. From the Australian side, that same oversight can feel controlling and undermine the relationship.
-
-Directness goes both ways. Employees expect honest feedback delivered clearly, and they will give it in return. Feedback that is overly softened or hedged may not register, and indirectness can be mistaken for a lack of conviction. At the same time, the informality of tone should not be confused with a lack of rigor. Australians can be relaxed in manner while being highly focused on results. Hold people to clear outcomes and they will generally deliver, but discipline becomes difficult if the relationship has been too informal to begin with.

@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Bolivia often feels softer and less direct than colleagues from Germany or the Netherlands might expect. Maintaining harmony and protecting personal dignity shape how criticism is delivered. A manager will rarely offer blunt assessments or isolate faults in front of others. Instead, feedback tends to arrive through gentle suggestion, observation framed as advice, or even humour that allows the person to save face while understanding the message. This indirectness reflects the relational foundation of Bolivian workplaces, where preserving trust and avoiding embarrassment take priority over the efficient delivery of information.
-
-Positive feedback is welcomed openly and can be shared in group settings without discomfort. Acknowledging effort or contributions in front of the team reinforces collective morale. Negative feedback, however, should always be given privately and framed with care. A direct statement like "this needs to change" may land as harsh or disrespectful. Phrasing feedback as a shared concern or a question invites collaboration rather than defensiveness. For example, asking "how do you think we might improve this together?" opens the conversation without isolating the individual.
-
-Coaching conversations in Bolivia may unfold gradually, with multiple touchpoints rather than a single formal review. Building rapport before addressing performance issues allows the feedback to be received more openly. For colleagues accustomed to scheduled performance reviews and written documentation, this less structured approach can feel vague. From a Bolivian perspective, however, overly formal systems may seem cold and disconnected from the relationship that makes feedback effective in the first place.

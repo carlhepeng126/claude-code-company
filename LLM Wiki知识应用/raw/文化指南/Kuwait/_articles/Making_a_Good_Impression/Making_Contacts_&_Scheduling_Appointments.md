@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Access in Kuwait begins well before the business card exchange. Meaningful introductions often happen through diwaniyas, the evening gatherings where MPs, businesspeople, tribal figures and neighbours sit together. An invitation to the right diwaniya can open doors that a well-crafted email cannot. These gatherings trace back centuries in Kuwaiti social life, offering a place where trust is built through repeated presence and shared conversation. For anyone trying to reach a decision-maker in a ministry, state company or bank, the path frequently runs through someone who knows them from a diwaniya, not through formal channels.
-
-The structure of Kuwaiti society shapes who can connect you to whom. Merchant hadar families, tribal blocs and Bidoon communities each maintain their own social circuits, and influence often follows these lines rather than job titles alone. Kuwaitis typically approach each other through family links, school cohorts, parliamentary contacts or diwaniyas, while expat professionals rely more on company channels or embassy networks. These worlds intersect, but the overlap is not automatic. Understanding whether you are dealing primarily with merchant, tribal, Shia, Sunni or technocratic circles helps you match your outreach to the right network.
-
-When scheduling, book a couple of weeks ahead and reconfirm the day before. Avoid back-to-back meetings. Traffic in Kuwait City can delay anyone, and appointments may start later than planned or be joined by unexpected visitors. Fridays and Saturdays are the weekend. During Ramadan, the working day often finishes earlier, and it makes sense to schedule meetings outside fasting hours. For sensitive topics, aim for a warm introduction from someone with social capital in the relevant circle, not just a recognizable company name.

@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Coaching in Senegal often extends beyond task performance to include guidance on family responsibilities, religious practice, and financial decisions. This holistic approach reflects the importance of relationships and the expectation that an older or more senior colleague will offer wisdom that shapes the whole person, not just the professional. Feedback that focuses narrowly on technical skills can feel incomplete or impersonal. If you are coaching a younger colleague, ask about their broader context and goals, and be prepared to discuss how work fits into their wider life. This builds trust and makes the guidance more meaningful.
-
-Younger staff may find it difficult to challenge an older colleague openly, even when they see a better approach. Respect for elders runs deep, and direct contradiction in a formal meeting can be seen as disrespectful. Instead, disagreement may surface indirectly, through oblique comments or in private conversations conducted in Wolof after the meeting has ended. To surface ideas from junior team members, create formats that do not require them to contradict senior colleagues face-to-face. Small group work, anonymous input, or paired discussions across experience levels can make space for honest contribution without breaching respect.
-
-Direct public criticism is avoided, but humor and side remarks can carry surprisingly sharp feedback. A joke about your working style or a casual comment made in passing may be a genuine critique, not just friendly banter. If colleagues repeatedly joke about the same behavior, treat it as a prompt to reflect and adjust.

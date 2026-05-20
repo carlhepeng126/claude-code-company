@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Schedules in the UAE are often treated as flexible frameworks rather than fixed commitments. Meetings may start late, run longer than planned, or be rescheduled at short notice, especially when a more senior figure or a relationship priority intervenes. This reflects a circular approach to time where multiple threads can be active at once and the most pressing matter takes precedence. Interruptions during meetings are common and expected, whether from phone calls, walk-ins, or overlapping obligations. A colleague from a culture where agendas are strictly followed may read this as disorganization or disrespect, while an Emirati counterpart may view rigid adherence to a timetable as inflexible or dismissive of relationships that require attention in the moment.
-
-Deadlines exist but are often understood as targets rather than absolutes, particularly in the private sector and among local staff. Urgency tends to be gauged relationally: a request from someone senior or well-connected will override other commitments, regardless of what was scheduled. This means priorities can shift quickly, and what seemed urgent yesterday may be deprioritized today without explicit explanation. Building time into your own planning for these shifts, and confirming timelines closer to the date, will help you stay aligned.
-
-Punctuality expectations vary by context. Government meetings and formal engagements with senior leadership typically require timeliness, while social or lower-stakes professional gatherings allow more latitude. Arriving exactly on time can sometimes mean waiting, so allow space in your schedule without signaling impatience.

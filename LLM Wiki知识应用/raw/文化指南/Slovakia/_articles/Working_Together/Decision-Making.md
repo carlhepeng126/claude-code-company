@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Formal authority sits at the top of most Slovak organizations, but the way decisions move through that structure reflects more than hierarchy alone. Slovakia's civic memory, shaped by 1989 and the formation of an independent state in 1993, favors decisions that feel procedural, explainable, and rooted in shared frameworks rather than personal discretion. The Slovak National Uprising remains a moral reference point in public memory, which means decisions can be assessed for integrity as well as outcome. This dual lens shows up in how people listen: they want to know not just what was decided, but whether the process was fair and whether the rationale holds up against agreed principles.
-
-Decisions take time because detail and thoroughness are expected. Senior figures make the final call, and junior colleagues typically supply evidence rather than challenge direction. Bureaucratic layers add to the timeline, and pushing for speed can read as disrespect for the process or an attempt to bypass scrutiny. A colleague from a culture where decisions are made quickly may see this as delay, while a Slovak counterpart may read rapid closure as a sign that due diligence was skipped or that fairness was not fully weighed.
-
-Regional variation also shapes how decisions land. Slovakia's uneven development means that a solution designed in Bratislava may not translate smoothly elsewhere. People instinctively ask whether a decision accounts for dialect zones, borderland realities, or communities with different relationships to institutions. Making the decision path visible, showing how regional or community differences were considered, and following through on what was promised builds legitimacy more reliably than speed ever will.

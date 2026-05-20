@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Time in Guam follows a relational rhythm, not a rigid schedule. Rooted in Chamorro culture, where community and family shaped the pace of daily life, professional settings today reflect a practical balance between island time and external expectations. The concept of *Chamorro time* acknowledges that relationships and context often matter more than the clock. Meetings may start ten or fifteen minutes late, not because people are careless, but because they stop to greet colleagues properly or attend to an elder's request on the way. In local government offices or family-run businesses, this flexibility persists and is widely understood.
-
-The picture shifts in sectors tied to US federal systems, the military, or global tourism. Here, punctuality is taken seriously and deadlines are treated as firm. A project manager working with stateside clients will be expected to meet timelines as strictly as if they were based in California. In these contexts, showing up late or delivering work past the agreed date risks damaging professional credibility. Younger professionals, particularly those educated in the US or trained in multinational firms, often adopt stricter time discipline and may navigate both expectations depending on the setting.
-
-A colleague from a culture where meetings begin exactly on time may read a fifteen-minute delay as disorganization or disrespect. From Guam, the same colleague's insistence on punctuality over a brief but necessary conversation might seem rigid or even cold. The key difference lies in what is being prioritized: the relationship, or the schedule. When working across this divide, naming the expectation early helps. If a meeting must start promptly, say so in the invitation. If flexibility is acceptable, signal that too. Time in Guam bends, but it rarely breaks entirely, especially when the stakes are clear.

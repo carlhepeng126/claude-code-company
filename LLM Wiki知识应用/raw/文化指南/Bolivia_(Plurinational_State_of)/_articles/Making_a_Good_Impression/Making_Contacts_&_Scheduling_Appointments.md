@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-Building professional relationships in Bolivia often starts informally. Trust develops through personal connection rather than quick introductions or cold outreach. People want to understand who you are and whether your intentions align with theirs before committing to a professional relationship. This reflects a cultural preference for knowing someone's character and background, not just their business card. In practice, that means face-to-face conversations hold more weight than email exchanges or phone calls. A shared meal, an introduction through a mutual contact, or an informal chat at a local gathering can move things forward faster than formal correspondence. If you're working with a Bolivian colleague and prefer to move straight to business after an initial email, they may hold back until they feel the relationship has been established in person.
-
-The way contacts are made varies across the country. In La Paz or Santa Cruz, especially among younger professionals or those working in international sectors, people may be comfortable with more direct approaches and respond well to email or LinkedIn. In smaller towns or rural areas, introductions still tend to come through trusted intermediaries, and the relationship-building phase is longer. Regional identity also plays a role. Someone from the eastern lowlands may approach scheduling and follow-up differently than a colleague from the highlands, and recognizing these differences can prevent misunderstandings.
-
-When scheduling meetings, plan ahead but leave room for flexibility. Appointments are best set a week or more in advance and confirmed a day or two before. Avoid tightly packed agendas. Meetings may start late, run longer than planned, or include unexpected participants. Priorities can shift mid-discussion, and adapting to these changes shows respect for the way decisions are actually made in context.

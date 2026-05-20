@@ -1,9 +1,0 @@
-# Sharing Information
-
-## Working Together
-
-Information flows through trusted networks in Zimbabwe, not just formal channels. Family, church groups, and community ties often shape how news is interpreted and what gets believed. WhatsApp groups function as living social spaces where information arrives with commentary already attached, helping people decide what to trust. For those working across cultures, this means that the credibility of the messenger can outweigh the clarity of the message. If you need something acted on, consider who in the network already holds trust, and work through those relationships rather than assuming a memo or email will land the same way.
-
-Discretion often reflects rational self-protection rather than reluctance to engage. In contexts where public speech has historically carried risk, people separate what they say in formal settings from what they share privately. This shows up in meetings where concerns go unvoiced, or where feedback arrives later through a trusted intermediary. Pushing for blunt transparency early can backfire. A colleague from a culture where open challenge is valued might read this as passive or evasive, while a Zimbabwean counterpart might view direct confrontation in a mixed group as reckless or disrespectful. Building trust first creates the conditions for honesty.
-
-What remains unsaid can be as revealing as what is spoken. Listening for subtext and implied meaning helps you catch early signals of concern before they become problems. Creating informal spaces where hierarchy softens, and framing issues carefully to protect reputation, helps surface information sooner and with more nuance.

@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Canadian workplaces are expected to involve consultation, even when the final call rests with leadership. This reflects a soft hierarchy where authority exists but is exercised with transparency and justification. Employees expect to be heard, and leaders who decide unilaterally, without explanation or input, risk damaging trust and engagement. The approach is methodical and fact-based. Canadians assess information analytically, refer to relevant regulations or expert opinion, and expect well-structured options with clear rationale before moving forward. Inflated claims or pressure tactics undermine credibility quickly.
-
-The degree of inclusiveness varies by region and sector. Quebec workplaces may lean toward more centralized decision-making, reflecting a European-influenced hierarchy. Western provinces tend toward more egalitarian styles, with broader participation expected. Indigenous organizations often prioritize consensus-building that can involve extended consultation across community stakeholders. In regulated sectors and the public service, decisions require thorough documentation, risk assessment, and procedural fairness, which extends timelines but ensures accountability.
-
-A colleague from a culture where decisions are made quickly by senior leaders may read Canadian consultation as indecisiveness or slow process. From the Canadian side, decisions made without input or explanation can feel arbitrary or dismissive, especially when they affect teams directly. To collaborate effectively, clarify early who holds final decision authority and what kind of input is expected at each stage. Build time for consultation into project plans, provide transparent reasoning for decisions once made, and communicate clearly how feedback was considered, even when it did not change the outcome.

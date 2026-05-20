@@ -1,9 +1,0 @@
-# Managing Conflict & Disagreements
-
-## Managing Relationships
-
-Conflict in Peru often becomes a question of dignity as much as substance. Social positioning has long been sensitive across class and ethnic lines, and disagreements can quickly shift from problem-solving to what feel like respect fights. People read carefully for what a challenge might imply about their standing, particularly when hierarchy or regional identity is in play. Because of this, admitting fault or naming a problem openly can feel like a public loss of face. Disagreements are often softened, responsibility is implied rather than assigned, and resolution may be deferred to let all parties find a graceful way out.
-
-This indirectness serves a relational purpose. Peruvians tend to prioritize keeping working relationships intact, especially in relationship-based professional environments where personal trust matters over the long term. A manager may choose to address an issue privately or allow a third party to step in, giving everyone involved a chance to reset without escalating. If you address conflict directly and publicly, or frame it as a win-lose situation, you risk hardening positions and making repair more difficult. Moving sensitive conversations into private settings early, using calm language that focuses on behaviour rather than blame, and offering a clear path forward without forcing someone into a corner will usually be better received.
-
-When tensions persist, a trusted intermediary can help. In contexts where relationships are deeply networked, a mutually respected figure can mediate without creating a formal winner or loser. This approach is especially stabilizing when status anxieties are high or when the disagreement crosses hierarchical lines. After resolution, a brief relational reset, a shared understanding of next steps, and a respectful return to normal interaction help restore working trust.

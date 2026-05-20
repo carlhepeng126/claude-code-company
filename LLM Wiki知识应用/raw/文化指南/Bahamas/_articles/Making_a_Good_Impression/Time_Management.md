@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Bahamian time management prioritizes people over schedules, a practice rooted in the country's history as a small-island society where relationships sustained communities through centuries of economic uncertainty. When fishing, farming, and trade depended on weather, seasonal shifts, and informal networks rather than industrial timetables, time was relational, not mechanical. That logic persists. Meetings may begin after greetings are exchanged and personal updates shared, even in formal settings. Arriving ten or fifteen minutes late is common and rarely draws comment, because the assumption is that something worthwhile delayed you, and that the relationship will hold.
-
-This flexibility has limits that vary by sector and situation. In tourism, banking, and offshore finance, where international clients expect precision, Bahamians often match global standards closely. In government offices, family-owned businesses, or community settings, schedules tend to stretch. A colleague from a culture where meetings start at the stated time may read lateness as disorganization or disrespect. A Bahamian professional, encountering rigid adherence to the clock, may see it as impersonal or dismissive of the human context that shapes the day. Neither reading is accurate. The difference reflects whether time is understood as a container or as something that bends around people.
-
-If you are scheduling a meeting, confirm timing the day before and build in a buffer. If you are waiting, use the time to observe how relationships are being maintained around you. That groundwork often moves decisions forward faster than a prompt start time alone.

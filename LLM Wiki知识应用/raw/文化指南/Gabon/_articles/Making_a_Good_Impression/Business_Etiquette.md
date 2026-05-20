@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-Business etiquette in Gabon unfolds through relationships first, transactions second. Formal meetings begin with greetings that may take longer than expected, particularly if colleagues haven't seen each other in some time. Asking about family or mentioning shared acquaintances is more than courtesy; it establishes the relational ground on which business will be conducted. Jumping too quickly into agenda items can make you appear transactional or uninterested in the person across the table. A colleague from a culture where meetings begin with brisk efficiency may find this pacing indirect, while a Gabonese counterpart may read a quick pivot to business as coldness or lack of respect.
-
-Tone and body language reveal as much as words. Directness, especially critique or refusal, is typically softened to preserve dignity and group harmony. A vague answer or a redirect often means no, but saying so outright risks embarrassment. Eye contact is respectful but not sustained in the same way it might be in cultures where unbroken gaze signals confidence. Instead, attentiveness shows through posture, nods, and verbal acknowledgment.
-
-Dress reflects professionalism and is taken seriously across sectors. Men typically wear suits or smart casual attire; women dress conservatively, particularly in government or formal business settings. Appearance signals respect for the occasion and the people involved, and underdressing can undermine credibility before a word is spoken. In coastal cities like Libreville, international business dress is common, but in smaller towns or rural areas, formality may be paired with local expectations around modesty and presentation.

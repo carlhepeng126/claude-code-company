@@ -1,9 +1,0 @@
-# Being a Host & Guest
-
-## Meetings & Presentations
-
-Colombians express trust and connection through hospitality, and being invited to someone's home often means entering a whole network, not just a household. A dinner invitation may bring you face to face with aunts, cousins, godchildren, a neighbor from upstairs, and someone's mother. Pay attention to who jokes with whom, who stays quiet, and who clearly runs things at home. This gives you a better sense of how your colleague fits into the wider web of relationships that shapes decisions and loyalties at work.
-
-Many urban Colombians live in conjuntos (gated apartment complexes) with a portería, or gatehouse, where guests sign in and show ID. How you greet the porter matters. A warm "buenas noches, don Jorge" rather than walking past in silence will be noticed by your host. It reflects whether you see people across roles, and that registers as a marker of respect. If you are hosting, explain the access and security arrangements in advance so guests from different backgrounds know what to expect and do not feel caught off guard.
-
-Guests are expected to offer help with dishes, serving, or carrying chairs, but the host's pride lies in having everything ready. Pushing too hard to take over can feel like you are judging their preparation; never offering at all comes across as entitled. Bring a thoughtful gift, good coffee, dessert, flowers, or something from your own region, but avoid anything ostentatious. In December, an invitation to a novena de Navidad, to pray and sing carols before eating buñuelos (fried dough) and natilla (a custard dessert), is a sign of real closeness. In some homes you may encounter altars to saints or ancestors; in evangelical households, alcohol may be absent but warmth and music will still fill the room. Read the gathering and adjust your language and topics accordingly.

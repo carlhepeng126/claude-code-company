@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-Decisions in Georgia move through layers of personal trust and hierarchical approval. Leaders hold formal authority and are expected to make final calls, but they rarely do so in isolation. Consultation happens through informal networks before any decision is announced. A manager may sound out trusted colleagues, mentors, or allies to test reactions, gather information, and build support. This is not about avoiding responsibility. It reflects a cultural expectation that decisions should be socially grounded, not just technically correct. Consensus is built quietly, often outside the meeting room, and the formal decision becomes a confirmation of what has already been worked through.
-
-This approach can create confusion for colleagues from cultures where decisions are made quickly or transparently. A manager from a culture that values speed may see Georgian consultation as unnecessary delay, while a Georgian counterpart may view rapid decision-making as reckless or socially blind. The Georgian manager is not slowing things down to be difficult. They are ensuring the decision will hold, both operationally and relationally. Understanding this means adjusting timelines and recognizing that informal conversations are part of the process, not a detour from it.
-
-Authority remains clear throughout. Even when input is sought widely, the final decision rests with the senior figure. Disagreement is rarely voiced directly, especially in formal settings. If you need to influence a decision, build the case through trusted intermediaries or in one-to-one conversations before the group convenes. Once a decision is made, implementation may shift based on changing circumstances or relationships. Flexibility is built into the process, and what was agreed in principle can be adapted as the situation unfolds.

@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-In Malawi, appearance is respect made visible. Neatness and modesty demonstrate that you understand the occasion and value the people you are meeting. This expectation draws partly from religious life, where dressing well for church or mosque sets a standard that extends into professional and public settings. What you wear reflects your seriousness and respectability, and in smaller communities and close-knit urban neighborhoods where social behavior is observed and discussed, people will notice. A clean, well-pressed outfit signals that you take the interaction seriously, regardless of cost or label.
-
-Men generally wear trousers, a shirt, and often a tie. Suits are common in formal meetings and government contexts. Shoes should be clean. Women wear business suits, modest dresses, or blouses with tailored skirts or trousers. Skirts and dresses that fall below the knee are expected. Heels are worn but not required. Conservative coverage is the norm, and ostentatious jewelry or overly casual clothing, especially for men, can provoke quiet judgment. Avoid shorts outside recreational settings; they are associated with children and wearing them as an adult can undermine your credibility.
-
-What feels appropriate can shift depending on where you are. Urban office settings in Lilongwe or Blantyre may lean slightly more relaxed than government or rural contexts, and lakeshore communities shaped by market life and heat may dress differently from highland areas with cooler climates and estate histories. When visiting rural areas or faith-linked spaces, err toward formality. In culturally bounded settings, such as ceremonies where roles and visibility matter, being overdressed is safer than being too casual. If unsure, ask a local colleague before the meeting.

@@ -1,9 +1,0 @@
-# Motivating Others
-
-## Managing Relationships
-
-Canadians respond best to framing that links personal contribution to something larger: the team, the organization, or a broader societal benefit. This reflects a cultural pride in multiculturalism, fairness, and environmental stewardship, and a workplace culture where collaboration and collective purpose often matter more than individual glory. Autonomy also runs deep. People want the freedom to make decisions and shape their own work, rather than being managed step by step. Combine that with a strong expectation of work-life balance, and the picture becomes clearer: motivation here is rarely about money alone. It comes from meaningful work, development opportunities, and managers who trust people to do the job without constant oversight.
-
-Recognition works, but it needs to be sincere and specific. Canadians tend to be quiet achievers. They appreciate acknowledgment that feels real and grounded in what they actually did, not exaggerated praise or public celebration for its own sake. A manager who thanks someone for pulling together a difficult deliverable or invites them into a project that will build new skills is sending a clear message: your work is valued, and you belong here. Younger professionals, especially, are motivated by learning opportunities and the chance to grow. They also look for work that aligns with their values, particularly around equity, inclusion, and ethical impact.
-
-A colleague from a culture where individual achievement is celebrated more visibly might find Canadian modesty understated or hard to read, mistaking it for disengagement. From the other side, a Canadian working with someone who seeks frequent public recognition might interpret that need as attention-seeking or self-promotion. Neither reading is accurate. The difference is in how accomplishment is acknowledged and how people understand their role within the group.

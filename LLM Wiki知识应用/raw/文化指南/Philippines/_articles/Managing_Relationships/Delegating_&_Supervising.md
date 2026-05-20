@@ -1,9 +1,0 @@
-# Delegating & Supervising
-
-## Managing Relationships
-
-Delegating effectively in the Philippines means understanding that hierarchy runs deep. Shaped by centuries of colonial rule, the workplace reflects a high acceptance of vertical authority. Decisions and tasks flow downward through clear reporting lines, and employees generally expect direction from above. But that hierarchy coexists with relationship-first expectations. A manager who assigns tasks without showing genuine personal interest will struggle to earn the loyalty that makes a team function well. Malasakit (genuine concern and care for others) defines good leadership here. Ask about people's lives, mark important occasions, and be present beyond the purely professional. The depth of commitment you receive will reflect the human attention you give.
-
-Detailed instruction is valued, especially with junior staff. Providing context helps people understand not just what to do but why the task matters for the team and the broader goal. This clarity also helps people avoid mistakes and maintain face, which is central to how authority and respect operate. Hiya (shame, loss of face) is a powerful force. It means problems are often held rather than surfaced, and a "yes" may signal that someone has heard you rather than agreed with you. Create informal, private opportunities for team members to raise concerns. Public criticism is deeply damaging and difficult to recover from.
-
-Pakikisama (maintaining group harmony) shapes how disagreement is expressed. Employees prioritize smooth relationships, particularly with those above them, which means direct pushback is rare. If you work in a culture where open challenge is expected or valued, the absence of visible dissent can feel like passivity. From a Filipino perspective, a manager who mistakes silence for agreement, or who expects problems to be raised in group settings, may simply be unfamiliar with how respect and care are shown here.

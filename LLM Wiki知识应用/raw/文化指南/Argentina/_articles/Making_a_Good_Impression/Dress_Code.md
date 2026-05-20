@@ -1,9 +1,0 @@
-# Dress Code
-
-## Making a Good Impression
-
-Professional dress in Buenos Aires carries a distinctly European feel. People invest in smart, well-tailored clothing, good shoes, and neat grooming. The look is put-together rather than overtly formal, with an eye for style that reflects the city's long cultural ties to Italy, Spain, and France. Presentation here is read as a mark of respect for the occasion and the people you're meeting. Arriving well-dressed tells your Argentine colleagues that the meeting holds weight for you, even if the office itself allows some flexibility.
-
-Expectations shift noticeably across sectors and regions. Banking, law, and government lean formal, with dark suits and polished accessories still standard. Tech companies, creative agencies, and some NGOs allow more casual dress, though even there people tend to look deliberate and stylish. Outside the capital, especially in agricultural provinces, dress can be more conservative or influenced by rural life. Before a first meeting in an unfamiliar setting, ask a local contact what to expect. A blazer might be optional at a Córdoba tech hub but expected at a ministry in Buenos Aires.
-
-Economic volatility has made pragmatism part of the picture. People keep clothes longer, mix high-end pieces with budget finds, and prioritize looking presentable and tidy over brand labels or newness. A colleague wearing modest or well-worn clothing is likely still paying close attention to neatness and fit. The effort you put into your appearance counts more than the price tag. Focus on clean lines, polished shoes, and careful grooming rather than obvious luxury.

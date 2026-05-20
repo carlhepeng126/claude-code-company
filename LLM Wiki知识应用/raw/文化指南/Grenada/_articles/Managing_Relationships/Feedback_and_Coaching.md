@@ -1,9 +1,0 @@
-# Feedback and Coaching
-
-## Managing Relationships
-
-Feedback in Grenada works best when it accounts for the weight of personal dignity and the closeness of social ties. In a small society where reputations are built and maintained across overlapping networks of family, church, school, and workplace, direct criticism can echo well beyond the conversation itself. A comment intended to improve performance may be remembered as a public slight if not handled with care. Managers who understand this tend to deliver corrective feedback privately, often framing it as guidance rather than fault-finding. Phrasing that emphasizes support and future improvement rather than past mistakes helps preserve the relationship and keeps the door open for continued collaboration.
-
-Public praise, by contrast, is well received and often expected. Acknowledging someone's contribution in front of colleagues or within a team setting affirms their standing and strengthens group morale. This is especially true in settings where collective effort is valued and individual recognition can uplift the wider team. Spontaneous, sincere acknowledgment tends to resonate more than formalized systems, which can feel impersonal in a culture where relationships are central to how work gets done.
-
-Feedback is rarely processed in isolation. A colleague may consult family members, close friends, or trusted mentors before acting on advice, particularly if it involves a significant decision or shift in role. This reflects the broader relational fabric of Grenadian life, where personal choices are often discussed within a circle of trusted voices. International managers may find that coaching conversations take longer to translate into action, as the recipient weighs the input against the perspectives of others whose opinions hold real influence.

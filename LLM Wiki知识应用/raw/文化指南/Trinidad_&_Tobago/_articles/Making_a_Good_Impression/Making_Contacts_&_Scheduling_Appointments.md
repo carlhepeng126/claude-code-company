@@ -1,9 +1,0 @@
-# Making Contacts & Scheduling Appointments
-
-## Making a Good Impression
-
-In Trinidad and Tobago, making contact often means becoming visible in the right social spaces before formal business begins. Many connections form through what locals call "public culture" networks: panyards, Carnival bands, religious communities, alumni groups, and neighborhood gatherings. These are lived social infrastructures where trust builds through presence and participation, not just formal introductions. If you're looking to make headway, ask a trusted local contact which of these networks overlap with your sector or interest, and be prepared to show up more than once. A local partner or fixer remains invaluable for navigating this close-knit community, particularly when making initial introductions.
-
-First meetings may feel warm and open quickly, but deeper trust forms through repeat visibility and follow-through. People watch who shows up, who keeps their word, and how someone behaves when the context shifts. Early friendliness should not be mistaken for immediate access or commitment. Consistency across encounters matters more than a strong first impression. Confirm meetings by email in advance and reconfirm when you arrive, but leave space in your schedule. Meetings often overrun, and Trinbagonians tend to be generous with their time once rapport is established.
-
-Timing is shaped by high-visibility cultural seasons. Carnival dominates national attention and energy in the weeks leading up to it, and expecting business progress during that period is unrealistic. Major religious holidays, which reflect the country's Christian, Hindu, and Muslim communities, also shape availability. Government officials may cancel or reschedule at short notice, so build in flexibility and avoid tightly packed agendas. Office hours typically run from 8am to 4pm, but commutes can stretch an hour or more even on a small island, so early breakfast meetings may not suit everyone.

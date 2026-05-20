@@ -1,9 +1,0 @@
-# Teamwork
-
-## Working Together
-
-Team structures in Armenia reflect deep-rooted respect for hierarchy alongside strong personal bonds. Senior members guide junior colleagues through relationships built on trust and mentoring rather than formal processes. This approach reflects the value placed on loyalty and the expectation that a manager takes genuine interest in the professional and personal welfare of the team. Leadership is seen as both directive and protective, and team members respond best when they feel known as individuals, not just as contributors. For colleagues used to flatter team structures where seniority plays a lighter role, this can feel formal or slow. For Armenian professionals working in less hierarchical settings, the absence of visible authority may read as disorganization or lack of care.
-
-Collaboration often relies on informal channels and unspoken understanding. Decisions may be shaped through quiet conversations outside the meeting room, particularly where relationships and trust have been established over time. A colleague from a culture where all team input is voiced and logged in shared forums may find this frustrating or unclear. From an Armenian perspective, surfacing every disagreement in a group setting can feel blunt and disrespectful to senior figures. If you lead a team that includes Armenian members, make space for one-on-one check-ins and recognize that consensus may form gradually and relationally, not always in real time during a meeting.
-
-Feedback is expected to be given privately and with tact. Public criticism, even if framed constructively, risks damaging dignity and weakening trust across the group. Praise also tends to be directed toward the team collectively rather than singling out individuals, preserving balance and group cohesion.

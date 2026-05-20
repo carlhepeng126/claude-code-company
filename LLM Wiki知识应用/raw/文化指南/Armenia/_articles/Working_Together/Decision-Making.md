@@ -1,9 +1,0 @@
-# Decision-Making
-
-## Working Together
-
-In Armenia, decisions take time because trust is built slowly and the stakes of getting it wrong feel high. The memory of political and economic instability has left a lasting caution around committing to courses of action before relationships are understood and consequences considered. Hierarchy is respected, but even senior leaders will often consult informally before finalizing decisions, especially with people they know personally or through long-standing networks. Decisions may be made by the person in charge, but their legitimacy depends on having worked through the layers of confidence beneath them.
-
-Formal meetings may produce agreement in principle, but the real shaping of a decision often happens outside the room, in one-to-one conversations or among trusted colleagues. If a proposal has not been discussed this way first, it may be met with silence or polite deferral rather than direct opposition. A manager from a culture where decisions are made quickly in meetings may read this as avoidance or inefficiency. From an Armenian perspective, a decision made without informal groundwork risks being brittle, unsupported, or socially misaligned.
-
-Expect decisions to shift as new information or relationships come into view. What was agreed may be revisited if circumstances change or if someone with influence raises a concern. This is not inconsistency; it reflects a preference for decisions that work in practice, not just on paper. If you are working across this difference, treat early agreements as directional and keep communication open as implementation unfolds.

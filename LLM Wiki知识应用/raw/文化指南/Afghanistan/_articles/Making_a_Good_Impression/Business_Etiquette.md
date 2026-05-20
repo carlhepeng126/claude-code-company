@@ -1,9 +1,0 @@
-# Business Etiquette
-
-## Making a Good Impression
-
-In Afghan professional life, the relationship comes first. Business cards, contracts, and timelines follow trust, and trust grows through repeated interaction, shared tea, and the sense that someone knows who you really are. A meeting that opens with questions about health, family, or a mutual contact reflects a cultural logic rooted in group cohesion and relational identity. Taking time to establish personal connection before turning to business allows Afghan colleagues to assess reliability, character, and whether the relationship will hold beyond a single transaction.
-
-Communication is shaped by the need to preserve dignity and avoid shame, particularly in settings where hierarchy or group identity is visible. Direct refusals or open disagreement, especially in front of others, can damage face and fracture trust. Expect softer language, pauses, or responses that seem to circle the question. A colleague from a culture where directness signals efficiency may interpret this as evasion or lack of clarity, while an Afghan counterpart may view blunt disagreement as disrespectful or damaging to the relationship. Listen for what is implied rather than only what is stated, and allow space for follow-up conversations in private if consensus isn't immediate.
-
-Physical gestures follow specific norms. Men often greet each other with handshakes, sometimes with a hand placed over the heart, signaling warmth and sincerity. Between men and women, physical contact is typically avoided unless the woman initiates. A respectful nod or hand over the heart works well when unsure. Always use your right hand for greetings, passing documents, or receiving items. Pointing with your finger, showing the sole of your shoe, or sitting with legs outstretched toward someone can all cause quiet offense.

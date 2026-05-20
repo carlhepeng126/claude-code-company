@@ -1,9 +1,0 @@
-# Business Lunch & Dinner
-
-## Meetings & Presentations
-
-Business meals in Switzerland tend to function more as a credibility read than a performance stage. People notice steadiness: how you handle formality, how you include others in conversation, and whether you respect agreed time boundaries. Overly personal questions early on can feel intrusive, while dominating the conversation or leaving quieter colleagues on the sidelines may register as inconsiderate. The rhythm of the meal itself offers clues about your ability to fit into Swiss professional norms, which value balance and respect for structure even in social settings.
-
-In some circles, especially in German-speaking areas, the apéro (pre-dinner drinks and light snacks) often does the heavier relational work. Conversations during the main meal stay relatively contained and evenly distributed. A colleague from a culture where meals are long, unstructured, and personally disclosive may find this restraint formal or distant. From a Swiss perspective, a meal that stretches late without clear invitation or veers into overly personal territory can feel inconsiderate, even if the mood is warm. Watch your counterpart's pacing and follow their lead on how much to share and when to wind down.
-
-Time boundaries remain present throughout. Even convivial dinners have a shape: agreed start and finish times are expected to hold. Stretching a meal into late hours without clear mutual interest may come across as disrespectful of others' schedules. Language region, religion, and local custom also influence expectations around alcohol, conversational style, and meal length. In some settings lunch is tight and functional; in others it allows more social space. Matching the local rhythm, rather than imposing your own, builds trust without drawing attention to the effort.

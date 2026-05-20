@@ -1,9 +1,0 @@
-# Time Management
-
-## Making a Good Impression
-
-Scheduled times in the Dominican Republic are often approximate guides rather than firm boundaries, particularly in public-sector offices, smaller businesses, and social contexts. This flexibility reflects a relational priority: people come before the clock. If a colleague stops to help a friend or adjust plans when traffic floods after a downpour, it's a lived reality, not a lack of commitment. Power outages, known as *apagones* (blackouts), and Santo Domingo's unpredictable traffic are genuine constraints that can shift meetings with little notice. Building buffer time into your schedule and keeping backup plans reduces frustration on both sides.
-
-The rhythm varies sharply by sector and setting. Export-oriented free zones, multinational firms, and luxury hotels typically run on stricter, internationally aligned schedules, where punctuality signals professionalism. Meanwhile, some local bureaucracies and family-run businesses operate on a more polychronic rhythm, where tasks overlap and timing bends around relationships and immediate needs. A manager working across both contexts learns quickly to identify which partners are on what locals sometimes call "Miami time," meaning tight schedules and global client expectations, and which operate on "Caribbean time," where flexibility is the norm.
-
-Arriving too rigidly on time without engaging warmly, or showing visible irritation when plans shift, can come across as naïve or socially cold. When you need to hold a hard deadline, frame it around external constraints, such as a flight departure or an international call, rather than personal preference. This explains the urgency without positioning your own approach as superior, and helps preserve the relational warmth that underpins effective collaboration.
