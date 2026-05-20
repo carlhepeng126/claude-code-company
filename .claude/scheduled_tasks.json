@@ -28,6 +28,15 @@
       "createdBySessionId": "a4907d2e-5d96-46a8-84d5-f749f92352de",
       "createdByPid": 8292,
       "createdByProcStart": "639148145738538380"
+    },
+    {
+      "id": "8e312f94",
+      "cron": "57 18 * * *",
+      "prompt": "归档 Focus 目录中的已完成事项：\n\n1. 检查 `ACT笔记-深度思考/3-Action/3-1-Focus-聚焦承诺/` 下的所有 .md 文件（不含子目录 `摩根体系化重构-项目/`）\n2. 对每个文件，判断 status 是否为 completed 或内容中明确标注\"已经完成\"/\"已完成\"/任务全部勾选完成\n3. 判断是否项目相关：文件内容中含客户名称、项目名称、方案等关键词的为项目相关\n4. 项目相关的 → 移动到 `ACT笔记-深度思考/6-storage/6-1-archive-归档/项目归档/` 下对应项目文件夹（如无对应文件夹则创建）\n5. 非项目相关的 → 移动到 `ACT笔记-深度思考/6-storage/6-1-archive-归档/raw/`\n6. 完成后报告：哪些文件归档到了哪个位置",
+      "createdAt": 1779275702862,
+      "recurring": true,
+      "createdBySessionId": "87bed370-9f5b-4d5f-9e75-f3444da2635f",
+      "createdByPid": 25888
     }
   ]
 }
