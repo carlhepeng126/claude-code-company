@@ -1,5 +1,5 @@
 ---
-title: Untitled
+title: "课程萃取项目"
 tags: [type/方法, 知识管理]
 maturity: sapling
 context: [内部运营, 方案设计]

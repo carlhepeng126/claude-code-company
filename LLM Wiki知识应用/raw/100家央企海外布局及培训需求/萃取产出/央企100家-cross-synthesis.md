@@ -117,7 +117,37 @@
 
 ---
 
-## 六、方法论沉淀
+## 六、与文化指南数据库的关联（2026-05-19补充）
+
+> 2026-05-19 新增 `raw/文化指南/` 目录同步完成，223个国家/地区，3,615篇结构化文化指南文章。
+
+### 6.1 文化指南对100家央企S级机会的直接支撑
+
+| S级机会 | 文化指南国家 | 核心支撑文章 | 培训应用 |
+|---------|------------|------------|---------|
+| 中交·巴拿马合规 | Panama | Decision-Making/Negotiating/Conflict | R模块合规案例课 |
+| 中国铁建·坦赞铁路 | Tanzania, Zambia | Leadership/Motivating/Time | 属地化人才培训体系 |
+| 北方工业·伊拉克安全 | Iraq | Decision-Making/Negotiating/Conflict | 安全+跨文化融合培训 |
+| 中交·马东铁 | Malaysia | Decision-Making/Negotiating/Meeting | 运维人才跨文化入模 |
+| 中铁建·阿尔及利亚铁路 | Algeria | Negotiating/Decision-Making | 跨文化谈判工作坊 |
+| 阿联酋RTC | UAE | Decision-Making/Negotiating | 商务谈判体系 |
+| 能建·凯凯水电站 | Angola | Leadership/Teamwork/Conflict | 属地化管理 |
+
+### 6.2 新增知识库卡片
+- **实体**：`entities/区域/culture-guide-database.md`（223国文化指南总览）
+- **概念**：`concepts/cross-cultural-business-intelligence-system.md`（跨文化商业情报系统）
+- **案例更新**：case-panama-compliance / case-tanzania-railway / case-norinco-iraq 均已补充文化维度
+
+### 6.3 区域文化模式汇总
+
+| 区域 | 核心特征 | 对央企培训的普遍启示 |
+|:----|---------|-------------------|
+| 中东14国 | 关系先于交易；尊严=谈判底线；分层决策 | 所有中东项目先做"关系地图"后谈条款 |
+| 东南亚20国 | 面子文化；Musyawarah共识；间接沟通 | 不急、不逼、不给对方当众难堪 |
+| 非洲35国 | 集体决策；声誉驱动；时间弹性大 | 本地中间人+社区融入=项目稳定 |
+| 拉美26国 | 关系优先；情绪表达自然；层阶意识 | 先吃顿饭再谈合同；尊重头衔 |
+
+## 七、方法论沉淀
 
 本次萃取验证并沉淀了以下方法论：
 

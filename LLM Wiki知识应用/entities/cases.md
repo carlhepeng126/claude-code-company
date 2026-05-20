@@ -1,5 +1,5 @@
 ---
-title: Untitled
+title: "提供方案 — Cases 汇总索引"
 tags: [type/案例, 知识管理]
 type: entity
 maturity: tree
@@ -9,6 +9,11 @@ context: [内部运营, 提案, 方案设计]
 # 提供方案 — Cases 汇总索引
 
 > 以下为已完成的5个培训/赋能方案的核心信息汇总，按文档整理。
+
+详见案例库：[[case-alipay-australia-cross-cultural]] · [[case-siemens-shanghai-acquisition-localization]] · [[cases-soe-globalization]] · [[cases-ai-engineering]] · [[cases-mideast-epc]] · [[cases-outbound-experience]]
+
+相关方法论：[[deep-extraction-methodology]] · [[客户痛点归纳与课程大纲合并方案]] · [[国际工程人才能力框架|international-engineering-talent-framework]]
+
 
 ---
 

@@ -11,6 +11,8 @@ category: 央企国际化 + 语言培训 + ESG
 
 # 央企国际化 — 全量萃取
 
+本案例详见 [[cases.md|Cases 汇总索引]] · 关联 [[soe-overseas-talent-competency-model]] · [[soe-training-program-system]]
+
 > 来源：Speexx（郑君、郑一舟）、远鸣出海（黄渊明）
 > 核心主题：中国企业全球化从"走出去"到"走进去"阶段的语言、文化、组织与合规挑战
 

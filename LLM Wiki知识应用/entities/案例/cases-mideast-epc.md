@@ -2,7 +2,10 @@
 title: 中东EPC项目实战案例库
 created: 2026-05-09
 source: 公众号"杰哥助您出海"
-tags: [type/案例, 知识管理, 区域/中东]
+tags: [type/案例, 区域/中东, 跨文化]
+---
+
+本案例详见 [[cases.md|Cases 汇总索引]] · 关联 [[cross-cultural-communication-three-stage-model]] · [[enterprise-negotiation-capability-framework]]
 type: entity
 maturity: sapling
 context: [内部运营, 提案, 方案设计]

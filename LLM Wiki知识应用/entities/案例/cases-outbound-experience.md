@@ -8,6 +8,8 @@ maturity: tree
 context: [提案, 方案设计]
 ---
 
+本案例收录于 [[cases.md|Cases 汇总索引]] · 关联 [[overseas-pitfall-avoidance-eight-traps]] · [[国际工程人才能力框架|international-engineering-talent-framework]]
+
 ## 1 {#1}
 
 ### 出海经历谈1：中东建筑市场，为何设计费高却难赚钱？

@@ -1,11 +1,14 @@
 ---
-title: Untitled
+title: "📋 LLM Wiki 健康巡检报告 — 2026年5月"
 tags: [type/报告, 知识管理]
 maturity: tree
 context: [内部运营, 市场分析, 提案]
 ---
 
 # 📋 LLM Wiki 健康巡检报告 — 2026年5月
+
+> 总索引 → [[index.md|🌐 企业国际化培训知识库]]
+
 
 > 巡检时间: 2026-05-09 13:00
 > 巡检人员: 知识库维护虾 🦐

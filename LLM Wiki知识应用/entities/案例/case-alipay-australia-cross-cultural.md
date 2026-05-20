@@ -9,6 +9,8 @@ context: [提案, 方案设计]
 
 # 支付宝在澳洲：从单向输出到双向连接
 
+本案例详见 [[cases.md|Cases 汇总索引]] · 跨文化框架参考 [[cross-cultural-communication-os-model]] · 外派风险参考 [[overseas-pitfall-avoidance-eight-traps]]
+
 ## 案例概要
 支付宝和Paymate合作做"海外宝"，走的不是传统跨境电商单向输出的路，而是"双向连接"。
 

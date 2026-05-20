@@ -1,5 +1,5 @@
 ---
-title: Untitled
+title: "🌐 企业国际化培训知识库 — LLM Wiki"
 tags: [type/索引, 知识管理]
 maturity: tree
 context: [内部运营]

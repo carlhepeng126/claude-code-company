@@ -9,6 +9,8 @@ context: [提案, 方案设计]
 
 # 西门子：为什么不整合反而更快赢下中国市场？
 
+本案例详见 [[cases.md|Cases 汇总索引]] · 关联 [[overseas-enterprise-trust-structure]] · [[cross-cultural-communication-four-stage-model]]
+
 ## 案例概要
 大多数企业做并购第一步是"整合"——统一品牌、统一流程、统一体系。但西门子收购上海二工后选择了相反策略。
 

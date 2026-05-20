@@ -57,6 +57,19 @@
     "type": "command",
     "command": "cols=$(stty size </dev/tty 2>/dev/null | awk '{print $2}'); export COLUMNS=$(( ${cols:-120} > 4 ? ${cols:-120} - 4 : 1 )); plugin_dir=$(ls -1d \"${CLAUDE_CONFIG_DIR:-$HOME/.claude}\"/plugins/cache/*/claude-hud/*/ 2>/dev/null | sort -V | tail -1); exec \"/c/Users/Admin/bin/node\" \"${plugin_dir}dist/index.js\""
   },
+  "hooks": {
+    "Stop": [
+      {
+        "matcher": "",
+        "hooks": [
+          {
+            "type": "command",
+            "command": "cd \"c:/Users/Admin/Documents/LLM Wiki\" && git add -A && git diff --cached --quiet || (git commit -m \"$(date '+auto backup %Y-%m-%d %H:%M')\" && git push origin main)"
+          }
+        ]
+      }
+    ]
+  },
   "additionalDirectories": [
     "C:\\Users\\Admin",
     "C:\\Users\\Admin\\.claude\\skills\\course-brochure-builder",

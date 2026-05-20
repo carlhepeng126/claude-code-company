@@ -1,0 +1,343 @@
+<!DOCTYPE html>
+<html lang="zh-CN">
+<head>
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+<title>封面图 3:4</title>
+<style>
+  * { margin: 0; padding: 0; box-sizing: border-box; }
+  body {
+    display: flex;
+    justify-content: center;
+    align-items: center;
+    min-height: 100vh;
+    background: #1a1a2e;
+  }
+  .cover {
+    width: 1080px;
+    height: 1440px;
+    background: #0b0b1a;
+    position: relative;
+    overflow: hidden;
+    font-family: "PingFang SC", "Microsoft YaHei", "Noto Sans SC", sans-serif;
+  }
+
+  /* 顶部红色条 */
+  .top-strip {
+    position: absolute;
+    top: 0; left: 0; right: 0;
+    height: 12px;
+    background: linear-gradient(90deg, #e53935, #ff6f00, #e53935);
+  }
+
+  /* 免费标签 */
+  .free-badge {
+    position: absolute;
+    top: 40px; right: 40px;
+    background: #e53935;
+    color: #fff;
+    font-size: 38px;
+    font-weight: 900;
+    padding: 16px 36px;
+    border-radius: 50px;
+    letter-spacing: 4px;
+    box-shadow: 0 8px 32px rgba(229,57,53,0.5);
+    z-index: 10;
+    animation: pulse 2s infinite;
+  }
+  @keyframes pulse {
+    0%, 100% { transform: scale(1); }
+    50% { transform: scale(1.06); }
+  }
+
+  /* 主标题区 */
+  .main-headline {
+    position: absolute;
+    top: 130px;
+    left: 60px;
+    right: 60px;
+  }
+  .main-headline .tag-line {
+    display: inline-block;
+    background: rgba(229,57,53,0.15);
+    border: 2px solid #e53935;
+    color: #e53935;
+    font-size: 32px;
+    font-weight: 700;
+    padding: 8px 24px;
+    border-radius: 6px;
+    margin-bottom: 30px;
+    letter-spacing: 2px;
+  }
+  .main-headline h1 {
+    color: #fff;
+    font-size: 76px;
+    font-weight: 900;
+    line-height: 1.2;
+    letter-spacing: 2px;
+  }
+  .main-headline h1 .highlight {
+    color: #ff5252;
+    position: relative;
+  }
+  .main-headline h1 .highlight::after {
+    content: '';
+    position: absolute;
+    bottom: 4px; left: 0; right: 0;
+    height: 6px;
+    background: #ff5252;
+    border-radius: 3px;
+  }
+
+  /* 痛点爆点区 */
+  .pain-grid {
+    position: absolute;
+    top: 480px;
+    left: 60px;
+    right: 60px;
+    display: grid;
+    grid-template-columns: 1fr 1fr;
+    gap: 28px;
+  }
+  .pain-card {
+    background: rgba(255,255,255,0.04);
+    border: 1px solid rgba(255,255,255,0.08);
+    border-radius: 16px;
+    padding: 32px 30px;
+    display: flex;
+    align-items: flex-start;
+    gap: 20px;
+  }
+  .pain-card .icon {
+    font-size: 44px;
+    flex-shrink: 0;
+    line-height: 1;
+  }
+  .pain-card .text .number {
+    font-size: 48px;
+    font-weight: 900;
+    color: #ff5252;
+    line-height: 1;
+    margin-bottom: 6px;
+  }
+  .pain-card .text .desc {
+    font-size: 28px;
+    color: rgba(255,255,255,0.75);
+    line-height: 1.4;
+  }
+  .pain-card .text .sub {
+    font-size: 22px;
+    color: rgba(255,255,255,0.45);
+    margin-top: 6px;
+  }
+
+  /* 中间分割线+一句话 */
+  .one-liner {
+    position: absolute;
+    top: 820px;
+    left: 80px;
+    right: 80px;
+    text-align: center;
+    padding: 30px 0;
+    border-top: 1px solid rgba(255,255,255,0.1);
+    border-bottom: 1px solid rgba(255,255,255,0.1);
+  }
+  .one-liner p {
+    color: rgba(255,255,255,0.85);
+    font-size: 34px;
+    font-weight: 600;
+    letter-spacing: 2px;
+  }
+  .one-liner p span {
+    color: #ff9800;
+    font-weight: 900;
+  }
+
+  /* 底部解决方案区 */
+  .solution-area {
+    position: absolute;
+    top: 960px;
+    left: 60px;
+    right: 60px;
+  }
+  .solution-area .section-label {
+    color: rgba(255,255,255,0.5);
+    font-size: 24px;
+    letter-spacing: 3px;
+    margin-bottom: 20px;
+  }
+  .solution-list {
+    display: flex;
+    flex-direction: column;
+    gap: 18px;
+  }
+  .solution-item {
+    display: flex;
+    align-items: center;
+    gap: 20px;
+    font-size: 30px;
+    color: #fff;
+    font-weight: 600;
+  }
+  .solution-item .check {
+    width: 40px;
+    height: 40px;
+    background: #2e7d32;
+    border-radius: 50%;
+    display: flex;
+    align-items: center;
+    justify-content: center;
+    font-size: 22px;
+    color: #fff;
+    flex-shrink: 0;
+  }
+
+  /* 底部CTA */
+  .cta-area {
+    position: absolute;
+    bottom: 80px;
+    left: 60px;
+    right: 60px;
+    display: flex;
+    align-items: center;
+    gap: 30px;
+  }
+  .cta-btn {
+    flex: 1;
+    background: linear-gradient(135deg, #e53935, #ff6f00);
+    color: #fff;
+    font-size: 36px;
+    font-weight: 900;
+    text-align: center;
+    padding: 28px 0;
+    border-radius: 16px;
+    letter-spacing: 4px;
+    box-shadow: 0 8px 40px rgba(229,57,53,0.4);
+  }
+  .cta-sub {
+    color: rgba(255,255,255,0.5);
+    font-size: 22px;
+    text-align: center;
+    margin-top: 20px;
+    letter-spacing: 1px;
+  }
+
+  /* 底部分割线 */
+  .bottom-strip {
+    position: absolute;
+    bottom: 0; left: 0; right: 0;
+    height: 4px;
+    background: linear-gradient(90deg, #e53935, #ff6f00, #e53935);
+  }
+
+  /* 装饰元素 */
+  .deco-dots {
+    position: absolute;
+    top: 420px;
+    right: 50px;
+    width: 120px;
+    height: 120px;
+    opacity: 0.06;
+    background: radial-gradient(circle, #fff 1px, transparent 1px);
+    background-size: 16px 16px;
+  }
+  .deco-circle {
+    position: absolute;
+    bottom: 200px;
+    left: -80px;
+    width: 300px;
+    height: 300px;
+    border-radius: 50%;
+    border: 2px solid rgba(229,57,53,0.06);
+  }
+</style>
+</head>
+<body>
+<div class="cover">
+  <div class="top-strip"></div>
+
+  <div class="free-badge">🆓 免费领</div>
+
+  <div class="main-headline">
+    <div class="tag-line">出海HR · 避坑指南</div>
+    <h1>
+      企业员工出海：<br>
+      老婆不同意<br>
+      <span class="highlight">＝一票否决</span>
+    </h1>
+  </div>
+
+  <div class="pain-grid">
+    <div class="pain-card">
+      <div class="icon">💸</div>
+      <div class="text">
+        <div class="number">30%+</div>
+        <div class="desc">外派失败率</div>
+        <div class="sub">每3个外派就1个提前召回</div>
+      </div>
+    </div>
+    <div class="pain-card">
+      <div class="icon">🔥</div>
+      <div class="text">
+        <div class="number">300万</div>
+        <div class="desc">单个失败直接损失</div>
+        <div class="sub">还没算业务机会成本</div>
+      </div>
+    </div>
+    <div class="pain-card">
+      <div class="icon">😵</div>
+      <div class="text">
+        <div class="number">没标准</div>
+        <div class="desc">谁有空谁去 / 谁强谁去</div>
+        <div class="sub">国内那套选人逻辑出海就翻车</div>
+      </div>
+    </div>
+    <div class="pain-card">
+      <div class="icon">⚡</div>
+      <div class="text">
+        <div class="number">无底洞</div>
+        <div class="desc">派出去 = 管不了</div>
+        <div class="sub">合规踩雷·文化冲突·回国离职</div>
+      </div>
+    </div>
+  </div>
+
+  <div class="one-liner">
+    <p>一份报告 <span>5分钟</span> 搞清外派怎么选人</p>
+  </div>
+
+  <div class="solution-area">
+    <div class="section-label">📋 你拿到就能直接用</div>
+    <div class="solution-list">
+      <div class="solution-item">
+        <div class="check">✓</div>
+        <span>5维胜任力模型——筛出"对的人"</span>
+      </div>
+      <div class="solution-item">
+        <div class="check">✓</div>
+        <span>八步选拔流程——照做就行</span>
+      </div>
+      <div class="solution-item">
+        <div class="check">✓</div>
+        <span>各国合规红线卡——30秒避雷</span>
+      </div>
+      <div class="solution-item">
+        <div class="check">✓</div>
+        <span>真实企业案例——直接对号入座</span>
+      </div>
+    </div>
+  </div>
+
+  <div class="cta-area" style="position: absolute; bottom: 80px; left: 60px; right: 60px;">
+    <div style="width:100%;">
+      <div class="cta-btn">评论"出海" · 免费领完整报告</div>
+      <div class="cta-sub">HRise × 易才联合出品 · 100页完整版</div>
+    </div>
+  </div>
+
+  <div class="bottom-strip"></div>
+  <div class="deco-dots"></div>
+  <div class="deco-circle"></div>
+</div>
+</body>
+</html>

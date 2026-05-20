@@ -11,6 +11,8 @@ category: 工程出海 + AI赋能
 
 # 张工AI出海 — 全量萃取
 
+本案例详见 [[cases.md|Cases 汇总索引]] · 关联 [[knowledge-base-ai-rollout]] · [[deep-extraction-methodology]] · [[signal-daily-clam]]
+
 > 张工（辛鹭）—— 8年国内造价经验，全职转型海外工程AI化一人公司。
 > 公众号定位：工程人出海 + AI工具应用，核心受众为国内工程人（施工、造价、设计）寻求海外机会。
 

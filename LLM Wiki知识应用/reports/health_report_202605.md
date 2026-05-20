@@ -1,11 +1,14 @@
 ---
-title: Untitled
+title: "Wiki 健康巡检报告 — 2026-05-09"
 tags: [type/报告, 知识管理]
 maturity: seed
 context: [内部运营, 市场分析, 提案]
 ---
 
 # Wiki 健康巡检报告 — 2026-05-09
+
+> 总索引 → [[index.md|🌐 企业国际化培训知识库]]
+
 
 - 知识库: /root/wiki/LLM Wiki知识应用
 - 总文件数: 2979
