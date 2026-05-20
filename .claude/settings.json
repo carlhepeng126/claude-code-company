@@ -58,6 +58,19 @@
     "command": "cols=$(stty size </dev/tty 2>/dev/null | awk '{print $2}'); export COLUMNS=$(( ${cols:-120} > 4 ? ${cols:-120} - 4 : 1 )); plugin_dir=$(ls -1d \"${CLAUDE_CONFIG_DIR:-$HOME/.claude}\"/plugins/cache/*/claude-hud/*/ 2>/dev/null | sort -V | tail -1); exec \"/c/Users/Admin/bin/node\" \"${plugin_dir}dist/index.js\""
   },
   "hooks": {
+    "SessionStart": [
+      {
+        "matcher": "",
+        "hooks": [
+          {
+            "type": "command",
+            "command": "D=\"c:/Users/Admin/Documents/LLM Wiki/ACT笔记-深度思考\"; FOCUS=\"$D/3-Action/3-1-Focus-聚焦承诺\"; ARCH=\"$D/6-storage/6-1-archive-归档\"; SENTINEL=\"/tmp/focus-archive-$(date +%Y%m%d)\"; [ -f \"$SENTINEL\" ] && exit 0; touch \"$SENTINEL\"; c=0; for f in \"$FOCUS\"/*.md; do [ -f \"$f\" ] || continue; if head -50 \"$f\" | grep -qE 'status:[[:space:]]*completed|已经完成|已完成|最终完成' 2>/dev/null; then target=\"$ARCH/raw\"; if head -50 \"$f\" | grep -qE '当升科技|广东申菱|中信建设|中交|中原|中海油|杰瑞|物探' 2>/dev/null; then for d in \"$ARCH/项目归档\"/*/; do n=$(basename \"$d\"); if head -50 \"$f\" | grep -qi \"$n\" 2>/dev/null; then target=\"$d\"; break; fi; done; fi; mkdir -p \"$target\"; mv \"$f\" \"$target/\" 2>/dev/null && c=$((c+1)); fi; done; [ $c -gt 0 ] && echo \"📦 Focus归档: $c 个文件已移动\" || true",
+            "timeout": 30,
+            "statusMessage": "检查Focus归档..."
+          }
+        ]
+      }
+    ],
     "Stop": [
       {
         "matcher": "",
