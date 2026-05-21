@@ -9,17 +9,6 @@
       "createdByPid": 40976
     },
     {
-      "id": "e07174d8",
-      "cron": "42 8 * * *",
-      "prompt": "检查昨天的日日志和 Action 文件夹（3-1-Focus、3-2-Active），找出标记为 completed 或备注写明\"已完成\"的事项，自动移到 6-storage/6-1-archive-归档/项目归档/ 下对应的项目文件夹。如果没有对应的项目文件夹就新建。完成后汇报整理结果。",
-      "createdAt": 1778720912241,
-      "lastFiredAt": 1779239520866,
-      "recurring": true,
-      "createdBySessionId": "6954533b-f3fa-4801-a449-aba17f7fcf85",
-      "createdByPid": 18528,
-      "createdByProcStart": "639143446730667100"
-    },
-    {
       "id": "bf9a51b7",
       "cron": "0 9 * * 1",
       "prompt": "cd \"c:/Users/Admin/Documents/LLM Wiki\" && git add -A && git commit -m \"$(date '+每周自动备份 %Y-%m-%d')\" && git push origin main 2>&1 || echo \"无变更或推送失败\"",
