@@ -96,7 +96,8 @@
       "Bash(mkdir -p \"c:/Users/Admin/Documents/LLM Wiki/.claude/skills/web-access\")",
       "Bash(cp -r /tmp/web-access/* \"c:/Users/Admin/Documents/LLM Wiki/.claude/skills/web-access/\")",
       "Bash(cp -r /tmp/web-access/references \"c:/Users/Admin/Documents/LLM Wiki/.claude/skills/web-access/\")",
-      "Bash(cp -r /tmp/web-access/.claude-plugin \"c:/Users/Admin/Documents/LLM Wiki/.claude/skills/web-access/\")"
+      "Bash(cp -r /tmp/web-access/.claude-plugin \"c:/Users/Admin/Documents/LLM Wiki/.claude/skills/web-access/\")",
+      "Bash(lark-cli base *)"
     ],
     "additionalDirectories": [
       "C:\\Users\\Admin\\.claude",
