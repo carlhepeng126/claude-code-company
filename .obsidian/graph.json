@@ -1,13 +1,21 @@
 {
   "collapse-filter": false,
-  "search": "当升科技",
+  "search": "",
   "showTags": false,
   "showAttachments": false,
   "hideUnresolved": false,
-  "showOrphans": true,
+  "showOrphans": false,
   "collapse-color-groups": false,
-  "colorGroups": [],
-  "collapse-display": true,
+  "colorGroups": [
+    {
+      "query": "file:当升科技",
+      "color": {
+        "a": 1,
+        "rgb": 13896716
+      }
+    }
+  ],
+  "collapse-display": false,
   "showArrow": false,
   "textFadeMultiplier": 0,
   "nodeSizeMultiplier": 1,
@@ -17,6 +25,6 @@
   "repelStrength": 10,
   "linkStrength": 1,
   "linkDistance": 250,
-  "scale": 0.26135322229112357,
+  "scale": 0.19198650302663778,
   "close": true
 }
