@@ -97,7 +97,14 @@
       "Bash(cp -r /tmp/web-access/* \"c:/Users/Admin/Documents/LLM Wiki/.claude/skills/web-access/\")",
       "Bash(cp -r /tmp/web-access/references \"c:/Users/Admin/Documents/LLM Wiki/.claude/skills/web-access/\")",
       "Bash(cp -r /tmp/web-access/.claude-plugin \"c:/Users/Admin/Documents/LLM Wiki/.claude/skills/web-access/\")",
-      "Bash(lark-cli base *)"
+      "Bash(lark-cli base *)",
+      "Bash(lark-cli schema *)",
+      "Bash(lark-cli drive *)",
+      "Bash(lark-cli api *)",
+      "Bash(lark-cli wiki *)",
+      "Bash(lark-cli docs *)",
+      "Bash(bash fix_blank_nodes.sh)",
+      "Bash(grep -A10 '\"title\": \"__TRACKED_VAR__\"' /tmp/nodes_02.json)"
     ],
     "additionalDirectories": [
       "C:\\Users\\Admin\\.claude",
