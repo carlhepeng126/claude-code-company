@@ -47,11 +47,7 @@
       "Bash(docker rm *)",
       "Bash(docker rmi *)"
     ],
-    "defaultMode": "acceptEdits",
-    "additionalDirectories": [
-      "c:\\Users\\Admin\\.claude\\skills",
-      "c:\\Users\\Admin\\.claude\\skills\\json-canvas"
-    ]
+    "defaultMode": "acceptEdits"
   },
   "statusLine": {
     "type": "command",
