@@ -1,0 +1,23 @@
+{
+  "id": "conv-1779954715483-mn6os277h",
+  "providerId": "claude",
+  "title": "Review current project progress",
+  "titleGenerationStatus": "success",
+  "createdAt": 1779954715519,
+  "updatedAt": 1779958810878,
+  "lastResponseAt": 1779958810878,
+  "sessionId": "14192806-193b-4957-9158-5aca14b55370",
+  "providerState": {
+    "providerSessionId": "14192806-193b-4957-9158-5aca14b55370"
+  },
+  "usage": {
+    "model": "haiku",
+    "inputTokens": 260,
+    "cacheCreationInputTokens": 0,
+    "cacheReadInputTokens": 114816,
+    "contextWindow": 200000,
+    "contextTokens": 115076,
+    "percentage": 58,
+    "contextWindowIsAuthoritative": true
+  }
+}
