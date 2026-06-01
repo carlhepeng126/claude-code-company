@@ -7,17 +7,6 @@
       "createdAt": 1778585489957,
       "createdBySessionId": "4950c1ff-b890-4c94-80be-c49022c9cb19",
       "createdByPid": 40976
-    },
-    {
-      "id": "bf9a51b7",
-      "cron": "0 9 * * 1",
-      "prompt": "cd \"c:/Users/Admin/Documents/LLM Wiki\" && git add -A && git commit -m \"$(date '+每周自动备份 %Y-%m-%d')\" && git push origin main 2>&1 || echo \"无变更或推送失败\"",
-      "createdAt": 1779168861957,
-      "recurring": true,
-      "createdBySessionId": "a4907d2e-5d96-46a8-84d5-f749f92352de",
-      "createdByPid": 8292,
-      "createdByProcStart": "639148145738538380",
-      "lastFiredAt": 1779676398766
     }
   ]
 }
